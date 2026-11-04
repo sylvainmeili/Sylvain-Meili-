@@ -184,154 +184,148 @@ La montagne de proverbes
 24 : L’épicéa impérial dans son pré (09/11/2022), 2+4=6 (fusion de F et o de forêt).  
 25 : Noël sous la neige (02/07/2023), 25 = jour de Noël.  
 26 : Bambou impérial (13/11/2022), 2+6=8 (le bambou ressemble à un arbre).  
-27 : Promenade avec sa divine (17/11/2022, poème en chanson), à 2, ils ont de la chance : 7.
-28 : Partenaires de vie (19/11/2022, poème en chanson), 2 personnes, 8 : chiffre d’union.
-29 : Les jolis oiseaux du village (13/07/2023), 2 ailes (9) de l’oiseau.
-30 : La maison en pierres (13/07/2023), 3 types de maison naturelle de faible solidité : (terre, paille, bois), naturelle de haute solidité : (pierres, rochers), artificielle : (brique, parpaing, ciment, acier), et 0 est le jardin.
-31 : Cueillir la beauté des saisons : printemps, été, automne, hiver 
-(12/07/ 2023), 3 et 1=4 saisons.
-32 : L’eau vivante  (16/07/2023), 777, 3+2=5 : l’eau tourne en s’écoulant dans les cours d’eau.
-33 : L’empereur Sylvain (03/11//2022), 33 = maître/empereur de soi-même reconnecté à la source dans la théorie ou accomplissement.
+27 : Promenade avec sa divine (17/11/2022, poème en chanson), à 2, ils ont de la chance : 7.  
+28 : Partenaires de vie (19/11/2022, poème en chanson), 2 personnes, 8 : chiffre d’union.  
+29 : Les jolis oiseaux du village (13/07/2023), 2 ailes (9) de l’oiseau.  
+30 : La maison en pierres (13/07/2023), 3 types de maison naturelle de faible solidité : (terre, paille, bois), naturelle de haute solidité : (pierres, rochers), artificielle : (brique, parpaing, ciment, acier), et 0 est le jardin.  
+31 : Cueillir la beauté des saisons : printemps, été, automne, hiver   
+(12/07/ 2023), 3 et 1=4 saisons.  
+32 : L’eau vivante  (16/07/2023), 777, 3+2=5 : l’eau tourne en s’écoulant dans les cours d’eau.  
+33 : L’empereur Sylvain (03/11//2022), 33 = maître/empereur de soi-même reconnecté à la source dans la théorie ou accomplissement.  
 
-9 pas avant le passage de l’au-delà
+9 pas avant le passage de l’au-delà  
 
-Le Meilisme 
-Synthèse 1121 proverbes : (29/05/2024), 2+9+5+2+2+4=24, 21 devises dont la principale.
-Le logo du Meilisme (Symbole).
+Le Meilisme   
+Synthèse 1121 proverbes : (29/05/2024), 2+9+5+2+2+4=24, 21 devises dont la principale.  
+Le logo du Meilisme (Symbole).  
 
-Épilogue
+Épilogue  
 
-Poèmes chansons
-34 : Le duo des merveilles : (28/09/2023), poème bonus du paradis, 2+8+9+2+2+3=28), 3+4=7 (paradis).
-35 : L’or impérial (07/06/2024), 3+5=8 (infini).
-36 : Le dragon Chinois (07/06/2024), 3+6=9 (l’empereur et les 8 dragons), poème écrit du point de vue d’un empereur Chinois (représenté plus tard par un président).
-37 : Hymne de  la victoire de la Terre, Libertés d’un monde meilleur : (07/06/2024), 3+7=10 (victoire). 
-38 : Vacances utopiques au jardin (12/10/2024), on retrouve le 3 et le 8 du poème sur le jardin.
-39 : Le monde fantastique enchanté (19/12/2024), 3x3=9 : fin de cycle, 1+9+1+2+2+2+4=21 : aimer toi. 
-40 : La beauté magique : 03/02/2025, 4 (carré de la maison dans 0 qui est l’espace autour comme la montagne qui l’entoure), 140 (40 du numéro du poème) et 1+4=5 : dragon femme. 
-41 : Nos amis de l’univers (fini le 01/11/2025), 219 (2+1+9=12 : 12 planètes hypothétiques d’un système solaire), 21 et 9 sont aimer toi dans le cycle complet qui est 9, 4+1=5 : unir les dragons de l’univers.
-42 : Les  facettes de la poésie (fini le 01/11/2025), 4+2=6 facettes du dé (l’univers est jeu de dé ou la combinaison des dés infinis sont la variante de nouvelles facettes), 206 (2+6=8 infini de la poésie).
-43 : L’exploration cosmique (01/11/2025), 7 : chiffre de dieu.
-44 : L’infini cercle de la vie (08/11/2025), 8 : infini, double du cycle du poème 22 en plus grand (microcycle et macrocycle ici).
-45 : L’empereur de chine au paradis central (09/11/2025),  4+5=9 : empereur, fin cycle.
-46 : Le spectacle alchimique impérial (10/11/2025), 4+6=10 : victoire, 282 : 2+8+2=12.
+Poèmes chansons  
+34 : Le duo des merveilles : (28/09/2023), poème bonus du paradis, 2+8+9+2+2+3=28), 3+4=7 (paradis).  
+35 : L’or impérial (07/06/2024), 3+5=8 (infini).  
+36 : Le dragon Chinois (07/06/2024), 3+6=9 (l’empereur et les 8 dragons), poème écrit du point de vue d’un empereur Chinois (représenté plus tard par un président).  
+37 : Hymne de  la victoire de la Terre, Libertés d’un monde meilleur : (07/06/2024), 3+7=10 (victoire).   
+38 : Vacances utopiques au jardin (12/10/2024), on retrouve le 3 et le 8 du poème sur le jardin.  
+39 : Le monde fantastique enchanté (19/12/2024), 3x3=9 : fin de cycle, 1+9+1+2+2+2+4=21 : aimer toi.   
+40 : La beauté magique : 03/02/2025, 4 (carré de la maison dans 0 qui est l’espace autour comme la montagne qui l’entoure), 140 (40 du numéro du poème) et 1+4=5 : dragon femme.   
+41 : Nos amis de l’univers (fini le 01/11/2025), 219 (2+1+9=12 : 12 planètes hypothétiques d’un système solaire), 21 et 9 sont aimer toi dans le cycle complet qui est 9, 4+1=5 : unir les dragons de l’univers.  
+42 : Les  facettes de la poésie (fini le 01/11/2025), 4+2=6 facettes du dé (l’univers est jeu de dé ou la combinaison des dés infinis sont la variante de nouvelles facettes), 206 (2+6=8 infini de la poésie).  
+43 : L’exploration cosmique (01/11/2025), 7 : chiffre de dieu.  
+44 : L’infini cercle de la vie (08/11/2025), 8 : infini, double du cycle du poème 22 en plus grand (microcycle et macrocycle ici).  
+45 : L’empereur de chine au paradis central (09/11/2025),  4+5=9 : empereur, fin cycle.  
+46 : Le spectacle alchimique impérial (10/11/2025), 4+6=10 : victoire, 282 : 2+8+2=12.  
 
+Cycle de la dynastie Song  
+47 : Le jardin impérial Genyue (12/11/2025), (prose et 12 rimes suivies) 4+7=11, 238 (2 : couple de tout ce qui existe, 233 : 3+3+2=8, 3 et 8 du jardin).  
+48 : Education de la famille (11/11/2025), (anaphore) 4+8=12 (3), 172, 1+7+2=10.  
+49 : Vacance des enfants à la fête des sports du lac Jinming (14/11/2025), (prose) 4+9=13 (4 : famille), 5 : dragon, double dragon fusionné : 8, 4+5+8=17 (chine).  
+50 : Rocher dragon et fleurs de pierres (11/11/2025), (rimes suivies) 5, 331.  
+51 : 18 sports et jeux chinois (15/11/2025), 5+1=6 faces du jeu de dé. 18+269=287=17 divine chine=8. Double rime : mot du sport rime avec le dernier mot de la phrase, introduction et fin avec rimes suivies.  
+52 : Divine chine impériale (12/11/2025), (rimes suivies) 5+2=7 (7 de divine chine) 63+39+88=190, 1+9=10.  
+53 : La forêt impériale des pics Song (12/11/2025), (rimes suivies) 5+3=8 : forme de l’arbre et racines, 295 : union, impériale, dragon.  
+54 : Empereur Huizong (11/11/2025), (acrostiche) 5+4=9 (empereur), 201.  
+55 : Double dragon (13/11/2025), (anaphore) 5+5=10 victoire en musique, 5 : les 2 dragons (femme et homme), 59+59=118=10.  
 
-
-
-
-Cycle de la dynastie Song
-47 : Le jardin impérial Genyue (12/11/2025), (prose et 12 rimes suivies) 4+7=11, 238 (2 : couple de tout ce qui existe, 233 : 3+3+2=8, 3 et 8 du jardin).
-48 : Education de la famille (11/11/2025), (anaphore) 4+8=12 (3), 172, 1+7+2=10.
-49 : Vacance des enfants à la fête des sports du lac Jinming (14/11/2025), (prose) 4+9=13 (4 : famille), 5 : dragon, double dragon fusionné : 8, 4+5+8=17 (chine).
-50 : Rocher dragon et fleurs de pierres (11/11/2025), (rimes suivies) 5, 331.
-51 : 18 sports et jeux chinois (15/11/2025), 5+1=6 faces du jeu de dé. 18+269=287=17 divine chine=8. Double rime : mot du sport rime avec le dernier mot de la phrase, introduction et fin avec rimes suivies.
-52 : Divine chine impériale (12/11/2025), (rimes suivies) 5+2=7 (7 de divine chine) 63+39+88=190, 1+9=10.
-53 : La forêt impériale des pics Song (12/11/2025), (rimes suivies) 5+3=8 : forme de l’arbre et racines, 295 : union, impériale, dragon.
-54 : Empereur Huizong (11/11/2025), (acrostiche) 5+4=9 (empereur), 201.
-55 : Double dragon (13/11/2025), (anaphore) 5+5=10 victoire en musique, 5 : les 2 dragons (femme et homme), 59+59=118=10.
-
-Cycle des inventions
-56 : Le bien et le mal (27/02/2026), 6+5=11 : bien et mal.
-57 : Le temps (27/02/2026), 7+5=12 : les 12 heures de l’horloge.
-Invention de : La poésie montagne avec ses  versants.
-Versant plus proportionnel et plus haut du côté du bien que du côté du mal.
-58 : La vie (20/02/2026), 8+5=13, 1+3=4 : famille de vie à 4.
-Invention de : La poésie de l’ascension : forme croissante avec des phrases séparées de plus en plus longues.
-Invention de : La triple rime de l’union : 3, 1, 3, 1, 3 dans ce poème.
-59 : Chemin métaphorique (23/02/2026), 9+5=14, 1+4=5 : comme un chemin qui tourne.
+Cycle des inventions  
+56 : Le bien et le mal (27/02/2026), 6+5=11 : bien et mal.  
+57 : Le temps (27/02/2026), 7+5=12 : les 12 heures de l’horloge.  
+Invention de : La poésie montagne avec ses  versants.  
+Versant plus proportionnel et plus haut du côté du bien que du côté du mal. 
+58 : La vie (20/02/2026), 8+5=13, 1+3=4 : famille de vie à 4.  
+Invention de : La poésie de l’ascension : forme croissante avec des phrases séparées de plus en plus longues.  
+Invention de : La triple rime de l’union : 3, 1, 3, 1, 3 dans ce poème.  
+59 : Chemin métaphorique (23/02/2026), 9+5=14, 1+4=5 : comme un chemin qui tourne.  
 60 : Toupie éternelle et Miss Gatling (mon arme de pétales) (07/02/2026), 7+2+2+2+6=19=10 : victoire. 6+0=6 : 6 faces du dé de jeu au bâton et à la Gatling.
-18 lignes (poème 18 avec Kung-fu).
-61 : Le bonsaï impérial (25/05/2026). 
-Invention de : La rime de la vie : 1, 2, 3, 2, 1, 2, 3, 2, 1. 6+1=7 : Dieu ou univers symbolisé comme un bonsaï.
+18 lignes (poème 18 avec Kung-fu).  
+61 : Le bonsaï impérial (25/05/2026).   
+Invention de : La rime de la vie : 1, 2, 3, 2, 1, 2, 3, 2, 1. 6+1=7 : Dieu ou univers symbolisé comme un bonsaï.  
 62 : Spéciale chanson (02/02/2026), 2+2+2+2+6=14 comme les 14 
-lignes. 6+2=8 : la vie doit être une chanson infinie.
-63 : La patineuse artistique (21/02/2026). 
-Invention de : La triple rime de l’union inversée : 1, 3, 1, 3, 1, 3, 1, 3, 1. 6+3=9 : impératrice sur la glace.
-64 : Descente en devinette (27/02/2026), 6+4=10 : perfection pour l’eau.
-Invention de : La poésie de la descente.
-65 : La vallée qui joue (27/02/2026), 6+5=11 : les 2 versants de la vallée.
-Invention de : La poésie de la vallée.
-66 : Le parc d’attraction (16/03/2026), 1+6+3+2+2+6=20 : double victoire comme les 2 V du W (idée du W trouvée le 15 mars).
-Invention de : La poésie du W (phrase longues qui se raccourcissent puis s’allongent 2 fois), 6+6=12 (12 heures de jeu).
-46 lignes, 4 : famille, 6 : jeu.
-67 : L’union mutuelle (15/03/2026), 1+5+3+2+2+6=19, 1+9=10 : victoire.
-Invention de : La poésie du M (version miroir), (union au milieu des 2 bâtons et des 2 patins), 6+7=13, 1+3=4 : homme + bâtons et femme + patins. 3 phases : 11 (la personne et ses arts), (5 le chemin) et 1 l’union.
-M comme aime, (M=13, 3+1=4), aime=28 (2 à l’infini), 2+8=10 (victoire), 1.
-A lire à partir du début et de la fin vers le centre ou en alternant une phrase de début et une phrase de fin vers le centre.
-33 lignes : maîtrise, accomplissement.
-68 : L’arbre ancestral (29/03/2026), 6+8=14 : 1 (tronc central), 4 (les 4 directions).
-Invention de : La poésie du N.
-69 : Du rêve à la contemplation (28/03/2026), 69 = femme et homme.
-Invention de : La poésie du И inversé, 
-70 : Sylvain le sacré (04/05/2026), holorimes, 7 : chiffre du divin.
-71 : Merveilleux bonheur (30/03/2026), centon sans le titre + ajouts, 7+1=8 : bonheur (amour) infini qui tient l’univers.
+lignes. 6+2=8 : la vie doit être une chanson infinie.  
+63 : La patineuse artistique (21/02/2026).   
+Invention de : La triple rime de l’union inversée : 1, 3, 1, 3, 1, 3, 1, 3, 1. 6+3=9 : impératrice sur la glace.  
+64 : Descente en devinette (27/02/2026), 6+4=10 : perfection pour l’eau.  
+Invention de : La poésie de la descente.  
+65 : La vallée qui joue (27/02/2026), 6+5=11 : les 2 versants de la vallée.  
+Invention de : La poésie de la vallée.  
+66 : Le parc d’attraction (16/03/2026), 1+6+3+2+2+6=20 : double victoire comme les 2 V du W (idée du W trouvée le 15 mars).  
+Invention de : La poésie du W (phrase longues qui se raccourcissent puis s’allongent 2 fois), 6+6=12 (12 heures de jeu).  
+46 lignes, 4 : famille, 6 : jeu.  
+67 : L’union mutuelle (15/03/2026), 1+5+3+2+2+6=19, 1+9=10 : victoire.  
+Invention de : La poésie du M (version miroir), (union au milieu des 2 bâtons et des 2 patins), 6+7=13, 1+3=4 : homme + bâtons et femme + patins. 3 phases : 11 (la personne et ses arts), (5 le chemin) et 1 l’union.  
+M comme aime, (M=13, 3+1=4), aime=28 (2 à l’infini), 2+8=10 (victoire), 1.  
+A lire à partir du début et de la fin vers le centre ou en alternant une phrase de début et une phrase de fin vers le centre.  
+33 lignes : maîtrise, accomplissement.  
+68 : L’arbre ancestral (29/03/2026), 6+8=14 : 1 (tronc central), 4 (les 4 directions).  
+Invention de : La poésie du N.  
+69 : Du rêve à la contemplation (28/03/2026), 69 = femme et homme.  
+Invention de : La poésie du И inversé.  
+70 : Sylvain le sacré (04/05/2026), holorimes, 7 : chiffre du divin.  
+71 : Merveilleux bonheur (30/03/2026), centon sans le titre + ajouts, 7+1=8 : bonheur (amour) infini qui tient l’univers.  
+72 : Le polymathe magique (11/05/2026), 7+2=9 lignes du poème. Record du monde de complexité poétique.  
+Invention de : Poème des 12 contraintes des 7 dragons d’or combinés.   
+7 types de contraintes sur 12 dont un dragon à 6 étoiles.   
+Règles : 	  
+Moins de 10 lignes, 9.  
+468 lettres maximales autorisées, soit 52 lettres par ligne en moyenne, ici : 465 : 61+49+51+43+38+48+54+57+64=465.  
+4+6+8=18, 1+8=9 : chiffre de l’empereur.  
+2 poèmes en 1, plus 1 poème entier de plus avec son nouveau titre.   
+73 : L’origami de la patineuse (10/05/2026), 7+3=10 : victoire de la patineuse.  
+Invention de : Poème des 9 contraintes des 5 dragons d’or combinés.   
+5 types de contraintes sur 9 dont un dragon à 3 étoiles.  
+Règles : 	  
+Moins de 10 lignes, 9.  
+468 lettres maximales autorisées, soit 52 lettres par ligne en moyenne, ici : 432 : 60+55+47+41+38+40+47+52+52=432.  
+4+6+8=18, 1+8=9 : chiffre de l’empereur.  
+74 : Sage ou passage (17/05/2026), 7+4=11 : poème en miroir, holorime narratif : Record du monde de longueur d’holorimes (sans tricher), 730 lettres.  
+75 : L’axe de la voie d’harmonie du milieu (02/05/2026), 7+5=12 devises du poème, centon avec le titre.  
 
-
-72 : Le polymathe magique (11/05/2026), 7+2=9 lignes du poème. Record du monde de complexité poétique
-Invention de : Poème des 12 contraintes des 7 dragons d’or combinés. 
-7 types de contraintes sur 12 dont un dragon à 6 étoiles. 
-Règles : 	
-Moins de 10 lignes, 9.
-468 lettres maximales autorisées, soit 52 lettres par ligne en moyenne, ici : 465 : 61+49+51+43+38+48+54+57+64=465.
-4+6+8=18, 1+8=9 : chiffre de l’empereur.
-2 poèmes en 1, plus 1 poème entier de plus avec son nouveau titre. 
-73 : L’origami de la patineuse (10/05/2026), 7+3=10 : victoire de la patineuse.
-Invention de : Poème des 9 contraintes des 5 dragons d’or combinés. 
-5 types de contraintes sur 9 dont un dragon à 3 étoiles.
-Règles : 	
-Moins de 10 lignes, 9.
-468 lettres maximales autorisées, soit 52 lettres par ligne en moyenne, ici : 432 : 60+55+47+41+38+40+47+52+52=432.
-4+6+8=18, 1+8=9 : chiffre de l’empereur.
-74 : Sage ou passage (17/05/2026), 7+4=11 : poème en miroir, holorime narratif : Record du monde de longueur d’holorimes (sans tricher), 730 lettres.
-75 : L’axe de la voie d’harmonie du milieu (02/05/2026), 7+5=12 devises du poème, centon avec le titre,
-
-Maniement du bâton
+Maniement du bâton  
 
 Recette des pâtes universelles Meili
 
-Le meilleur de la musique asiatique
-Chine : Album, Instrumental, Chanteuse, Duo chanteur et chanteuse. Corée : Album ost, Chanteuse, Instrumental, Duo.
-Japon : Album artistes, Chanteuses album, Chanteuses single, Instrumental.
-Vietnam
-Thailande : Instrumental
-Myanmar (Birmanie)
-Philippines
-Laos
-Cambodge
-Indonésie
-Chanteurs asiatiques : Chine, Corée, Japon.
+Le meilleur de la musique asiatique  
+Chine : Album, Instrumental, Chanteuse, Duo chanteur et chanteuse. Corée : Album ost, Chanteuse, Instrumental, Duo.  
+Japon : Album artistes, Chanteuses album, Chanteuses single, Instrumental.  
+Vietnam  
+Thailande : Instrumental  
+Myanmar (Birmanie)  
+Philippines  
+Laos  
+Cambodge  
+Indonésie  
+Chanteurs asiatiques : Chine, Corée, Japon.  
 
-Musique générale
-De 1600 à 1899 : Musique baroque, classique, romantique…
-De 1900 à 1969
-Musique instrumentale
-Groupes, artistes, albums
-Chansons : titres
-Instrumental : titres
-Films et séries
-Ost : titres
-Jeux vidéo
+Musique générale  
+De 1600 à 1899 : Musique baroque, classique, romantique…  
+De 1900 à 1969  
+Musique instrumentale  
+Groupes, artistes, albums  
+Chansons : titres  
+Instrumental : titres  
+Films et séries  
+Ost : titres  
+Jeux vidéo  
 
-Compléments, informations et anecdotes
-Photos
-Mes symboles
-Song huizong
-90 paréidolies : Jeu de 56 cartes paréidolies de Sylvain Meili, Jeu de parcours des paréidolies.
-1121 proverbes : Montagne de 1112 proverbes, Proverbes et numéros, 1121 proverbes, Proverbes bonus, Proverbe spéciale avant chaque poème, Politesse.
-Le Meilisme
-75 poèmes codés : 30 types de poèmes dont 14 inventions, 23 poèmes sacrés, 10 poèmes ultimes, poèmes chansons, Poèmes 17 à 23, Le jardin parfait ne peut se séparer de sa montagne, Divin Japon, Divin Vietnam, Métaphore du cycle de la vie, Divine Chine, Divine France, Le dragon Chinois, 2024 : l’année du dragon Chinois de bois, 5 pays, 8 dragons, Dessins, Musique, Clip vidéo…
-Les 59 holorimes du ninja (poèmes)
-Bilan général de poésie
-Les points forts du livre
-Biographie (quelques éléments)
-Œuvre franco-chinoise
-Compléments de livres à lire
-Enfin
-Décodage des 23 poèmes sacrés
-Lexique
-Notes
-Espace à remplir au cas où j’ai des nouvelles choses à dire ou pour les lecteurs (écrire au crayon de papier).
+Compléments, informations et anecdotes  
+Photos  
+Mes symboles  
+Song huizong  
+90 paréidolies : Jeu de 56 cartes paréidolies de Sylvain Meili, Jeu de parcours des paréidolies.  
+1121 proverbes : Montagne de 1112 proverbes, Proverbes et numéros, 1121 proverbes, Proverbes bonus, Proverbe spéciale avant chaque poème, Politesse. 
+Le Meilisme  
+75 poèmes codés : 30 types de poèmes dont 14 inventions, 23 poèmes sacrés, 10 poèmes ultimes, poèmes chansons, Poèmes 17 à 23, Le jardin parfait ne peut se séparer de sa montagne, Divin Japon, Divin Vietnam, Métaphore du cycle de la vie, Divine Chine, Divine France, Le dragon Chinois, 2024 : l’année du dragon Chinois de bois, 5 pays, 8 dragons, Dessins, Musique, Clip vidéo…  
+Les 59 holorimes du ninja (poèmes)  
+Bilan général de poésie  
+Les points forts du livre  
+Biographie (quelques éléments)  
+Œuvre franco-chinoise  
+Compléments de livres à lire  
+Enfin  
+Décodage des 23 poèmes sacrés  
+Lexique  
+Notes  
+Espace à remplir au cas où j’ai des nouvelles choses à dire ou pour les lecteurs (écrire au crayon de papier).    
 
 
 Texte sans les photos (voir sur internet pour les photos)
@@ -341,13 +335,13 @@ Texte sans les photos (voir sur internet pour les photos)
 18 paréidolies
 
 Record du monde de paréidolies (à la suite)
-Voici 16 paréidolies de personnages à trouver :
-(+ 2 paréidolies sans personnage)
-(25 décembre 2007)
+Voici 16 paréidolies de personnages à trouver :  
+(+ 2 paréidolies sans personnage)  
+(25 décembre 2007)  
 
 Réponses paréidolies
 
-Personnages
+Personnages  
 1 Singe, 2 Humanoïde, 3 Oiseau vert, 4 Lapin blanc, 5 Deux têtes bleues, 6 Visage inconnu, 7 Minotaure, 8 Dark Vador, 9 Empereur Star Wars, 10 Soldat de l’empire, 11 Grenouille à cornes, 12 Vieillard barbu moustachu avec chapeau, 13 Jedi (homme à capuche en vert), 14 Buffle, 15 Ewok, 16 Souris blanche.
  
 
