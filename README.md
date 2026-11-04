@@ -4,8 +4,8 @@ Je suis polymathe : philosophe, poète, compositeur de musique, art martialiste 
 Biographie   
 (Quelques éléments)
 
-Philosophe : (1121 proverbes).  
-Poète : (75 poèmes codés + 59 holorimes), (dont 21. inventions de type de poèmes, 1 hymne), grands thèmes de la nature, vie humaine et 5 pays, 12 devises poétiques, 5 records du monde.  
+Philosophe : (1121 proverbes).   
+Poète : (75 poèmes codés + 59 holorimes), (dont 21. inventions de type de poèmes, 1 hymne), grands thèmes de la nature, vie humaine et 5 pays, 12 devises poétiques, 5 records du monde.   
 Photographe (art naturel) : photos nature et de glaces,  inventeur des nuages de bulles de glaces…  
 Paréidologue : 90 paréidolies en 10 photos : record du monde de 18 et 60 paréidolies dans la glace, 84 paréidolies en 3 minutes, 2 dragons symbolisant les 2 S du dragon donnent naissance au 3ème petit dragon.  
 Paysagiste : (recette du meilleur jardin en poème, inventeur du nuage à bulles de glaces, jardinier et amélioration de la nature).  
