@@ -127,63 +127,63 @@ Tous les chiffres correspondent à l’idée de chaque poème.
 Certains poèmes sont associés à la somme des lettres en numérologie à partir de l’ordre alphabétique.
 
 
-1 : Ma petite rivière (2020)
-2 : Belles chutes d’eau (2020)
-3 : La truite fario (2019)
-4 : Le chat parfait (2019), 4.
-5 : La beauté asiatique (2019), 169.
-Ce poème s’applique à des chinoises, japonaises, coréennes, vietnamiennes, thaïlandaises… Applicable aussi pour d’autres races.
-6 : Forêt impériale (2020), 8.
-7 : Songes des huit dragons du jardin de l’empereur (2019), 5.
-Huit dragons qui symbolisent aussi le pays.
-8 : 383 Le jardin parfait ne peut se séparer de sa montagne (2014), Huitième poème en proverbe.
-Étant passionné de nature, j’ai longtemps imaginé à quoi ressemble le jardin idéal, en espérant que ça pourra servir aux paysagistes, je vous donne un aperçu d’un beau jardin de style surtout chinois en poème.
-Cela peut aussi s’élargir à une vallée dans la montagne.  
-9 : Empereur pour princesse ? (2020), princesse = 108.
-10 : La victoire retrouvée (2020)
-11 : Joute de poèmes de deux fidèles (2020)
-12 : Éducation (2019)
-13 : Une journée idéale en famille (2019)
-14 : La mort, le renouveau dans l’au-delà et les 4 saisons (2019)
-15 : Poème d’un empereur à sa déesse (2020)
-16 : Poème d’une déesse à son empereur (2020)
-17 : Divine Chine (2020), 63+39 : pile+face =33 et 69.
-18 : Le Kung-fu légendaire (2020), 177=15= un dragon.
-19 : Divin Japon (06/06/2021)
-20 : Divine Corée (11-12/06/2021)
-21 : Divine France (16/06/2021), 120 : inversé 021.
-22 : Métaphore du cycle de la vie (2020), poème caché.
-23 : Divin Vietnam (22-23/02/2022)
+1 : Ma petite rivière (2020)  
+2 : Belles chutes d’eau (2020)  
+3 : La truite fario (2019)  
+4 : Le chat parfait (2019), 4.  
+5 : La beauté asiatique (2019), 169.  
+Ce poème s’applique à des chinoises, japonaises, coréennes, vietnamiennes, thaïlandaises… Applicable aussi pour d’autres races.  
+6 : Forêt impériale (2020), 8.  
+7 : Songes des huit dragons du jardin de l’empereur (2019), 5.  
+Huit dragons qui symbolisent aussi le pays.  
+8 : 383 Le jardin parfait ne peut se séparer de sa montagne (2014), Huitième poème en proverbe.  
+Étant passionné de nature, j’ai longtemps imaginé à quoi ressemble le jardin idéal, en espérant que ça pourra servir aux paysagistes, je vous donne un aperçu d’un beau jardin de style surtout chinois en poème.  
+Cela peut aussi s’élargir à une vallée dans la montagne.    
+9 : Empereur pour princesse ? (2020), princesse = 108.  
+10 : La victoire retrouvée (2020)  
+11 : Joute de poèmes de deux fidèles (2020)  
+12 : Éducation (2019)  
+13 : Une journée idéale en famille (2019)  
+14 : La mort, le renouveau dans l’au-delà et les 4 saisons (2019)  
+15 : Poème d’un empereur à sa déesse (2020)  
+16 : Poème d’une déesse à son empereur (2020)  
+17 : Divine Chine (2020), 63+39 : pile+face =33 et 69.  
+18 : Le Kung-fu légendaire (2020), 177=15= un dragon.  
+19 : Divin Japon (06/06/2021)  
+20 : Divine Corée (11-12/06/2021)  
+21 : Divine France (16/06/2021), 120 : inversé 021.  
+22 : Métaphore du cycle de la vie (2020), poème caché.  
+23 : Divin Vietnam (22-23/02/2022)  
 
-Réflexions philosophiques :
-L’artificialisation et la privatisation de la nature 294
-La bêtise au bord de l’eau et dans le jardin 327
-Le jardin impérial 382
-Éducation utopique : les essentiels, les facultatif. 700 
-Imagination d’un paradis : (C’est subjectif). 777 
-Déterminer le meilleur philosophe ou livre de philosophie 789
-Les arbres 872
-La méthode abdos tout terrain (maigrir) 890
-Les rêves 916
-Vaisseau spatial anti gravité 988
-Aussi d’autres réflexions avec les numéros à découvrir…
+Réflexions philosophiques :  
+L’artificialisation et la privatisation de la nature 294  
+La bêtise au bord de l’eau et dans le jardin 327  
+Le jardin impérial 382  
+Éducation utopique : les essentiels, les facultatif. 700   
+Imagination d’un paradis : (C’est subjectif). 777   
+Déterminer le meilleur philosophe ou livre de philosophie 789  
+Les arbres 872  
+La méthode abdos tout terrain (maigrir) 890  
+Les rêves 916  
+Vaisseau spatial anti gravité 988  
+Aussi d’autres réflexions avec les numéros à découvrir…  
 
-Derniers proverbes français inédits
-(La suite de 777, 1ère parution partielle le 08/08/2021)
+Derniers proverbes français inédits  
+(La suite de 777, 1ère parution partielle le 08/08/2021)  
 
-112 proverbes d’amour et drôles inédits
-(1ère parution le 21/11/2017)
+112 proverbes d’amour et drôles inédits  
+(1ère parution le 21/11/2017)  
 
-Quiz : 100 proverbes du monde, chinois et français 
-(1ère parution le 01/04/2019)
+Quiz : 100 proverbes du monde, chinois et français   
+(1ère parution le 01/04/2019)  
 
-La montagne de proverbes
-(1112 proverbes de 2004 à 2021 qui forment la montagne de proverbes).
+La montagne de proverbes  
+(1112 proverbes de 2004 à 2021 qui forment la montagne de proverbes).  
 
-10 ultimes poèmes
-24 : L’épicéa impérial dans son pré (09/11/2022), 2+4=6 (fusion de F et o de forêt).
-25 : Noël sous la neige (02/07/2023), 25 = jour de Noël.
-26 : Bambou impérial (13/11/2022), 2+6=8 (le bambou ressemble à un arbre).
+10 ultimes poèmes  
+24 : L’épicéa impérial dans son pré (09/11/2022), 2+4=6 (fusion de F et o de forêt).  
+25 : Noël sous la neige (02/07/2023), 25 = jour de Noël.  
+26 : Bambou impérial (13/11/2022), 2+6=8 (le bambou ressemble à un arbre).  
 27 : Promenade avec sa divine (17/11/2022, poème en chanson), à 2, ils ont de la chance : 7.
 28 : Partenaires de vie (19/11/2022, poème en chanson), 2 personnes, 8 : chiffre d’union.
 29 : Les jolis oiseaux du village (13/07/2023), 2 ailes (9) de l’oiseau.
