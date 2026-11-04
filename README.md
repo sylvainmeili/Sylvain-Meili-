@@ -1,38 +1,38 @@
 # Sylvain-Meili-
 Je suis polymathe : philosophe, poète, compositeur de musique, art martialiste du bâton et d’autres activités et arts...
 
-Biographie 
+Biographie   
 (Quelques éléments)
 
-Philosophe : (1121 proverbes).
-Poète : (75 poèmes codés + 59 holorimes), (dont 21. inventions de type de poèmes, 1 hymne), grands thèmes de la nature, vie humaine et 5 pays, 12 devises poétiques, 5 records du monde.
-Photographe (art naturel) : photos nature et de glaces,  inventeur des nuages de bulles de glaces…
-Paréidologue : 90 paréidolies en 10 photos : record du monde de 18 et 60 paréidolies dans la glace, 84 paréidolies en 3 minutes, 2 dragons symbolisant les 2 S du dragon donnent naissance au 3ème petit dragon.
-Paysagiste : (recette du meilleur jardin en poème, inventeur du nuage à bulles de glaces, jardinier et amélioration de la nature).
-Art martialiste expert du bâton : je manie 2 bâtons long (bō en japonais) ou gùn (棍, Chinois), inventé la technique de la toupie éternelles des 2 dragons chinois impériaux voyageurs le 18/08/2024 : année du dragon chinois de bois (bâton). 1+8=empereur, 8=2 dragons, 2+2+4=8 année du dragon.
-Ornithologue : 
-Recensement d’oiseaux.
-Nichoir que j’ai copié qui a fait nicher une chouette de tengmalm.
-Mammalogie : recensement de micrommamifères grâce à l’étude des pelotes de rejection de chouette : ramassage de plusieurs sacs remplis que j’ai effectué seul dans les combles de deux églises (une chouette effraie vue), participation à deux à l’identification des os (micromammifères principalement et autres) pour recenser les espèces, il a fait les ¾.
-Naturaliste et écologiste : défendre et optimiser la nature.
-J’ai enlevé des milliers de déchets dans la nature et le long des cours d’eau. 
-J’ai arraché plus de 33000 ronces et favoriser le framboisier.
-J’ai acheté des terrains pour protéger contre la privatisation, la destruction, l’enlaidissement de la nature. C’est pour la liberté, l’amélioration,  optimiser et diversifier la nature et sa beauté. 
-Il faut faire pousser de la nourriture et garder l’aspect sauvage.
-Curateur de playlists musicales : inventaire des meilleures musiques.
-Pédagogie ou Créateur de quiz de proverbes : 100 à 4 réponses.
-Santé : j’ai inventé la méthode abdos tout terrain pour maigrir un peu ou ne pas grossir, aide à une digestion accélérée (proverbe 890).
-Créateur de jeu de société: jeu de base de 56 cartes adaptés aux paréidolies avec consignes, associé à des jeux de parcours et échelles.
-Métaphysique : au-delà, enquête sur les rêves, découverte de vies antérieures, rêves prémonitoires et rencontre de mon double astral attestés par mon expérience personnelle.
-Dessinateur : quelques dessins.
-Calligraphe : Meili Sen Song calligraphie.
+Philosophe : (1121 proverbes).  
+Poète : (75 poèmes codés + 59 holorimes), (dont 21. inventions de type de poèmes, 1 hymne), grands thèmes de la nature, vie humaine et 5 pays, 12 devises poétiques, 5 records du monde.  
+Photographe (art naturel) : photos nature et de glaces,  inventeur des nuages de bulles de glaces…  
+Paréidologue : 90 paréidolies en 10 photos : record du monde de 18 et 60 paréidolies dans la glace, 84 paréidolies en 3 minutes, 2 dragons symbolisant les 2 S du dragon donnent naissance au 3ème petit dragon.  
+Paysagiste : (recette du meilleur jardin en poème, inventeur du nuage à bulles de glaces, jardinier et amélioration de la nature).  
+Art martialiste expert du bâton : je manie 2 bâtons long (bō en japonais) ou gùn (棍, Chinois), inventé la technique de la toupie éternelles des 2 dragons chinois impériaux voyageurs le 18/08/2024 : année du dragon chinois de bois (bâton). 1+8=empereur, 8=2 dragons, 2+2+4=8 année du dragon.  
+Ornithologue :   
+Recensement d’oiseaux.  
+Nichoir que j’ai copié qui a fait nicher une chouette de tengmalm.  
+Mammalogie : recensement de micrommamifères grâce à l’étude des pelotes de rejection de chouette : ramassage de plusieurs sacs remplis que j’ai effectué seul dans les combles de deux églises (une chouette effraie vue), participation à deux à l’identification des os (micromammifères principalement et autres) pour recenser les espèces, il a fait les ¾.  
+Naturaliste et écologiste : défendre et optimiser la nature.  
+J’ai enlevé des milliers de déchets dans la nature et le long des cours d’eau.   
+J’ai arraché plus de 33000 ronces et favoriser le framboisier.  
+J’ai acheté des terrains pour protéger contre la privatisation, la destruction, l’enlaidissement de la nature. C’est pour la liberté, l’amélioration,  optimiser et diversifier la nature et sa beauté.   
+Il faut faire pousser de la nourriture et garder l’aspect sauvage.  
+Curateur de playlists musicales : inventaire des meilleures musiques.  
+Pédagogie ou Créateur de quiz de proverbes : 100 à 4 réponses.  
+Santé : j’ai inventé la méthode abdos tout terrain pour maigrir un peu ou ne pas grossir, aide à une digestion accélérée (proverbe 890).  
+Créateur de jeu de société: jeu de base de 56 cartes adaptés aux paréidolies avec consignes, associé à des jeux de parcours et échelles.  
+Métaphysique : au-delà, enquête sur les rêves, découverte de vies antérieures, rêves prémonitoires et rencontre de mon double astral attestés par mon expérience personnelle.  
+Dessinateur : quelques dessins.  
+Calligraphe : Meili Sen Song calligraphie.  
 Vidéaste : auto filmé et montages vidéo (poéme, philosophie et quiz proverbes avec voix IA, art martial bâtons, paréidolies).
-Imitateur : quelques mammifères (chat, chien) et oiseaux (chouette hulotte), j’ai attiré un coucou et une tourterelle turque (en faisant avec mes 2 mains) comme ça.
-Musicien : Je peux faire les notes de la flûte avec mes deux mains mais non qualitafif pour la musique, le reste à  venir.
-Chanteur : A venir.
-Cuisinier : Recette des pâtes universelles Meili
-Encyplopédiste : en regroupant tous mes savoirs et arts.
-A venir : peut-être sculpture, origami, danse pour augmenter le record.
+Imitateur : quelques mammifères (chat, chien) et oiseaux (chouette hulotte), j’ai attiré un coucou et une tourterelle turque (en faisant avec mes 2 mains) comme ça.  
+Musicien : Je peux faire les notes de la flûte avec mes deux mains mais non qualitafif pour la musique, le reste à  venir.  
+Chanteur : A venir.  
+Cuisinier : Recette des pâtes universelles Meili  
+Encyplopédiste : en regroupant tous mes savoirs et arts.  
+A venir : peut-être sculpture, origami, danse pour augmenter le record.  
 
 Philosophie du Meilisme
 1121 proverbes intemporels  
