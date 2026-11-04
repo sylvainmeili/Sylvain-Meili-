@@ -8965,7 +8965,89 @@ En faisant la symétrie, en arrondissant les traits à partir de 2019, cela fait
 Chapeau l’artiste.
 
 
+Lexique 
+(1 à 777)
+A
+abaisser 768, abandon 517, abîmer 434, abruti (302,327,560,674), accoutumance 708, accusation 719, acte 682, action (376,390), activité 559, addiction 205, ADN (115), adulte 333, adversaire (571,603), âge (303,312,629), agir (7,482), aider 222, aimer (136,242,368,447,495), air 432, akashique 556, alcoolisme 551, altruisme 662, âme (339,720), améliorer (292,390,536,679), ami (223,276,288,360,681), amour   (21,388,521,575,726,730,733,750), amusement 635, ancêtre 250, anciens 520, animal (218,557,601), anniversaire 530, apparence (146,155), apprendre (236,463,498,678),                                                                                    apprentissage (118,626), arbre (183,274,303,324,325,328,329,403,404,409,412,440,      615,669,710), argent (131,489,494,539), argument (44,200,335,427,454,644,759), art 634, artificiel 622, artificielle 213, artiste 580, artistique 516, arts martiaux (126,347), assis 537, attaque 502, attendre 259, au-delà (86,311), autarcie 420, auteur 309, avantage 27, avenir (14,169,285,478,625,627), avis 573, avorter (217,339).
 
+B
+balançoire 303, ballon 334, bassesse 695, battre 430, beau (19,76,81,89,126,,274,           280,328,334,393,415,483,485,522,530,566,700), beauté (78,80,69,83,84,85,87,88,     90,91,117,115,182,183,213,268,273,279,282,327,425,451,581,591,643), bébé 339, belle (88,231,235,265,346,483,546), bénéfique 323, berge 327, besoin 577, bêtise (214,215,216,350,412,429,438,461,466,501,510,533), bien (75,96,97,98,99,100,  174,234,251, 372,482,526,691,700), bienveillance 246, bijou 744, bisou 357, blague 721, blâmer 670, blesser (55,460), bombe 334, bonheur (46,57,87,128,131,148,      158,160,477,525,598,655,700), bonjour 233, bonne 384, bouger 678, boule 624, boycotter 352, branche 324, briller 361, bruit (294,386), but 388.
+
+C
+cabane 734, cadeau (453,715), calmement 398, capacité 576, caprice (101,555), capricieux 728, carpe 150, catastrophe 685, célèbre (684,714), célibataire 280, cercueil 408, certitude 35, champs 439, chance (203,607), chanceux 222, changer 391, chanson 310, chantage (405,587), chanter 235, chanteur 310, chasseur 557, chat (124,150,153, 243), chef 260, chemin (33,331,,417,512,570,626), cheveux 642, chien (123,243, 290,295,337), choisir 11, chose (143,359,547,554,698), chute (50,451), chuter 267, ciel (158,334,437), circonstance (696,701,729), clair 522, clef (431,574), clochard 667, clonage 552, clôture 325, cochon 150, code 155, cœur 33, coiffeur 435, coiffure 647, colère (27,52,192), collection 594, collègue 384, collier 396, colline 570, colonisation 294, combat 636, combattre (301,332), comédie 565, comédien 690, compassion 508, compliment 63, compliqué 249, complot 542, comportement 102, con (356,373, 444,572,611,683), concours (425,580), condamnation 384, condamné (68,70,663), confiance  607,  conflit  (488,558),  confronter  (378,496)  connaissance (33,388,575), 
+connaître (24,98,310,333) connerie (190,299,340,378,398,447,454,456,488), connu 410, conseil 351, consentement 505, consentir 633, conséquence (682,729,772), conscience (149,269,284,452,491,493,569,578,585,628,720,766), construction (298, 354,692), contrainte 16, contrat 540, contrôler 377, convaincre (44,343,366,390,449, convoitise 767, corde 340, corps (126,172,286,559,590,599,636), corriger (284,477), couleur 499, couloir (379,668), couple 454, courage 348, courageux (374,424,587), coutume 555, craie 421, créateur 384, création 592, créativité 637, crédibilité 352, cri 347, criminel 82, crispation 211, critique (63,230,244,509,531), croire 344, croissance (516,566), cruauté 314, cultiver (177,598,749), culture 299. 
+
+D 
+dangereux (313,318,319,401,492), débat 50, debout 537, déchéance 254, déchet (262, 296,516), décision 12, découverte (266,704), défaite (92,186,571,582,638), défauts (264,284,351,756), dégénérer 632, dégoût 403, déguiser 565, demande 475, demander 226, désespoir 254, déshériter 697, désir 762, désordre 711, dessin  (458,476), destin (187,191,293,461), destination 322, destruction (133,400), détoxifier 567,  détruire (46,56,252,261,299,384,666), développement 375, devoir 16, dieu (377,578,588,723,     736,738,747,777), différence (48,224,470), difficile (161,352), dimension (108,147,    764), diplomate (255,256), discréditer (484, 657), discriminer (77,144), dissuader 364, diversité (80,113,591,649), divertissement (589, 738), doctrine 436, doigt 349, donner 168, dormir (379,419), douceur 163, douleur (74,559), dragon 180, drague (370,450), dramaturgie 465, droit 28,525.
+
+E
+eau (50,267,329,451,586), éclairer (449,572), école (650,713,751), écologique 516, écrire (403,421), éducation (68,103,138,641,650,689), effacer 314, effort (198,374,394,570), égal 428, égalité (111,191), égaux 17, égo (411,447,740,776), égocentrisme 412, égoïste (26,53,366), élève 196, élue 546, embellir 440, emmerdeur (308,508), émotion (33,193), enchaîner 490, enclos 437, endurance 125, énergie 775, énerver (366,371,398,392,426,475), enfant (59,62,101,103,206,218,333,339,340,357,      394,429,453,458,477,483,505,506,520,527,566,697,728), enfermement 583, engueulade 674, engueuler 459, enlaidir 440, ennemi (39,156,433,507), ennuis (46,680), enrichir 252, entraider 471, enveloppe 579, envie (16,232,322,323,357,    486,610, éphémère 285, épicéa 404, époque 179, épreuve (165,178,199,508,617,638), équilibre (63,120,195,381,450,526,544,750,762,770), erreur (42,72,240,573,613, 621,651,699,702,703), esclave (41,495,566,740), espèce 116, espoir 517, esprit (40,51,176, 210, 218, 219, 253, 282, 339, 375, 490, 493, 520, 567, 575, 616, 617, 668, 673), essayer 226, esthétisme (125,245), éternel 605, éternité (575,578,761),  étiquette 609, être (159,171,205,278), euthanasier 601, éveil 493, éventail 193, évolution (115,264,445,536,608,682,689,724), excellence (36,491,760), excès 268, exemple 390, exister 368, expérience 701, expérimentation 388, explorateur 704, expulser 501.
+
+F
+facette 624, facile (130,143,161,179,241,269,515,686), faible 469, faiblesse 201, fainéantise 132, fait 66, famille (260,375,453), fan 310, fardeau 169, fausse (425,484), fautes (18,595), faveur 620, femme (253,290,370,418,450), fiction 140, fierté 362, fil 325, fille 340, flamme (281,361), fleur (180,185,521), folie 616, foot 664, force (120,125,156,165,224, forêt (88,250,439,709), forme 570, fort (6,157,162,199,     395,430,469,481,519,718), fou (43,270,314,389), frapper 373, frère 431, fruit 238, fumer 551, futur 462.
+
+G
+gâcher 258, gâchis (507,715), gagnant 634, gagner (427,664), galanterie 600, gaspiller 433, gâter 212, génération 335, généreux (248,311,665), générosité 576, gênes 483, génétique 155, gens (26,51,64,225,308,314,319,321,352,401,442,446,473,485,510, 573), gentil 543, gentillesse (201,241), germer 471, glace 586, glorieux 494, goût (11,77,144), goûter 739, grandir 312, grillage 328, grimper (303,404), gros 710, guérir 135, guerre (553,634,727), gueuler (18,364), guide 207.
+
+H
+habitant 734, habitation 734, habitude 480, haie 693, hasard 203, herbe 327, héritage (431,594), heureux (479,631,718), histoire 363, homme (123,253,290,437,450), honneur 497, honte (37,340), horrible 147, humain (54,57,58,133,218,224,294,295     296,379,354,437,440,710), humanité 389, humanoïde 446, humeur (60,143,392), humour (151,422), hymne 127, hypothèse 658.
+
+I 
+idée (255,314,362,459,464,613,759), idiot (62,76,280,295,398,426,438,444,452,454,      465,466,472,511,718,719), idolâtrer 490, ignorance (47,423), ignorant (644,711), image 684, imbécile (436,509,558,582,595), imbu 428, immeuble 379, immortalité (127), imperfection (422,617,739), importance 639, important  714, impossible (343,462), incarner 701, individu (139,154), inférieur (25,519), infini (188,189,388), informer 666, injuste (32,190,208,306,456), injustice (426,695), innocent 429, insociable 645, inspiration 287, instruire 228, insulte 488, intelligence (132,207,421,631,680), intelligent (535,660), intention 413, inutile (208,463), ironie 293, irrespect 412. 
+
+J 
+jalousie (173,656,767), jaloux 655, jardin (300,41,177,298,383,399,622,749), jaunir 432, jeu (432,603,634), jeune (530,532), jeunesse (118,282,527), jeux vidéo, joie 524, jongler 683, jouet (126,457), jour 386, journée 556, joyau 361, jugement (94,146), juste (4,350,450), justice (195,687), justifier 66, 414. 
+
+K 
+karma (508,646,771), Kung-fu (125,126,127). 
+
+L
+laideur (76,91), langue (591,753), latex 334, laver 237, leçon (706,758), libérer 666, liberté (28,176,474,481,482,505,716), libre arbitre (137,138,596,640,651,724,773), limiter 481, lit 419, livre (349,432), loi (306,469), loin 478, longtemps 584, lumière (90,499,500,553,574,619).
+
+M
+machine 219, magnifique 147, maigre 563, maison (298,399,431,477), maître (166,196), maîtrise 33, majorité 688, mal 5,69,73,75,82,97,98,99,100,114,150,174,205,     211,251,261,279,286,299,301,336,345,397,405,423,443,456,481,482,484,500,589,
+611,691,765), maladie (23,59,339,592), malheur (56,60,160,241,471,477,506,507), malintention 442, malpoli 369, maniaque 745, manipulateur 291, manque (583,584), maquillage (425), marée 129, marginalité (36,491), marier 540, marque 61, maso 562, matériaux 538, mauvais (606,227,229), méchanceté (220,246,336,369,426), méchant 565, médicaments 135, médiocrité (36,304,496,514,632), médium 763, meilleur (179,288,396,399,419,523,696), mélodie 443, mémoire (314,725), mensonge (460,468,485,502,503), mental 172, mentir (29,65,110,184,219,406), merde 567, mérite (56,362,368,497,505,515,759), message (352,528), messager 568, méthode 679, minorité 688, minuit 379, miroir (108,273) mission 376, mocheté (69,83,279,346,  458,662,705), mode (79,91,94,330), modeste 173, moine 124, monde (22,26,42,56,    247,298,317,340,358,390,391,450,456,496,523,546,683,765), monotone 649, montagne (231,383,437,439,722), moquer (55,64,504), morale (16,68,213,430,487), mort (86,183,311,324,407,409,502), mot 66, moteur 207, motiver 394, mouchoir 385, mourir (321,648), moustique 336, mouton (330,337,491,588), multivers 769, musée 685, musique (13,19,257,556).
+
+N 
+naissance (86,137), narcissisme (212,370), nationaliste 265, nature (7,22,53,133,    147,182,195,210,262,275,287,294,297,298,327,300,336,346,354,365,399,400,417,538,570,692), naturelle 213, négativité 487, nénuphar 180, nettoyer 194, niveau 48, nœud 266, note (506,713), nourriture (599,636,749), nuage (158,334,586), nucléaire 334, nuire 498, nuit (379,386), nullité 580.
+
+O 
+obéir 486, objectif (19,708), objet (296,495), occuper 479, œuvre 457, ombre (553,569), opaque 108, optimiste 705, option (737,777), ordre 475, organisme 164, orgueil 63, originalité 141, os 563, outil 388.
+
+P
+paix (48,417,446,585), paradis (10,562,735,743,776), parallèle 484, pardonner (149,511,541), parent (206,260,477,650,752), parfait (300,383,544,564,612,613,669,  754), parfaite (597,653), parfum 272, parler (20,355), parole 579, partage (21,518), partager 697, partie 671, parure 643, passé (14,169,240,324), patience (12,192,361), pauvreté (78,210), payer 435, pays (294,652,734), paysage (275,393), peintre 580, peinture 402, pensée 604, penser (42,142,164,717), perfection (21,69,182,380,418,                               713,731,739,762), période 627, perle 396, persévérance 15, personnalité 470, personne (22,25,145,200,227,311,343,348,349,363,428,438,473,487,490), pervers 220, pétale (415,521,642), peuple    (666,689), peur (134,534,741), philosophe 751, physique 213, pièce 667, piéger (228,291), piercing 551, place 455, plaire 32, plaisir (170,285,338,460,494,498,                                         506,575,577,599,605,608,636,660,686,746), planète (62,247,298,433,473,489,668), poche 385, poème (415,623), poésie 304, poétique 529, point 476, poisson 100 poli 369, polluer  (40,433), porte (574,614), positif  433, possession (606,307,433,441,495,     518), poubelle (483,667,715), pouvoir (34,317,378), prairie 439, pré 404, prédateur 557, prémonitoire 277, prénom 755, présent (169,462), préserver (14,242,275), preuve 406, prier 408, prison 713, privilège (305,370), problème (109,459,630,767), profiter (175,505), programmation (137,138,340,549), programme 560, programmer 234, progrès 224, projet 625, promesse 30, pronostique 582, protéger 502, proverbes (67,309,396,402,466,485,528,529,531), psychique 356, psychologie 42, psychologique 630, puissance 163, punir (71,72, 73,74,75), pure 100, 482.
+
+Q 
+qualité 395, quantique (219,658).
+
+R
+rabaisser 55, race (591,593,597), racine  326, racisme 593, raciste (144,565), raison (45,49,52,166,351,438,452,466,469,488), rajeunir 709, ranger 434, rapidité 125, réalisation 517, rébellion 774, récompense 394, reconnu 410, recyclage 296, recycler (399,417), rééducation 270, rééquilibre 656, réfléchir (18,31) réfractaire 694, refus 475, règle (745,732) regretter 24, réincarnation (311,339,725), rejet 767, religion 372, remplaçable 455, rendez-vous 271, renoncement 474, repas 672, réplicateur 557, reposer 717, reprocher 602, réputation 542, respect 585, respecter (144,652), respectueux 421, respirer 717, responsable 448, réussir (618,670), réussite (111,167,289,338,461,512), rêve (15,277,293), réveiller (379,628), rêver 717, richesse (78,210,258,317,539), ridicule (349,548,605,686), rime 623, rire (533,654), risque (411,492), rituel (209,480), rivière 722, robot (318,319), rôle 488, ronce 326, rouge 411, ruisseau (274,327,522,722).
+
+S
+sage (1,2,3,34,39,62,70,76,329,350,444,478,644,654,687,694,711), sagesse (33,37,65,132,207,215,378,481,501,520,549,653,732), saison 204, salaire (454,455), salir (194,237), santé 128, sauvage 692, sauvegarde (341,407,550), sauver 311, savoir (8,20,95,138,152,316,344,401,463,653), scénario 658, seconde 202, semblable 397, sentier 329, sentir 519, serpent 290, service (381, 503), sexe 272, Shaolin 124, simple 249, simulation 658, sociable (470,676,677), sociale 112, société (320,420,480,491,514,    748), sœur 431, soi 38, soie 180, sol 297, soleil 327, solitaire (255,470,675,676), solution (387,706), sommet 416, souffrance (263,321,374,548,633), souhait (413,742), souplesse (120,121,122,124,125), sourd 568, sourire 239, souvenir 550, sport 563, stratégie 711, stress 18, subjectivité 19, succès 411, sujet 352, supérieur (25,519), surpeuplé 294, survivre 106, sympa (452,510,645), synonyme 631.
+
+T
+tague 421, talent (353,494,684), tapis 411, tatouage 551, taxer 359, technique 125, technologie (313,316,317,399,401,417), tempérament 138, temps (204,479,544), terrain 693, terre (17,334), tester 496, tête 312, timidité (342,394,395,534,545), tique 336, toilette 472, tolérance (50,113), tolérant 632, tombe (407,408,409), tomber 315, ton (757,758), tort 44, torture (82,358), toucher 233,  tradition 556, trahison 397, tranquille (410,502), transmettre 93, transparence 108, travail (132,269,362,454,506,     566,628,672), travailler (537,748), trésor 266, tricher (104,105,106,107), trou 315, troupeau (94,437,569,666,695), truite 150, tuer (217,336,409).
+
+U
+un 659, univers (108,263,345,575,727,742,746,766), universel (525,732), utile 463.
+
+V 
+vaincre (23,134), valeur (387,493), vantard 173, vengeance 661, venger (197,433,461), vent 415, vérité (35,54,67,184,219,232,234,333,338,344,372,389,406,   416,460,461,476,484,514,535,673,694,700), vestimentaire 647, vêtement (61,549,712), viande 557, vibration 771, vice 405, victime 384, victoire (92,186,267,500,687), vide 579, vie (9,21,111,129,148,167,181,189,191,193,202,205,211,266,277,289,311,321,     341,345,380,414,456,467,473,492,498,499,512,582,624,633), vieillesse 615, vieillir (283,709), vieux (367,532,562,710), village (393,439), violence (45,140,373,619), visage 392, vision 344, vitesse 120, vivre (365,417,512)  voie 523, voiler 514, voix (180,235), vol 767, voler 293,vouloir (205), voyage 707.
+
+W
+
+X
+
+Y 
+yang 174, yeux 355, ying 174.
+
+Z 
+zénith 15 (1 dragon au zénith)
+
+
+
+Notes 
 
 
 
