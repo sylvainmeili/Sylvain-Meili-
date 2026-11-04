@@ -591,120 +591,119 @@ Ta beauté nous émerveille,
 
 Sylvain Meili (2020 : n°1)
 
-1
-Savoir beaucoup de choses ne veut pas dire être sage.
-2
-Acquérir des connaissances aide à devenir plus sage.
-3
-Quelqu’un qui sait plus n’est pas forcément plus sage que quelqu’un qui sait moins, avoir un QI (quotient intellectuel) supérieur ne veut pas dire être supérieur philosophiquement.
-4
-Être juste pousse les autres à le devenir.
-5
-Mal agir envers quelqu’un se répercute sur les autres.
-6
-On peut être plus fort que quelqu’un mais pas proportionnellement.
-7
-Il vaut mieux une nature pour tous qu’une nature pour soi.
-8
-Se remettre en cause est la voie du savoir.
-9
-On ne vit pas qu’une seule fois, on vit toujours sous différentes formes et lieux car on peut se réincarner.
-La réincarnation
-Vies antérieures : j’ai rêvé que je dessinais une aigrette, j’ai retrouvé mon dessin, impossible de confondre avec d’autres dessins d’oiseaux.
-J’ai fait plus d’une dizaine de rêves de vies antérieures avant de trouver les faits historiques, il ya d’autres personnes qui ont retrouvé leur vie antérieures comme ça ou se souvenait en partie et ont vérifié les faits après.
-Des personnes qui ont fait une expérience de mort imminente ont pu voir des choses écrites ou des éléments de décors en dehors de la pièce où ils étaint quand ils disent être sorti de leur corps.
-Possibilité de ne pas fusionner avec son double jumeau de l’astral qui a la même apparence et les mêmes parents ou autres cas différents avant la prochaine incarnation.
-L’oubli à la réincarnation permet de savoir si tu fais le bien par calcul ou par la nature de ta conscience, évite de te rappeler les gens que tu n’aimes pas pour te réconcilier ou ne pas te venger, pour éviter le stress de ce que tu vas traverser ou ne pas modifier le plan.
-On devrait laisser le plus de mémoire possible si on est assez évolué.
-10
-N’attendons pas le paradis, on peut en partie le créer en s’en rapprochant.
-11
-Goûter pour mieux choisir.
-12
-Hâtez-vous de prendre les bonnes décisions tout en étant patient.
-13
+1  
+Savoir beaucoup de choses ne veut pas dire être sage.  
+2  
+Acquérir des connaissances aide à devenir plus sage.  
+3  
+Quelqu’un qui sait plus n’est pas forcément plus sage que quelqu’un qui sait moins, avoir un QI (quotient intellectuel) supérieur ne veut pas dire être supérieur philosophiquement.  
+4  
+Être juste pousse les autres à le devenir.  
+5  
+Mal agir envers quelqu’un se répercute sur les autres.  
+6  
+On peut être plus fort que quelqu’un mais pas proportionnellement.  
+7  
+Il vaut mieux une nature pour tous qu’une nature pour soi.  
+8  
+Se remettre en cause est la voie du savoir.  
+9  
+On ne vit pas qu’une seule fois, on vit toujours sous différentes formes et lieux car on peut se réincarner.  
+La réincarnation  
+Vies antérieures : j’ai rêvé que je dessinais une aigrette, j’ai retrouvé mon dessin, impossible de confondre avec d’autres dessins d’oiseaux.  
+J’ai fait plus d’une dizaine de rêves de vies antérieures avant de trouver les faits historiques, il y a d’autres personnes qui ont retrouvé leur vie antérieures comme ça ou se souvenait en partie et ont vérifié les faits après.  
+Des personnes qui ont fait une expérience de mort imminente ont pu voir des choses écrites ou des éléments de décors en dehors de la pièce où ils étaient quand ils disent être sorti de leur corps.  
+Possibilité de ne pas fusionner avec son double jumeau de l’astral qui a la même apparence et les mêmes parents ou autres cas différents avant la prochaine incarnation.  
+L’oubli à la réincarnation permet de savoir si tu fais le bien par calcul ou par la nature de ta conscience, évite de te rappeler les gens que tu n’aimes pas pour te réconcilier ou ne pas te venger, pour éviter le stress de ce que tu vas traverser ou ne pas modifier le plan.  
+On devrait laisser le plus de mémoire possible si on est assez évolué.  
+10  
+N’attendons pas le paradis, on peut en partie le créer en s’en rapprochant.  
+11  
+Goûter pour mieux choisir.  
+12  
+Hâtez-vous de prendre les bonnes décisions tout en étant patient.  
+13  
 Une bonne musique est une musique que l’on aime mais elle émet aussi des énergies plus ou moins bonnes. Ecouter des paroles négatives peut détériorer un peu ton avenir car cela influence la matrice, dommage quand la musique est bonne mais pas les paroles ou que ça parle de choses négative ou incite à la violence.
-Une bonne chanson dépend de bons musiciens, d’une bonne mélodie, d’un bon chanteur et d’une belle voix, les textes chantés en dernier.
-14
-Il faut préserver le passé pour préserver l'avenir.
-15
-Zénith des rêves accomplis égal persévérance. 
-16
-On peut faire une chose par envie, par devoir (obligation morale) ou par contrainte.
-17
-Nous ne serons jamais égaux sur terre, mais il faut restreindre l’écart.
-18
-Gueuler fait augmenter le stress et diminue la capacité de réfléchir et de reconnaître ses fautes sur soi comme sur l’autre.
-19
-Le beau est objectif avec une part de subjectivité.
-20
-Ce n’est pas parce qu’on ne parle pas que l’on ne sait pas.
-21
-La perfection, c’est le partage de l’amour.
-22
-La nature n’appartient à personne et appartient à tout le monde.
-23
-Pour vaincre la maladie, oublions-la en la traitant sereinement. La peur et la croyance en la maladie augmente la possibilité de l’avoir, plus on est parfait (bon organisme du corps, bon comportement et bon cadre et environnement de vie), moins on est malade. 
-La maladie n’est pas réelle tant qu’on ne lui facilite pas son arrivée, 
-c’est-à-dire que la potentialité de présence de maladie diminue quand on on prend les bonnes résolutions.
-24
-Il faut connaître au moins une fois pour ne pas regretter.
-25
-Que personne ne soit supérieur à soi ne veut pas dire que le reste est inférieur.
-26
-Si trop de gens profitent égoïstement du monde, le monde s’écroule.
-27
-La colère doit être canalisée à notre avantage.
-28
-On a tous les droits du moment que l’on n’atteint pas la liberté d’autrui ou le déséquilibre.
-29
-Il vaut mieux rester neutre que mentir ou donner un avis blessant inutile.
-30
-On peut ne pas tenir sa promesse à cause de soi, des autres, ou des circonstances.
-31
-Être seul permet de réfléchir mais réfléchir à plusieurs peut apporter des réponses.
-32
-Plaire aux autres et évolution
-Vouloir plaire à tout le monde, c’est aussi permettre à l’injuste de continuer.
-C’est laisser la bassesse, le mois bien continuer ou augmenter, car ils ne veulent pas véxer des gens, ou cela peut aussi être risqué et dangereux. La façon de dire les choses respectueusement est importante mais pas toujours sans problèmes même avec des arguments solides.
-Vouloir plaire aux autres ou prendre des risques pour l’évolution global, ou vouloir être soi-même, à chacun d’évaluer sa situation et faire ses choix.
-33
-Le chemin de la sagesse, c’est relier le cœur, la connaissance et la maîtrise de ses émotions, être en harmonie avec ses pensées, ses paroles et ses actes.
-34
-Le pouvoir doit appartenir aux sages.	
-35
-Une certitude n’est pas forcément la vérité.
-36
-Il y a la marginalité de la médiocrité mais aussi celle de l’excellence.
-37
-La honte n’est pas ce que les autres pensent de nous mais ce que nous exerçons de contraire à la sagesse.
-(Un homme qui perd contre une femme n’est pas de la honte, c’est la honte pour celui qui se moque de toi).
-38
-Il ne faut pas compter trop sur les autres mais avant tout sur soi.
-39
-Même le plus sage peut avoir des ennemis.
-40
-Celui qui pollue a l’esprit pollué.
-41
-Un bon jardin est un jardin qui ne rend pas esclave de son entretien.
-42
-Ne pas penser comme tout le monde ne veut pas dire penser dans l’erreur.
-43
-On peut prendre pour fou moins fou que soi.
-44
-Ne pas trouver les arguments convaincants ne veut pas dire avoir tort.
-45
-Il faut s’imposer par la raison, pas par la violence.
-46
-On ne crée pas son bonheur en détruisant celui des autres.
+Une bonne chanson dépend de bons musiciens, d’une bonne mélodie, d’un bon chanteur et d’une belle voix, les textes chantés en dernier.  
+14  
+Il faut préserver le passé pour préserver l'avenir.  
+15  
+Zénith des rêves accomplis égal persévérance.   
+16  
+On peut faire une chose par envie, par devoir (obligation morale) ou par contrainte.  
+17  
+Nous ne serons jamais égaux sur terre, mais il faut restreindre l’écart.  
+18  
+Gueuler fait augmenter le stress et diminue la capacité de réfléchir et de reconnaître ses fautes sur soi comme sur l’autre.  
+19  
+Le beau est objectif avec une part de subjectivité.  
+20  
+Ce n’est pas parce qu’on ne parle pas que l’on ne sait pas.  
+21  
+La perfection, c’est le partage de l’amour.  
+22  
+La nature n’appartient à personne et appartient à tout le monde.  
+23  
+Pour vaincre la maladie, oublions-la en la traitant sereinement. La peur et la croyance en la maladie augmente la possibilité de l’avoir, plus on est parfait (bon organisme du corps, bon comportement et bon cadre et environnement de vie), moins on est malade.   
+La maladie n’est pas réelle tant qu’on ne lui facilite pas son arrivée, c’est-à-dire que la potentialité de présence de maladie diminue quand on on prend les bonnes résolutions.  
+24  
+Il faut connaître au moins une fois pour ne pas regretter.  
+25  
+Que personne ne soit supérieur à soi ne veut pas dire que le reste est inférieur.  
+26  
+Si trop de gens profitent égoïstement du monde, le monde s’écroule.  
+27  
+La colère doit être canalisée à notre avantage.  
+28  
+On a tous les droits du moment que l’on n’atteint pas la liberté d’autrui ou le déséquilibre.  
+29  
+Il vaut mieux rester neutre que mentir ou donner un avis blessant inutile.  
+30  
+On peut ne pas tenir sa promesse à cause de soi, des autres, ou des circonstances.  
+31  
+Être seul permet de réfléchir mais réfléchir à plusieurs peut apporter des réponses.  
+32  
+Plaire aux autres et évolution  
+Vouloir plaire à tout le monde, c’est aussi permettre à l’injuste de continuer.  
+C’est laisser la bassesse, le mois bien continuer ou augmenter, car ils ne veulent pas véxer des gens, ou cela peut aussi être risqué et dangereux. La façon de dire les choses respectueusement est importante mais pas toujours sans problèmes même avec des arguments solides.  
+Vouloir plaire aux autres ou prendre des risques pour l’évolution global, ou vouloir être soi-même, à chacun d’évaluer sa situation et faire ses choix.  
+33  
+Le chemin de la sagesse, c’est relier le cœur, la connaissance et la maîtrise de ses émotions, être en harmonie avec ses pensées, ses paroles et ses actes.  
+34  
+Le pouvoir doit appartenir aux sages.  
+35  
+Une certitude n’est pas forcément la vérité.  
+36  
+Il y a la marginalité de la médiocrité mais aussi celle de l’excellence.  
+37  
+La honte n’est pas ce que les autres pensent de nous mais ce que nous exerçons de contraire à la sagesse.  
+(Un homme qui perd contre une femme n’est pas de la honte, c’est la honte pour celui qui se moque de toi).  
+38  
+Il ne faut pas compter trop sur les autres mais avant tout sur soi.  
+39  
+Même le plus sage peut avoir des ennemis.  
+40  
+Celui qui pollue a l’esprit pollué.  
+41  
+Un bon jardin est un jardin qui ne rend pas esclave de son entretien.  
+42  
+Ne pas penser comme tout le monde ne veut pas dire penser dans l’erreur.  
+43  
+On peut prendre pour fou moins fou que soi.  
+44  
+Ne pas trouver les arguments convaincants ne veut pas dire avoir tort.  
+45  
+Il faut s’imposer par la raison, pas par la violence.  
+46  
+On ne crée pas son bonheur en détruisant celui des autres.  
 47
-Nous sommes tous ignorants à un degré plus ou moins important.
-48
-Les gens de bas niveau se moquent de la différence, rester neutre est source de paix, être différent attire les ennuis des moins évolués.
-49
-Tu peux avoir raison sans que quelqu’un te croie un jour.
-50
-À chaque chute d’eau sa mélodie.
+Nous sommes tous ignorants à un degré plus ou moins important.  
+48  
+Les gens de bas niveau se moquent de la différence, rester neutre est source de paix, être différent attire les ennuis des moins évolués.  
+49  
+Tu peux avoir raison sans que quelqu’un te croie un jour.  
+50  
+À chaque chute d’eau sa mélodie.  
 
 Belles chutes d’eau
 
