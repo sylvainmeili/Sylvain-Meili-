@@ -1733,6 +1733,724 @@ Un petit pavillon de quatre colonnes rouges au toit d’or arqué de quatre face
 
 Sylvain Meili (2014 : n°8)
 
+384
+Il est injuste d’empêcher ou de détruire une chose bonne ou positive  à cause de la condamnation du créateur, d’un collègue ou d’une victime.
+Il est injuste de bloquer quelqu’un sans dire pourquoi quand le droit de savoir est légitime, on doir pouvoir citer les autres quand cela est bénéfique pour expliquer et pour les autres.
+385
+Il faut toujours avoir un mouchoir dans sa poche.
+386
+Il y a ceux qui font trop de bruit la nuit et ceux qui se plaignent pour seulement un peu de bruit le jour.
+Pour dire des choses déplaisantes à ses voisins d’immeubles à cause du bruit ; quand on n’ose pas, d’abord envoyer un mot dans la boîte aux lettres ou parler directement au lieu d’appeler la police.
+387
+Dans la vie plusieurs solutions peuvent avoir la même valeur.
+388
+L’amour est le commencement et l’infini, la connaissance est l’outil, l’expérimentation et le plaisir dans le mouvement est le but.
+389
+Si quelqu’un disait toute la vérité que l’on ne sait pas encore à l’humanité, beaucoup le prendrait pour un fou.
+390
+Si on ne dit pas certaines bonnes actions, on ne peut pas montrer l’exemple aux autres pour les convaincre d’améliorer le monde.
+391
+Changer soi-même, c’est déjà changer un peu le monde.
+392
+On peut avoir un visage de bonne humeur mais être énervé de l’intérieur.
+393
+Le mieux n’est pas d’être dans le plus beau des villages mais d’être dans le village dans le plus beau paysage.
+394
+Pour vaincre la timidité de ton enfant, donne-lui une récompense pour motiver ses efforts.
+395
+Pour être moins timide, cherche en toi des qualités à développer pour te sentir plus fort.
+396
+Les proverbes sont comme des perles et les meilleures à enfiler te donneront un collier pour te magnifier.
+397
+Celui qui sert le mal est tôt ou tard trahit par ses semblables.
+398
+Dès que l’idiot n’est pas d’accord, il te traite d’idiot mais ce n’est pas parce que tu ne penses pas pareil que tu es idiot, alors il s’énerve en te disant que tu dis des conneries alors que tu parles calmement et respectueusement.
+Le programmé te rejette la faute alors qu’il fait pareil sur des choses comparables.
+Exemple : quelqu’un mets des critères de taille pour être en couple, l’autre lui dit, et si je mets des critères de poids, la réponse est que tu est grossophobe, une mauvaise personne alors que l’autre fait pareil avec la taille en disant que c’est moins pire, sauf que la taille est fixe mais un gros peut maigrir sauf les extrêmes gros qui peuvent avoir un excès de peau même en ayant perdu toute leur graisses.
+Même en leur expliquant, ils continuent leur hypocrisie ou dissonance cognitive, c’est le syndrome d’une conscience de ruche.
+On a le droit d’avoir des goûts et des préférences, si on ne veut pas d’une certaine catégorie physique, c’est notre liberté.
+399
+Je veux le meilleur de la nature dans mon jardin et la meilleure technologie dans ma maison si elle est recyclable.
+400
+Être trop nombreux, c’est moins d’espace pour chacun et plus de destruction de la nature.
+401
+Le savoir est fait pour être partagé sauf que certaines technologies ne doivent pas être données à des gens dangereux.
+402
+Les proverbes c’est comme la peinture, soit ça ressemble à quelque chose, soit ça ne ressemble à rien comme la peinture abstraite.
+403
+Tu écris sur l’arbre et l’arbre s’écrie de dégoûts.
+404
+Plante un épicéa au milieu d’un pré, surtout ne touche à rien pendant cent ans et plus, tu auras le plus bel arbre à grimper.
+Plantez-le dans toutes les communes de France.
+Chaque village doit avoir son épicéa à gravir, battez des records et soyez le village avec le plus âgé de ces vénérables d’acension. 
+405
+Le mal t’oblige à te coincer dans le vice pour que quand tu retournes dans le bien tu ne puisses pas le dénoncer sans être menacé par le chantage de tes propres fautes.
+406
+Ne rejette pas comme mensonge la vérité que tu ne veux pas admettre, si tu n’as pas la preuve que ce qu’il dit est faux alors cherche la vérité et un jour elle se révèlera peut-être à toi.
+407
+La place des morts ne doit pas prendre la place sur la vie, tu dois marquer la vie de tes bons actes et non de la grandeur de ta tombe. Je préfère être une glorieuse personne et ne pas avoir de sépulture car cela prend de la place pour rien sauf si la tombe a un intérêt archéologique et de sauvegarde culturelle.
+Si on veut faire honneur aux morts, il faut mettre sa photo de lui jeune, pas vieux ou alors les deux, car sa vrai apparence est jeune surtout qu’il  va rajeunir dans l’au-delà.
+Mettre une tombe à l’endroit de la mort de la personne défigure, artificialise et mite la nature, il y a des cimetières pour ça.
+408
+Quand tu pries le mort sur sa tombe, sache qu’il n’habite pas ici.
+409
+Je ne veux pas tuer un arbre pour faire vivre le cercueil de la tombe d’un mort. 
+410
+Le plus tranquille c’est d’être connu sans être reconnu.
+411
+Le risque du succès, c’est de dérouler le tapis rouge à son excès d’égo.
+412
+Ecrire sur les arbres, c’est l’égocentrisme, la bêtise et l’irrespect.
+413
+Pour que tes souhaits se réalisent plus facilement, n’utilises-pas la négation et croit à ton intention avec émotion en disant que tu l’as déjà dans le présent en remerciant dieu avec un état d’être dans la paix. Ne jamais dire je veux car vouloir n’est pas avoir ou être.
+Exemple : si tu ne veux pas travailler et avoir la paix avec les autres, il faut préciser en plus de vouloir être en bonne santé car attention si tu penses qu’il faudrait être malade pour ne pas travailler, quand on demande des choses à l’univers il peut passer par des choses détournées et négatives qui amènent à la demande donc il faut sécuriser sa demande avec d’autres souhaits.
+Exemple : je veux qu’on s’occupe de moi, demander aussi être en bonne santé car sinon il se peut qu’on attrape une maladie pour qu’on s’occupe de soi.
+Dire je vais de mieux en mieux à chaque moment, chaque jour ou chaque instant pour sa santé.
+Pour prier, on peut le faire partout, ne pas obliger d’aller à l’église, on est libre, et ça marche autant. (Arrêter de détruire les églises parce que trop cher à réparer, car une solution peut venir des dizaines d’années après, il vaut mieux un chef d’œuvre en ruine que une nouvelle église ridicule).
+414
+Ce que tu ne peux pas faire dans la vie, fais-le dans les jeux vidéo sans corrompre ta conscience dans le mal réel.
+415
+Un beau poème est un pétale dans le vent.
+L’avenir dira où l’histoire l’emmènera.
+416
+C’est en creusant la vérité enfouie que l’on atteint des sommets.
+417
+Le chemin n’est pas vivre avec la nature ou avec la technologie, c’est de choisir ce que l’on désire avec le moins possible de conséquences négatives car il suffit de trouver les technologies qui pourront tout recycler mais pour ces deux choses là il faut passer par la paix totale.
+418
+Quand on n’a plus rien à se dire, il faut changer d’activité.
+419
+Lit
+Quand on dort à deux il est meilleur d’avoir deux lits côte à côte plutôt qu’un seul grand lit ensemble.
+Ne pas prendre un sommier à ras du sol car il développera de la moisissure, toujours surélever du sol,  mettre un carton sous le matelas diminuera plus l’humidité et la moisissure.
+420
+Nous devons tous contribuer à la société sauf si l’on vit en totale autarcie.
+421
+La mémoires des lieux ou endroits où des personnes on fait ou dit des choses peuvent influencer le comportement car on peut penser à qelquechose sans savoir que cela vient du lieu. 
+J’ai eu la même réaction une 2ème fois sur le même lieu malgrès que je l’ai dit à pleins d’endroits différents, ce genre de chose est arrivé 3 fois.
+Quand tu tagues un lieu, écris à la craie car ça s’efface à l’eau et écris des choses intelligentes, ça sera plus respectueux.
+422
+L’humour se nourrit des imperfections.
+423
+Le mal se nourrit de l’ignorance pour se répandre.
+424
+On peut être courageux pour certaines tâches et un lâche pour d’autres.
+425
+Pourquoi se maquiller pour un concours de beauté si c’est pour juger une fausse beauté ?
+426
+Il y a l’énervé méchant, l’énervé idiot et l’énervé de l’injustice.
+On peut être énervé à un contexte, pas parce qu’on est moins évolué mais par accumulation d’emmerdements alors que celui qui subit le même contexte reste plus calme mais a subit moins d’accumulations de négativité dans sa vie.
+Dire que l’on est plus évolué n’est pas objectif sans connaître les circonstances.
+Celui qui prouve qu’un système ne marche pas est l’énervé de l’injustice, pas les deux autres, on prouve par évolution pas par manque d’évolution avec des arguments d’ignorants.
+427
+Tu peux provoquer quelqu’un dans sa psychologie pour qu’il te réponde et pour qu’il croit gagner de ses arguments mais ta prochaine attaque le mettra KO maintenant ou dans le futur.
+428
+Il n’est pas imbu de sa personne de vouloir devenir l’égal d’un autre aussi grand soit-il.
+429
+Il faut enseigner les meilleures réflexions, proverbes et devises le plus tôt possible.
+Être enfant n’est pas être innocent car la bêtise commence tôt.
+Dès l’école primaire, on devrait faire des tests avec des questions de philosophie avec des réponses à cocher, plus une ligne ou deux si il a envie de répondre autre chose en plus.
+Si face à une situation, quelqu’un est susceptible de se venger en torturant ou blesser physiquement, il faudra faire un cour de moral sur le sujet à la classe.
+Il faut repérer très tôt les mauvaises morales pour les corriger, en argumentant et en donnant les bonnes solutions.
+Plus tard, dés le début du couple, il faut faire un test psychologique.
+Si tu me surprends en revenant chez moi avec un autre amant, quel sera ta réaction, si il veut le punir par de la violence physique, surtout à partir de l’équivalent d’un coup de poing, alors tu es avec un méchant car peut-être que l’amant n’était pas au courant qu’elle avait déjà quelqu’un, et pourquoi punir plus l’amant que la femme alors qu’ils sont fautif à la même équivalence ou plus la femme si elle n’a pas dit sa situation à son amant.
+On peut comprendre d’être énervé et en colère mail il ne faut pas faire d’attaque physique, on peut être déçu, cela n’est pas bien l’hypocrisie mais sachez que le corps appartient à sa conscience donc on fait ce qu’on veut avec, il faut bien mettre au clair les quelques règles de base entre vous pour éviter plus de problèmes.
+Une autre question : si je te quitte, que pourrai tu me faire, savoir à qui on a à faire avant que ça dure plus longtemps.
+Cela peut éviter plus de se faire piéger par une personne dangereuse.
+430
+Battre physiquement quelqu’un qui t’insulte n’est pas être fort mentalement, tu dois lui montrer la morale sans montrer que tu es affecté.
+431
+À l’héritage il en faut un qui hérite de la maison mais il doit partager avec ses frères ou sœurs pour qu’ils profitent aussi, ainsi la maison n’est pas vendue et chacun a sa clef.
+432
+Ne laisse pas un livre ou un jeu à l’air libre ou il finira par jaunir.
+433
+Ne détruis pas les possessions de ton ennemi pour te venger car tu pollues la planète et gaspilles du positif.
+434
+Apprends à bien ranger où tu finiras par abîmer.
+435
+Essaye de te coiffer tout seul avant d’aller payer un coiffeur.
+436
+L’imbécile veut répandre sa doctrine alors qu’il n’a pas vérifié avant tout ce qu’il se dit ailleurs.
+437
+L’humain du troupeau reste dans son enclos. L’homme qui s’éveille creuse, gravit les montagnes et s’élève dan le ciel.
+438
+Il y a des personnes à qui tu dis de ne pas faire une mauvaise chose et elles font exprès d’enfreindre la raison. Il faut donc trouver la meilleure façon de dire les choses pour ne pas donner envie à l’idiot de faire sa bêtise.
+439
+Il y a cinq types de village : au milieu des champs, des prairies, des forêts, des montagnes ou le mélange d’un peu tout ça.
+440
+Un arbre s’embellit en vieillissant, un humain s’enlaidit.
+441
+Quand tu n’as rien, tu t’attaches au peu, quand tu es possessif tu t’attaches trop.
+442
+Aux gens malintentionnés, ne leur apprend rien qu’ils pourraient utiliser contre toi.
+443
+Le mal et le bien sont présent en chacun de nous.
+444
+Il vaut mieux être l’idiot des cons que l’idiot des sages.
+445
+Chaque être contribue à l’évolution car tu peux t’exercer sur son évolution.
+446
+Quand la paix a lieu, on peut rencontrer plus de gens. Quand la paix est planétaire, on peut rencontrer plus d’humanoïdes.
+447
+Contrôler son égo, c’est s’aimer tout en reconnaissant toutes les conneries que l’on peut faire.
+448
+Nous sommes tous responsables un peu de tout car nous avons une influence sur tout à commencer par le simple fait d’y penser, d’être près ou loin.
+449
+À force de vouloir essayer de convaincre, il faut se contenter d’éclairer.
+450
+Le jour où le monde sera juste, c’est quand la drague entre les hommes et les femmes sera équilibrée.
+
+Empereur pour princesse ?
+
+Il faut être similaire,
+ou complémentaire.
+Comme la belle grimpante fleurie,
+qui s’enlace à son pin de nuages d’aiguilles.
+Il faut descendre de sa branche et de ses songes,
+pour que le rêve ne soit pas un mensonge.
+Capter les étoiles,
+et envoyer les lucioles.
+Tant d’années d’efforts, 
+qui laissent attendre le réconfort.
+J’ai la beauté, du talent, et de la gentillesse,
+elles sont aveuglées et à côté passent sans cesse.
+Le nénuphar reste dans sa boue,
+mais fleurit encore à la portée du vent.
+Pourtant généreux en expériences,
+elles laissent passer leurs chances.
+Jugeant trop vite,
+en laissant le trésor qui s’invite.
+Des filles trop gâtées,
+attendent que l’on vienne pêcher.
+Elles font trop les fières,
+pour se laisser plaire.
+Presque toujours le même camp qui avance,
+elles ont de la chance.
+Quand on n’a pas besoin de draguer,
+on peut faire plus de choses à côté.
+Pour quand l’égalité,
+mais quand ça les arrange, elles restent attachées.
+Trouvant des défauts qui n’en sont pas, 
+malgré tous mes pas.
+Certaines faisant un complexe d’infériorité,
+alors que je veux pas être en supériorité mais admiré.
+L’amour n’est pas d’être le meilleur,
+c’est d’être dans le bonheur.
+D’autres sont attirées, 
+mais restent à l’appel coincées.
+Pour un compliment dans le respect,
+elles peuvent croire qu’on les prenne pour un objet.
+À cause de tous les mauvais hommes,
+on croit que je suis un mauvais bonhomme.
+Considéré comme pas sérieux, à paraître  trop beau,
+alors qu’il ferait un bon cadeau.
+Trop de talents affichés sur internet,
+Me prend pour une blague et me rejette.
+Qui ne sert à rien, trop des fantaisies, 
+oui, pour ces abrutis.
+Encore une hypocrite,
+une autre chance qui se délite.
+À cause des mauvais avis des autres clampins,
+se laissant influencer et passant à côté d’un bon chemin.
+Pour les apparences, on fait la difficile,
+même s’il plaît pour ne pas se dire facile.
+Trop occupée à travailler,
+trop loin ou qui va déménager.
+Pas assez riche à son goût, 
+ici ce qui compte surtout, c’est les sous.
+Quand il n’y a pas assez de beauté,
+on reste caché.
+La plus dévouée qui m’aimait en messages est encore une menteuse,
+une briseuse.
+Même quand on a un bon envol,
+Cette fois, ce n’est pas assez de quota de paroles.
+Qui s’en va sans rien dire, sans excuses,
+la lâcheté fuse.
+Un problème informatique,
+fais un jour fuir une asiatique.
+Elles ne font pas attention aux gens,
+et leurs font perdre beaucoup de temps.
+Encore une égocentrique capricieuse qui s’en va, 
+que je n’aurais pas.
+Avec celle-là, elle te trouve trop gentil,
+on ne laisse pas faire ses preuves et l’espoir s’évanoui.
+Toujours une excuse, trop rapide ou trop lent, 
+ça m’est vraiment fatiguant.
+Même en étant premier en talents,
+on fait de moi un absent.
+Ce n’est pas moi le problème, 
+leurs mentalités me fait de la peine.
+On se fait arnaquer,
+encore du mauvais temps passé.
+Avec les mêmes numéros (33 et 69) de téléphone, 
+et pleins de points communs, l’abandon encore sonne.
+Je parle à des programmes,
+à des basses âmes.
+Celle là s’est fait piquer, 
+elle est contaminée.
+Je prends les miettes dans mes rêves, parfois illusion, 
+ou parfois une ou plusieurs vraies femmes d’une autre dimension. 
+Dans l’astral, elles sont plus faciles,
+ici c’est très difficile. 
+Beaucoup de moujoncs,
+qui font stagner le monde en rond.
+Le monde est à l’envers,
+et m’a fait disloquer des nerfs.
+Des mauvaises circonstances de la vie,
+ont fait attendre le nid.
+Apprécié à l’école mais trop loin,
+occasions ratés, crispé, maths bas, moments inopportuns.
+Boutons, rhumes, complot administratif permis de voiture…,
+pollution de la nature, vie d’usures.
+1 an sans argent,
+stagnation du plan.
+Santé détériorée,
+sport arrêté. 
+Décennie de douleurs chroniques,
+à cause de théories et de bornés d’attaques qui créent la panique.
+Sans endroits d’accoutumances,
+beaucoup moins de chances.
+Puis l’énergie revient,
+mais est-ce qu’elle vient.
+Je suis de plus en plus fort,
+comme de l’or.
+Je suis le beau au bois dormant,
+qui veut être sauvé dans son plan.
+Ce jour sera où la princesse sera percée,
+par la clarté des rayons.
+Où le grand nuage doré,
+captera sa brume d’argent métamorphosée.
+Elle est où la princesse, 
+qui saura reconnaître ma sagesse ?
+
+Sylvain Meili (2020 : n°9)
+
+451
+La chute d’eau tombe mais s’élève en beauté.
+452
+Les gens sont sympas quand tu penses comme eux. Quand tu sors de leur barrière de conscience, pour certains tu es l’idiot pour eux même si tu as raison.
+453
+La famille n’a pas à imposer les cadeaux qu’ils veulent faire à ton enfant si tu veux décider.
+454
+L’argument que l’idiot utilisera contre toi pour te décrédibiliser est que tu dis des conneries, c’est pour ça que tu n’as pas de travail et que tu n’es pas en couple alors que tu peux être plus sage que la plupart des couples qui ont un salaire.
+455
+On peut être plus utile à ne pas travailler pour un salaire facilement remplaçable par un autre qui ne fait rien si on fait des choses utiles pour la société qu’aucune personne n’aurait fait à notre place. 
+456
+Se sentir bien dans sa vie n’empêche pas de dire plein de conneries et on peut se sentir mal et être très évolué car le monde est injuste.
+457
+Certains jouets sont tellement beaux que l’on peut considérer non plus comme des jouets mais comme des œuvres d’art à admirer.
+458
+Dessin
+Commencer pour l’enfant de dessiner avec des crayons à papier de couleurs est mieux que les feutres car ils sont moins polluants et durent beaucoup plus longtemps. 
+Un crayon dure au minimum 10 à 50 fois plus longtemps qu’un feutre.
+Certaines personnes savent faire des dessins presque photographiques avec ces crayons là en superposant les couches contrairement au feutre lourd d’encre et imprécis.
+Cela évite les graffitis des enfants de bas âge sur les murs.
+Tu peux attacher un dessin de ton enfant au mur pour lui faire plaisir mais aussi ne pas l’accrocher car il est très moche, les deux visions se valent.
+459
+Parfois on s’engueule sur deux idées qui ont la même valeur, la bonne idée n’est pas le problème, le problème est de s’engueuler.
+460
+On peut faire plaisir en disant un mensonge ou blesser utilement en disant une vérité, la solution est le résultat de circonstances.
+461
+La meilleure vengeance est de devenir le meilleur philosophe.
+On se venge par son destin quand on prouve aux autres qu’ils avaient tort d’avoir dit des bêtises sur nous. La vengeance par la réussite et la par la vérité sont les seules bonnes vengeances.
+462
+On peut toujours essayer des choses qui paraissent impossibles dans le présent et qui pourront être possibles dans le futur.
+463
+Seulement une partie de son savoir sert à quelque chose donc c’est préférable de ne pas apprendre des choses inutiles pour des choses plus utiles.
+464
+Quand deux idées s’opposent mais se valent, soit l’un suit l’idée de l’autre, soit on tire à pile ou face ou soit on annule tout.
+465
+L’idiot fait d’une petite chose toute une dramaturgie.
+466
+Merci aux idiots de m’avoir inspiré tant de proverbes mais ce n’est pas une raison pour que la bêtise continue.
+467
+L’idiot juge ta vie seulement sur une petite partie de ce que tu veux bien lui dire sur des idées fausses.
+468
+On est parfois obligé de raconter sa vie pour faire taire les mensonges sur soi.
+469
+Les plus forts négatifs veulent imposer leurs lois aux plus faibles, les seules lois à imposer sont les lois de la raison qui donnent le meilleur futur.
+470
+Il y a des personnalités plus sociables et des personnalités plus solitaires qui aiment la tranquillité et s’intéressent moins aux vies personnelles des autres mais veulent améliorer le monde. Quand on est différent, on a moins une personnalité passe partout.
+471
+Ne pas s’entraider assez, c’est laisser germer le malheur.
+472
+L’idiot râle quand les toilettes sont occupées et ça énerve la personne à l’intérieur, on ne dérange pas une personne aux toilettes sauf si c’est justifié.
+473
+On peut ne pas s’intéresser à la vie personnelle des autres mais faire beaucoup plus pour la planète que les gens qui s’intéressent à parler avec beaucoup de personnes.
+474
+Accepter dans le renoncement à exiger que l’autre pense plus à soi ou à un autre, c’est sa liberté.
+Dire que l’on parle trop de soi, alors tu peux aussi parler de ta vie sans que j’ai besoin de te le demander. On peut faire des efforts chacun dans la direction de l’autre, on doit aussi respecter le tempérament, certains aiment poser plus de questions, d’autres préfèrent qu’ils racontent leur vie naturellement.
+475
+S’énerver du refus d’une demande revient à transformer cette demande en ordre.
+476
+C’est en reliant les points les plus éloignés que le dessin de la vérité devient de plus en plus clair.
+477
+Un enfant doit participer aux tâches de la maison, s’il refuse, il faut le convaincre que si l’on refusait de l’aider il serait malheureux et que lui aussi il doit aider ses parents pour le bonheur de tous.
+478
+Le sage regarde loin dans l’avenir et s’intéresse à beaucoup de choses.
+Le pas (pied) sage ou le pas (pas être) sage : ça dépend des fois et du passage.
+Sage ou pas sage, la différence est le passage.
+479
+Occuper son temps rend plus heureux.
+480
+On applique à soi-même les rituels de la société par habitude ou pour ne pas se faire embêter et à devoir s’expliquer à chaque fois.
+481
+Les méchants ou injustices obligent à restreindre certaines libertés pour pouvoir atténuer plus de problèmes, il faut trouver l’équilibre en fonction des circonstances.
+Plus de sagesse c’est plus de libertés mais quand le mal est présent, c’est le plus fort qui se donne plus de libertés en limitant celle des autres.
+Plus il y a de sagesse moins il y a besoin de lois supplémentaires.
+482
+La liberté c’est pouvoir agir dans le bien sans être embêté par le mal.
+La sagesse est d’avoir un maximum de libertés sans nuire.
+Garder sa pureté, c’est faire ce qui nous rend heureux, pas se restreindre sous couvert d’une pureté illusoire.
+483
+Être très beau ou belle et ne pas avoir d’enfant, c’est mettre ses gênes à la poubelle.
+484
+Pour faire taire une vérité, le mal crée une fausse vérité parallèle pour discréditer la vraie vérité.
+485
+Parfois les proverbes paraissent beaux alors les gens trouvent ça bien même si c’est un mensonge.
+486
+Être soi-même, c’est ne pas obéir aux envies des autres.
+487
+Une personne qui a commis des fautes ne doit pas être moins respectée que les autres car cela augmente la négativité et n’a pas d’effet positif mais on peut lui demander s’il a compris sa faute et si non, on peut lui faire la morale.
+488
+Montrer la vérité
+La subtilité consiste à montrer aux gens qu’ils ont tord sans leur dire.
+Si on dit à quelqu’un qu’il a fait ou qu’il a dit des conneries ou a tord, même avec la condition d’avoir la preuve direct de raison et d’argumenter, il risque d’être contrarié, il vaut mieux supposer à propos de lui que d’affirmer pour ne pas avoir le mauvais rôle.
+Il est plus constructif de dire « je ne suis pas d’accord ou je ne crois pas à ça » sinon le mot connerie peut être prit pour une insulte et créer un conflit. On peut dire « je préfère faire comme ça » aussi « j’ai vu ça ou qu’il disait ça ici » pour le mettre sur le bon chemin sans faire croire que c’est notre opinion pour ne pas qu’il nous prend pour un con. Il faut essayer de trouver une chose qu’il a dite en disant que c’est bien, que l’on est d’accord, merci de m’avoir fait penser à cet argument, pour être plus sûr d’apaiser le dialogue.
+Ce n’est pas parce que l’on dit que tu as tort qu’on se croît supérieur, c’est donner son avis sur un sujet mais il faut argumenter.
+489
+L’argent dont tu ne te serviras jamais, donne-le pour améliorer la planète.
+490
+On peut aimer quelqu’un mais idolâtrer une personne c’est enchaîner son esprit. 
+491
+Il y a le mouton bien intégré à la société et le marginal de l’excellence qui fait évoluer les consciences.
+492
+On n’encourage pas quelqu’un à prendre des risques dangereux pour sa vie, ça doit seulement venir de lui.
+493
+Le premier pas de la pensée est la conscience.
+Chaque esprit a la même valeur, c’est seulement l’éveil de la conscience qui est différent et son rôle suivant la situation.
+494
+C’est plus glorieux de réussir à faire plaisir à quelqu’un sans dépenser d’argent en utilisant son talent qu’en dépensant de l’argent surtout si c’est de l’argent gagné facilement.
+495
+On peut aimer les objets mais il ne faut pas être esclave de leurs possessions.
+496 
+Pour tester sa sagesse, il faut se confronter au monde de la médiocrité.
+497
+Fait honneur à ton mérite (pour continuer à mériter). 
+Fait mérite à ton honneur (pour mériter ton honneur).
+L’important n’est pas l’honneur, c’est de prendre un bon chemin.
+L’honneur n’est pas d’obéir à des traditions illogiques, 0traditions illogiques, il n y a pas de perte d’honneur à vouloir changer des activités programmées par un groupe de dictateur (ex : les parents qui choisissent en obligeant la personne à marier, notre corps nous appartient alors on peut s’en aller quand on veut au lieu de nous obliger).
+Hiérarchie
+L’obéissance à une personne plus haute en hiérarchie doit être justifiée par le mérite de ses compétences qui contribue à la bonne coordination du groupe (exemple : commandant de vaisseau ou enseignant), les autres doivent pouvoir avoir le droit à la critique au moment opportun (à définir selon les règles et circonstances avec la fonction ou la mission) pour laisser un bon déroulement efficace, il y a des cas d’urgence où l’on n’a pas assez de temps au débat mais une suggestion utile rapide peut aider.
+La juste cause est supérieure à l’honneur.
+498
+Le but de la vie : se faire plaisir, apprendre, sans nuire aux autres ou le moins possible.
+499
+Intéresse-toi à toutes les couleurs de la vie pour atteindre la lumière.
+500
+La plus grande victoire contre le mal est qu’il rejoigne la lumière.
+501
+Être vers la sagesse c’est toujours chercher la bêtise en soi et l’expulser.
+502
+Le mensonge peut être utilisé pour atteindre un but : faire le mal, pour se protéger des attaques négatives des autres, pour ne pas inquiéter, pour empêcher quelqu’un de faire une bêtise ou pour être tranquille.
+503
+Il y a les mensonges du service à soi et ceux du service aux autres.
+504
+On ne se moque pas des autres sans leurs consentements.
+505
+Apprends beaucoup de choses à ton enfant pour lui donner plus de libertés sans qu’il profite trop de toi, de son mérite plus de libertés.
+Plus il y a de libertés différentes dans l’harmonie, l’équilibre et la diversité, plus la société est évolué.
+506
+Ne rends pas malheureux un enfant qui a de mauvaises notes ou il ne pourra pas s’améliorer, on doit laisser un minimum de plaisirs pour mieux travailler.
+507
+Ne pas se réjouir du malheur de son ennemi car c’est du gâchis.
+508
+Face à l’emmerdeur, sois en paix face à l’épreuve qui est une occasion d’adopter le meilleur comportement, aie de la compassion pour cet ignorant qui récoltera son karma.
+Même le grand chef du mal qui croît gagner, cela sera un retour de mal vers toi pour ton futur car le mal ne peut pas gagner toujours et en plus une planète trop négative finit pas se détruire par les mauvaises vibrations (catastrophes planétaires et axes de rotation autour de son soleil qui finira par ne plus tenir si la négativité est très forte).
+La différence de la vibration globale d’une planète lors d’un cycle de milliers d’années où elle passe dans une zone de la galaxie ou la vibration est beaucoups plus haute, la trop grande différence de vibration crée des catastrophes planétaires.
+509
+L’imbécile affirme une critique sur ce que tu ne dis pas avant de demander et de savoir.
+510
+Il faut se méfier des gens sympas qui t’influencent dans la bêtise ou dans un piège. La flatterie peut être utilisé pour manipuler, comploter.
+511
+À force de pardonner à un idiot qui recommence, évite-le.
+512
+Réussir sa vie sans vivre assez, c’est prendre la route en ratant les petits chemins.
+513
+Augmenter son énergie c’est bouger, dormir, manger, bonheur.
+514
+La vérité se voile pour s’adapter à la société médiocre.
+515
+Facile de dire que c’est facile quand on n’a pas eu le mérite d’y penser.
+516
+Une croissance trop rapide engendre toujours plus de déchets écologiques, sociétaux et artistiques.
+517
+L’espoir meurt dans son abandon et dans sa réalisation.
+518
+Je possède ce que les autres partagent.
+519
+Il est bien d’être fort non pas pour se sentir supérieur aux autres mais surtout pour ne pas se sentir inférieur aux autres.
+520
+Il faut garder l’esprit d’enfant tout en ayant la sagesse des anciens.
+521
+L’amour est une fleur aux pétales infinis.
+
+La victoire retrouvée
+
+Sur sa conscience divine,
+il est redescendu avec une belle copine.
+Pour retrouver son destin,
+pour le plaisir de vivre au réveil de tous les matins.
+De ses plus belles tenues, elle est souvent venue,
+pour décorer l’idéal du bonheur revenu.
+De ses plus belles coiffures,
+elle dévoile sa beauté la plus pure.
+Un concours de compliments se joue pour sublimer la flamme,
+de cet homme et de cette femme.
+Tous les deux, un côté enfantin et joueur,
+et un côté de la sagesse du cœur.
+Ensemble toujours prêt à goûter à toutes les saveurs,
+ce magnifique duo d’acteur.
+De toutes les couleurs, ils comblent la lumière de la vie,
+pour dessiner le plus délicieux des paradis.
+À la venue du soir, la déesse se glisse dans les draps de douceur,
+aux côtés de son dieu, son enchanteur.
+
+Sylvain Meili (2020 : n°10)
+
+522
+Beau ruisseau si tu es clair et sinueux.
+523
+Il faut associer le meilleur du monde pour trouver la voie.
+524
+Même sans rien faire, être dans la joie élève le monde ou le maintient.
+525
+Le bonheur ne se mérite pas, c’est un droit universel
+526
+Agir bien, c’est trouver l’équilibre.
+527
+Avoir des enfants est une façon de se rattacher à sa jeunesse perdue.
+528
+Le message d’un proverbe est plus important que la manière de le dire.
+529
+Un proverbe peut aller à l’essentiel ou être poétique.
+530
+Pour rester jeune après 20 ans, je fêterais toujours mon anniversaire en pensant que je suis jeune sans mettre un âge moins beau.
+531
+La critique bonne ou mauvaise sert à trouver encore plus des proverbes.
+532
+Pour rester jeune, ne pense pas comme un vieux.
+533
+On peut garder un peu de bêtise pour rire si nous sommes conscients de la reconnaitre.
+534
+Certaines peurs et timidités peuvent empêcher de faire n’importe quoi.
+Ce n’est pas parce qu’on a peur que quelque chose est forcément mal, on peut avoir peur parce qu’on est pas habitué même si on a envie.
+535
+Intelligence
+L’intelligence dépend du potentiel de capacité et de la personnalité nourris par les circonstances pour s’adapter à prendre le meilleur chemin d’évolution et contribuer à la richesse des existences.
+Le plus éveillé est les connaissances et les méthodes. Celui qui sait tout en répétant en haut de l'univers, mais qui n’a pas le mérite de la méthode.
+Il y’en a certains qui sont plus près de la vérité pas forcément parce qu’ils sont plus intelligents que d’autres mais parce qu’ils ont été entouré des bonnes personnes ou des bons parents (éducation).
+L’intelligence dépend de l’espèce (animal, humain), ses réincarnations (on peut se faire réduire l’intelligence dans un domaine en s’incarnant pour qu’on ne refasse pas la même chose et améliorer une autre compétence ou pour une mission), l’éducation.
+On peut être fort à dire des choses de pleins de manières différentes mais pour une utilité faible.
+L’optimisation et l’indépendance d’esprit avec un QI moindre peuvent battre en philosophie les plus intelligents au QI supérieur mais une personnalité moins efficace.
+Celui qui manque d’intelligence, de connaissances, de connexion à la source et de télépathie apprendra plus difficilement en souffrant en partie car sa réflexion n’a pas été assez haute. L’expérimentation à défaut de comprendre par la lecture est la voie d’apprentissage, à moins qu’on invente un système de téléchargement de sagesse. La lecture n’enseigne pas tout le ressenti car il faut le vivre pour comprendre plus physiquement et émotionnellement.
+536
+Permettre la critique, c’est permettre l’évolution.
+La mauvaise critique est énervante quand on te sous-estime.
+L’évolution, c’est améliorer, parler de ce qui ne va pas et être reconnaissant de ce qui va.
+537
+Ne pas obliger à travailler debout quand on peut faire aussi bien assis.
+538
+Pour respecter la nature, utilise surtout des matériaux naturels.
+539
+La richesse d’une personne ne doit pas dépasser une certaine limite sinon elle prend trop aux autres, le reste de l’argent doit être immédiatement disponible pour les bonnes actions sociétales.
+540
+On doit se marier par le cœur et pas forcément par un contrat.
+541
+On peut pardonner si ça peut aider quelqu’un à s’améliorer ou simplement ne plus y penser.
+542
+La mauvaise réputation peut atteindre une mauvaise personne et aussi une bonne personne, exactement pareille que pour la bonne réputation car il peut y avoir des complots.
+543
+On veut être gentil mais quand on se fait avoir on en a moins envie.
+544
+Si tout était parfait, il n’y aurait qu’une seule probabilité de ligne de temps, tout qui va toujours vers l’équilibre ne veut pas dire que tout est parfait.
+545
+La timidité est différente selon la personne en face de nous.
+546
+La plus belle élue n’est pas forcément la plus belle et la plus belle du monde aura toujours des autres à son niveau.
+547
+Une mauvaise chose au départ peut être transmutée en bonne chose et inversement.
+548
+La souffrance du pourri gâté qui fait un caprice est ridicule. 
+549
+S’habiller comme tout le monde est une programmation choisi ou plus ou moins imposée. Vivre dans un monde diversifié de beaux vêtements est la sagesse.
+550
+Si tu ne sauvegardes pas de souvenirs de ta vie, c’est 99% d’oublié.
+551
+Les quatre altérations qui peuvent être infligés d’une certaine façon au corps humain sont : 
+l’alcoolisme  
+fumer 
+les tatouages permanents (cela peut être toxique pour le corps surtout si il y en a baucoup, le plus beau est d’être naturel. 
+En 2018 : Italie 48%, Suède 47%, Etats-Unis 46%, Australie 43%, Argentine 43%, Espagne 42% Danemark 41%, Royaume-Uni 40%, Brésil 37%, France 36% (source internet Statista : institut de sondage Dalia), Le pourcentage atteint une énorme proportion, plus ils sont nombreux plus c’est difficile de trouver quelqu’un qui plaît. Plus il y a de gens tatoués, plus il y a de dualité car moins de chances de plaire pout trouver une copine en voyant des dessins énervants. 
+Je préfère voir une grosse cicatrice qu’un tatouage dessus.
+Au moins quand je vois un groupe de 9 chanteuses coréennes par exemple, je ne vois pas de tatouages pour me gâcher le paysage, dommage qu’il y a encore du rouge à lèvres sut toutes les bouches, je veux du naturel pour ne pas toujours avoir la même chose. 
+Il faut surtout s’embellir avec les vêtements et la coiffure.
+Je dis ce que je pense, tant pis pour les tatoués qui vont s’énerver parce que je donne mon avis, il y a des gens qui s’énervent pour très peu.
+les piercings 
+Ces 4 choses peuvent nous éloigner de la perfection.
+552
+Le clonage est à éviter, il pourrait peut-être être utile si l’on veut utiliser son propre corps pour chaque incarnation à condition de ne pas avoir d’imposteurs. 
+553
+Quand il n’y a plus de guerre à l’extérieur, il  reste la guerre à soi-même afin de dissiper ses ombres vers la lumière.
+554
+Suivant notre situation du vécu, nous n’aimons pas certaines choses et nous en aimons d’autres.
+555
+Quand on invite quelqu’un, on ne doit pas lui imposer sa coutume sans le prévenir.
+556
+La journée des annales akashiques
+Le 8 août (deux 8 de l’infini) ou selon son choix.
+Une idée d’une nouvelle tradition, une journée spéciale pour écouter le meilleur de sa musique pour l’enregistrer d’un coup dans les annales akashiques ou pour montrer le meilleur de sa vie.
+557
+La viande et nourriture issue des animaux
+Un jour, on ne mangera plus de viande d’animaux abattus, (quoique pour l’instant il vaut mieux pour un animal de se faire tuer rapidement, si un chasseur humain tue plus rapidement que par un animal prédateur, c’est mieux, il faut essayer de faire baisser la souffrance animale sous toutes ses formes). La seule excuse pour en manger sera un animal mort de vieillesse, d’un accident ou la reproduction de plats par des réplicateurs avec une bonne vibration d’énergie si ça existe un jour, c’es à dire une machine qui enregistre le plat et peut le matérialiser à partir du vide à tout le monde qui a la machine. 
+Une autre excuse pour manger de la viande est la survie (poisson vers le pole nord ou au milieu d’un desert), il faut peut-être penser à déménager pour ne pas manger de viande. 
+A l’époque où je parle, il n’ y a pas de méthode douce pour tuer les animaux destinés à l’alimentation parce que l’euthanasie utilise un produit en endormant puis en tuant l’animal qui se retrouve dans la viande donc on ne peut pas en manger, ils n’ont pas inventé un rayon de mort instantané qui peut endormir avant.
+Les poulets devraient faire la grève de la réincarnation dans les usines à batterie. 
+Il faut manger en conscience de comment a été produit la viande, pas comme un programme sans réfléchir aux conséquences.
+Il est correct de manger des œufs de poule, du lait ou du miel si l’on prend simplement la quantité en plus qui n’est pas nécessaire aux animaux, ainsi que l’on ne tue pas et ne maltraite pas ces êtres. Il faut les remercier, les aimer et les protéger pour leurs bienfaits.
+On ne doit pas les faire reproduire plus que nécessaire à l’espèce pour faire du lait et du fromage sinon c’est de l’esclavage, par exemple, une vache fera quelques années de lait dans sa vie soit 2 ou 3 fois par exemple, donc le lait doit être je pense 5 ou 10 fois plus chère (à étudier) car on doit laisser mourir la vache de vieillesse mais l’euthanasier si elle souffre trop juste avant d’une maladie ou blessure grave. 
+Une vache laitière comme la Prim’Holstein a été sélectionné génétiquement pour produire des quantités largement supérieures à la consommation d’un veau, soit 5 à 8 fois (30 à 50 litres) la quantité naturelle d’une vache ancestrale.
+Si elle n’est pas traite, il y a risque de prolifération bactérienne, inflammation pouvant entraîner une gangraine ou une septicémie mortelle.
+En dehors de l’euthanasie, c’est de la souffrance.
+Pour réussir cela, il faudrait interdire toute importation qui ne pratique pas les mêmes règles et font des prix trop bas. (Contexte des années 2020). 
+Un animal qui est mort de vieillesse ou encore pour sa viande, récuperer tout ce qu’on peut récuperer (cuir et autres) évite le gaspillage mais attention de vérifier si ce n’est pas du braconnage ou c’est immoral.
+Une plante ne souffre pas autant qu’un animal, elle n’a pas de système nerveux, la souffrance est très largement inférieur à un animal, elle doit ressentir au niveau de la conscience quelque chose mais très probablement pas de souffrance physique.
+
+Cultures et animaux
+Les agriculteurs doivent s’équiper d’un détecteur de chaleur ou autre dispositif pour repérer les oiseaux ou mammifères de bas âge ou trop lent qui ne peuvent pas s’échapper d’une faucheuse ou d’une moissonneuse qui coupe et récolte les herbes ou graines.
+Les sangliers font des dégâts en retournant les sols, ils font en moyenne 5-6 marcassins par portée, c’est beaucoup trop pour un animal équivalent au poids d’un homme, peut-être faudrait-il changer sa génétique pour diminuer la reproduction et si cela n’ajoute pas de problèmes
+558
+Quand un conflit émerge, l’imbécile le fait durer.
+559
+Laisser son corps avec très peu d’activité pendant longtemps et faire une activité physique trop grande sur un corps ramolli risque de nous blesser et la douleur peut apparaître 1 jour après.
+560
+Idiots
+L’abruti à qui l’on donne la solution et qui n’a rien à perdre n’est même pas foutu d’essayer et continue dans sa connerie comme un programme.
+Les imbéciles, on doit plutôt leur montrer la vérité plutôt que le dire pour qu’ils arrêtent de dire que c’est faux.
+Pour changer une société où il y a trop d’idiots, il faut changer le système en se rapprochant des gens pour les rassembler à sa cause d’abord puis mettre en œuvres les idées lentement et dans la discrétion pour qu’ils puissent comprendre. 
+561
+L’amour inconditionnel, c’est rendre service suffisamment aux autres mais dans le respect de l’amour pour soi.
+562
+Il ne doit pas y avoir beaucoup de vieux au paradis ou alors c’est un peu maso sauf si c’est les nouveaux arrivants.
+563
+Les gens à corpulence trop maigre devraient faire un sport adapté pour élargir leurs os avant qu’il ne soit trop tard.
+564
+Tout n’est pas obligatoirement parfait mais tendra à nous ramener vers la perfection.
+Quelqu’un de l’au-delà a dit : « Tout est parfait dans l’imperfection », je ne suis pas d’accord et je dirai plutôt : 
+L’imperfection peut amener des découvertes à la perfection.
+La perfection totale sur tous les sujets et contextes de décisions possibles face à des situations est impossible.
+Une guerre, difficile d’arrêter tout le monde sans les blesser pour les rééduquer donc pas de perfection.
+565
+On peut se déguiser en ce que l’on veut même en méchant, ce n’est pas pour ça que l’on est méchant ou raciste car on a le droit d’aimer se déguiser ou jouer la comédie mais à ne pas le faire devant n’importe qui.
+566
+Faire trop d’enfants c’est générer beaucoup plus de travail pour eux pour combler la croissance car la société devient encore plus esclave du travail. Dans la précipitation on fait moins bien et moins beau.
+567
+Selon la merde que l’on reçoit dans sa vie, ça éclabousse sur les autres, c’est pour cela qu’il faut essayer d’en retenir le maximum et de détoxifier son esprit.
+568
+Il ne faut pas faire le sourd quand un messager qui a dit autrefois une bêtise dit quelque chose d’intelligent, l’important n’est pas le messager, c’est le message.
+569
+Le bon agitateur de conscience éclaire le troupeau qui se fait de l’ombre.
+570
+Le meilleur moyen d’être en forme avec peu d’efforts est de monter et descendre un chemin, une route ou une colline dans la nature.
+571
+Pleurer devant son adversaire ou s’énerver quand on perd, c’est un peu comme une deuxième défaite.
+572
+Les cons, soit il faut les éclairer ou soit il faut s’en aller.	
+573
+Parfois il y a des gens qui changent d’avis mais ils ne se rappellent plus qu’ils avaient pensé autrement avant, ils risquent moins de reconnaître leurs erreurs comme ça.
+574
+On ne veut pas te donner la clef parce que tu ne te sens pas assez bien mais c’est la clef qui fait que tu te sens bien alors il faut aller rayonner la lumière en soi pour créer le pont vers la clef de la porte qui s’ouvre.
+575
+Pour l’éternité, l’amour, la connaissance ensemble, le plaisir car un seul esprit dans l’univers serait ridicule.
+576
+La générosité d’une personne peut s’évaluer sur le pourcentage de ses capacités.
+577
+Ce n’est pas parce qu’on n’a pas besoin que l’on n’a pas le droit de se faire plaisir. 
+578
+Quand dieu a tout expérimenté en se divisant, qu’il laisse ceux qui le désire avoir leur propre conscience pour l’éternité.
+579
+La parole sans l’intention ressemble à une enveloppe vide.
+580
+Montrer trop le moins bien nous fait rater du meilleur.
+Des peintres sont considérés par certains comme des grands artistes alors que l’on croirait qu’ils ont fait un concours de nullité.
+Les moujoncs admirent le noir de la médiocrité (un caillou ridicule de l’âge enivré, vous avez devinez ?), Certains font une poésie d’éloges sur ses brins du plus bas niveau.  Il est l’antithèse du beau.
+581
+On trouve un intérêt à voir des beautés à 70% comme des beautés à presque 100%. 
+582
+Les imbéciles font des pronostiques de défaite sur ta vie au lieu de supposer la probabilité.
+583
+Le manque arrive dans l’enfermement.
+584
+Quand on ne fait rien trop longtemps, le manque arrive.
+585
+Il n’y a pas de mal à faire des compétitions si cela est fait dans le respect et si sa conscience reste en paix.
+586
+Toujours se reconfigurer comme de l'eau malgré les obstacles : se  durcir face aux critiques négatives comme de la glace, expulser d’un torrent les méchants qui attaquent et s'évaporer en nuage pour avoir un meilleur point de vue.
+587
+Faire croire que l’on est faible ou pas courageux parce que l’on ne cède pas au chantage alors que céder au chantage peut être une faiblesse, gardez la voie de la raison et de soi-même.
+588
+Si tout le monde avait été le mouton de dieu, on aurait raté des choses importantes car nous sommes complémentaires.
+589
+Certaines choses créées à cause du mal peuvent rester de bonnes choses en option de divertissement respectueux.
+590
+L’option du corps physique doit être infinie.
+591
+Préserver les beautés humaines
+Ne pas trop mélanger les races au point de n’en faire qu’une seule, préserver la multiplicité des races et des langues pour un monde de différentes beautés égales.
+Trop se mélanger va diminuer les particularités des pays du monde et nuire à la diversité. Il faut qu’il y ait toujours sur Terre, des blonds, roux, châtains, bruns, peaux clairs, mates, noirs, arabes, indiens, yeux bleus, verts, marrons etc…
+Il fait veiller aussi à ce que les humains aient toujours des cheveux sur la tête (ex : dans 100 000 ans). Avant de faire des enfants, on pense aux conséquences sur la nature et sur les humains à très long terme. On évite de faire beaucoup d’enfants (on en fait moins) quand on est chauve, que la population augmente alors qu’elle est déjà à 100 habitants au km2 dans 1000 km de diamètre sinon certains types de particularités n’existeront plus ou seront très rares. 
+Quand on est chauve, on ne fait pas de don de sperme pour les autres, par-contre, on peut demander par choix qu’un don soit fait par un chevelu et savoir son apparence et son identité au bout d’un certain temps peut-être pour l’arbre généalogique.
+Sinon un jour, on finira tous chauve, même les femmes pourraient perdre leur cheveux (20 % ont déjà leurs cheveux clairsemés à un moment de leur vie), c’est pour le bonheur d’être beau, pas par haine car j’ai de la compassion pour l’injustice de subir ça, sauf ceux qui s’en foutent, se raser la tête par choix est bien mais par contrainte de problème capillaire est injuste.
+J’aurais dit la même chose si j’étais chauve alors commencez pas à me traiter de raciste, mon but est de prévoir le pire pour sauvegarder le meilleur, pas de laisser se produire la catastrophe d’une humanité future sans cheveux, parce que le pourcentage de chauve est déjà très grave à un certain âge en 2026, 50% à 50 ans et encore plus en vieillissant, un vrai cauchemar sauf ceux qui le prenne bien mais sans moi, je n’accepte pas de me réincarner en chauve, les femmes gardent leur cheveux.
+
+La calvitie peut être la conséquence de plusieurs origines :
+La génétique
+Le stress 
+L’alimentation
+La pollution
+Trop tirer sur ses cheveux
+
+Quand la densité capillaire commence à diminuer, faire une analyse de sang pour connaître la cause.
+
+Il faudrait préserver l’adn (séquençage ou biologiquement) des meilleurs humains de notre époque pour que les plus belles apparences existent toujours même si on devient plus intelligent mais moins beau parce que la tête et le cerveau fait 1,5 fois ou plus la taille de l’ancien, on doit préserver la beauté.
+Certains disent de tous se mélanger et après le patrimoine vivant disparaît. 
+Je n’interdis rien, je fais une suggestion de volontariat pour prévenir des conséquences sans mauvaise pensée.
+C’est une question d’équlibre, c’est comme si tout le monde voulait faire le même métier, il y aurait des problèmes. 
+Si on mélange des couleurs de yaourt dans un bol, au début c’est beau ; on mélange légèrement, c’est encore beau voir même un peu plus beau, et après quand il y a trop de mélange, cela devient monotone et moins amusant car moins de choses différentes à regarder.
+C’est comme un professeur, si seulement le pourcentage d’élèves qui chuchote pendant une courte période et pas les mêmes élèves est faible, on ne dit rien mais si ils commencent à être nombreux, cela devient un problème. 
+Certains peuvent faire beaucoup d’enfants seulement si la population diminue trop.
+Préserver nos races pour ne pas qu’elles disparaissent dans le futur. Il ne faut pas que tout le monde change de couleur de peau (bleue ou autres) ou que la forme du crâne devienne grosse et moche dans 100 000 ans à cause de je ne sais pas quel raison (genre trop de croisements avec des extraterrestres bleus ou un autre soleil qui fait bronzer bleu)
+Les plus beaux humains possibles existent à notre époque en comptant les plus beaux.
+
+Il y a encore un risque que des mougeons déforment ce que je dis et de manière négative car ils ne prennent pas en compte assez de paramètres.
+592
+Il y a certaines formes de vie sur Terre qui doivent être arrêtées car elles ont été créées par le mal, notamment des créations génétiques injustes, monstrueuses ou des maladies, les tiques, les verrues. Ils devraient se réincaner en formes plus juste et les tiques en autre forme de vie. 
+593
+Sous prétexte de faire disparaître le racisme, certains nous laisserait tous nous mélanger pour finir en une seule race, mais le racisme, ça peut aussi être de laisser disparaitre la diversité des beautés, cela ressemble à du racisme contre la diversité. 
+594
+Lors d’un héritage, on peut partager une collection en plusieurs parties, il peut y avoir un seul grand héritier pour ne pas perdre la totalité du trésor en petits morceaux éloignés mais s’il y a une grande catastrophe au même endroit tout peut être perdu.
+Mettre des fèves en porcelaine dans la galette des rois pollue ou mettre en bois, il faudrait une version sans fèves sinon il y’ en aura des milliards dans le futur et ce n’est pas recyclé.
+595
+L’imbécile ne fait pas mieux que toi mais rejette la faute sur toi.
+596
+Si tu enfreins le libre arbitre de l’autre mais qu’il est reconnaissant après, ça annule l’infraction.
+597
+Il y a plusieurs races parfaites ou quasi parfaite physiquement dans ses meilleurs individus.
+598
+Le bonheur, c’est cultiver l’art du bien-être.
+599
+Le jour très lointain où l’on n’aura plus besoin de nourriture physique pour vivre, continuons de manger pour le plaisir car si l’on ne se sert plus de certaines parties du corps, elles finissent par dégénérer.
+600
+La galanterie, c’est pour tout le monde.
 
 
 
