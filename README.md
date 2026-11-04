@@ -1232,7 +1232,7 @@ Commence par le simple avant le compliqué.
 250  
 Une forêt sans ancêtres n’est pas une véritable forêt.  
 
-Forêt impériale
+Forêt impériale  
 
 Forêt d’ombres et clairsemée,
 qui laisse les lumières venir et s'en aller.
