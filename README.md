@@ -705,532 +705,532 @@ Tu peux avoir raison sans que quelqu’un te croie un jour.
 50  
 À chaque chute d’eau sa mélodie.  
 
-Belles chutes d’eau
+Belles chutes d’eau  
 
-Au milieu du désert,
-et jusqu’aux paysages les plus verts.
-Dans les grottes et les tunnels,
-et éclatant au jour sa beauté exceptionnelle.
-Façonnant toutes sortes de roches,
-le spectacle nous accroche.
-Parfois puissantes ou douces,
-sur la roche ou sur la mousse.
-Parfois enveloppées de ses habits de glace,
-avant que la chaleur les efface.
-Elles nous font de belles bulles, 
-et nous rafraîchissent de la canicule.
-Ça glisse, ça saute, ça tourne, ça éclabousse, ça s’évapore en brume,
-sous les regards du soleil ou de la lune.
-Lors de grands sauts, 
-l’arc en ciel déploie ses beaux arceaux.
-Le mouvement façonne la beauté du monde,
-pour que la joie nous inonde.
+Au milieu du désert,  
+et jusqu’aux paysages les plus verts.  
+Dans les grottes et les tunnels,  
+et éclatant au jour sa beauté exceptionnelle.  
+Façonnant toutes sortes de roches,  
+le spectacle nous accroche.  
+Parfois puissantes ou douces,  
+sur la roche ou sur la mousse.  
+Parfois enveloppées de ses habits de glace,  
+avant que la chaleur les efface.  
+Elles nous font de belles bulles,  
+et nous rafraîchissent de la canicule.  
+Ça glisse, ça saute, ça tourne, ça éclabousse, ça s’évapore en brume,  
+sous les regards du soleil ou de la lune.  
+Lors de grands sauts,  
+l’arc en ciel déploie ses beaux arceaux.  
+Le mouvement façonne la beauté du monde,  
+pour que la joie nous inonde.  
 
-Sylvain Meili (2020 : n°2)
+Sylvain Meili (2020 : n°2)  
 
-51
-Les gens fermés d’esprit restent en bas et les gens ouverts d’esprit s’élèvent.
-52
-La colère affaiblit la raison.
-53
-S’approprier la nature est égoïste.
-54
-L’humain a tendance à déformer la vérité.
-55
-Ne jamais se moquer ou rabaisser quelqu’un si cela le blesse.
-56
-Détruire le monde à cause de son malheur prouve qu’on le mérite en partie.
-57
-Parfois l’humain s’incruste et prend une part de bonheur.
-58
-Parfois l’humain croit entendre des choses négatives qui n’ont pas eu lieu, que l’on dit ou fait tout seul ou à quelqu’un qu’il croit pour lui.
-59
-On ne doit pas transmettre ses maladies à ses enfants.
-60
-La mauvaise humeur attire le malheur.
-61
-On doit choisir un vêtement pour son aspect et sa solidité et non pas pour sa marque.
-62
-Sur une planète trop peuplée, l’idiot a beaucoup d’enfants, le sage peu.
-63
-La critique nous donne de l’orgueil et les compliments nous donnent de la modestie pour rétablir l’équilibre.
-64
-Il est plus grave de se moquer de gens en face de nous que de ceux qui ne nous entendent pas.
-65
-Le manque de sagesse oblige à mentir ou à ne rien dire.
-66
-Certains qui ne peuvent se justifier par les faits se rattrapent sur les mots.
-67
-Ce qui n’est pas la stricte vérité peut permettre de nous faire évoluer ou d’avancer vers une vérité plus proche. Un proverbe n’est pas forcément vrai mais peut donner une partie de la vérité.
-68
-Le condamné doit avoir l’option d’obtenir une petite remise de peine en travaillant pour la société et ainsi ne pas servir à rien, et faire une rééducation morale en lisant un ou des livres de philosophie avec un test à la fin.
-69
-Deux mochetés contraires qui fusionnent peuvent engendrer la beauté parfaite. 
-L’enfant qui naît de deux parents avec des défauts physiques à l’opposé peut bénéficier d’un mélange de gênes équilibrés qui lui donne la beauté idéale du milieu. Exemple : une asiatique avec une énorme tête et des yeux trop fins et bridés avec un européen avec une tête trop montagneuse et rectangulaire, ainsi que des yeux trop renfoncés. 
-70
-Le condamné doit ressortir plus sage.
-71
-Le plus important n’est pas d’être puni mais de ne pas recommencer.
-72
-Si l’on a compris son erreur, il ne sert plus à rien d’être puni.
-73
-Le mieux n’est pas de punir le mal ni de l’enfermer mais de l’arrêter.
-74
-On ne doit jamais punir en infligeant des douleurs physiques.
-75
-On ne doit pas punir mais soigner le mal pour qu’il disparaisse et se transforme en bien.
-76
-Devenir sage rend plus beau, être idiot rend plus laid.
-77
-On doit pouvoir suivre ses goûts sans être discriminé par le goût des autres.
-78
-La beauté peut être pauvre ou riche.
-79
-Chacun de nous peut créer une mode, on ne doit pas nous l’imposer.
-80
-Préserver la diversité, c’est préserver la beauté.
-81
-Le beau est variable selon les individus mais il faut savoir le reconnaître.
-82
-J’exige que toute destruction de conscience doit être interdite. 
-Si un grand criminel de l’univers demande à ne plus jamais exister pour ses fautes, cela doit être interdit car ne plus jamais vouloir exister est un manque d’intelligence. Quand on a toute son intelligence, on veut être éternel, on doit ne pas laisser décider quelqu’un pour sa mort éternelle car il lui manque de l’intelligence et il n’est donc pas en capacité de décider. 
-Le pire des criminels ne mérite pas la pire des tortures et même petite soit-elle sinon c’est se mettre dans le camp du mal, et cela peut lui faire dire des choses qu’il n’a pas faite. Si tu souhaite la torture, tu es un énorme connard dans cet aspect. 
-Au moyen-âge ou avant, dans différents pays du monde, pour punir des voleurs, ils pouvaient te couper un bout d’oreille ou de main ou te tatouer. Vraiment des gens atroces, une personne qui fait pire que ce que il lui reproche est plus méchante qu’elle.
-Les choses très désagréables comme la chiasse ou vomir devraient être la limite de souffrance qui devrait exister dans l’univers mais le monde est encore pourri pour beaucoup.
-Interdire les armes ou moyens capables de tuer le corps avec la conscience si ça existe dans l’univers.
-Après la mort, pour éviter aux très méchants de souffrir ou pour qu’ils comprennent l’horreur qu’ils ont infligé aux autres, l’au-delà positif peut leur faire comprendre que même à 10%, la souffrance peut être horrible, on peut lui montrer si il le souhaite le ressenti de ce qu’il a infligé par la technologie ou des pouvoirs psychiques ou à un certain pourcentage pour qu’il comprend et soit compatissant pour avoir un meilleur comportement. 
- Je ne souhaite la souffrance à 0 personne mais j’aimerais éviter que le méchant puisse avoir une grosse douleur dans sa prochaine vie, donc l’univers doit tout faire pour arrêter les mauvais karmas ou les annuler. Je veux que l’univers invente un téléchargement minimum de sagesse pour arrêter d’être très con. Je veux un univers propre sans grosse souffrance.
-Au moment de ta revue de vie dans l’au-delà, il vaut mieux pour toi que tu regrettes les souffrances physiques que tu as engendré pour espérer qu’on t’accorde de ne pas te fasse pas ressentir la souffrance comme exactement à l’intérieur de sa conscience.
-La peine de mort (de manière instantané et sans douleur si possible : piqûre) doit peut-être en dernier recours pour éviter d’autres catastrophes dans un certain contexte être exceptionnellement réservée à ceux qui torturent très gravement plusieurs fois des gens par plaisir, les tueurs en séries ou satanistes très cruels qui ne veulent pas changer car leurs pensées créent des vibrations très négatives dans la conscience collective et le mal continue plus sur la planète tant qu’ils sont vivants.
-La conscience de la planète peut s’énerver et créer des catastrophes donc attention à faire le bien, elle s’est souvent retenue.
-83
-La beauté peut nous aveugler tout comme la mocheté.
-84
-La beauté, ça se travaille et s’entretient.
-85
-Il existe deux beautés chez l’humain, la beauté réelle et la beauté apparente, l’une est un peu plus figée, l’autre varie plus.
-86
-La naissance est la mort de l’au-delà et la mort est la renaissance dans l’au-delà.
-87
-La beauté du monde est fondamentale car elle nous apporte du bonheur.
-88
-Une belle forêt est la beauté des anciens temps qui se perpétuent à la beauté du présent changeant.
-89
-On est plus à l'aise quand on est plus beau.
-90
-Semez la lumière et récoltez la beauté du monde.
-91
-Ce n’est pas parce qu’on n’est pas à la mode que nous sommes laids car la beauté n’a pas d’âge.
-92
-Accepter sa défaite est une petite victoire.
-93
-Regarder, analyser, comprendre, agir dans la continuité et/ou améliorer, transmettre.
-94
-Suivre la mode, c’est suivre le troupeau.
-95
-Le mal peut se transformer en bien et le bien en mal.
-96
-Le bien est la meilleure des solutions qui s’offre à nous.
-97
-La vérité sans le bien n’est pas toujours le bien (inquiéter les gens de sa maladie au lieu d’attendre de leur dire après sa guérison), le bien sans la vérité peut parfois être le bien (mentir pour se sauver des méchants peut être utile).
-Le bien peut avoir une partie de mal (dommages collatérales) car il est parfois difficile de prendre la meilleure décision qui amène des conséquences plus ou moins négatives.
-98
-Il faut connaître le mal pour connaître le bien.
-99
-La vie sur Terre est le mélange du bien et du mal.
-100
-Le plus beau poisson vit dans l’eau la plus pure.
+51  
+Les gens fermés d’esprit restent en bas et les gens ouverts d’esprit s’élèvent.  
+52  
+La colère affaiblit la raison.  
+53  
+S’approprier la nature est égoïste.  
+54  
+L’humain a tendance à déformer la vérité.  
+55  
+Ne jamais se moquer ou rabaisser quelqu’un si cela le blesse.  
+56  
+Détruire le monde à cause de son malheur prouve qu’on le mérite en partie.  
+57  
+Parfois l’humain s’incruste et prend une part de bonheur.  
+58  
+Parfois l’humain croit entendre des choses négatives qui n’ont pas eu lieu, que l’on dit ou fait tout seul ou à quelqu’un qu’il croit pour lui.  
+59  
+On ne doit pas transmettre ses maladies à ses enfants.  
+60  
+La mauvaise humeur attire le malheur.  
+61  
+On doit choisir un vêtement pour son aspect et sa solidité et non pas pour sa marque.  
+62  
+Sur une planète trop peuplée, l’idiot a beaucoup d’enfants, le sage peu.  
+63  
+La critique nous donne de l’orgueil et les compliments nous donnent de la modestie pour rétablir l’équilibre.  
+64  
+Il est plus grave de se moquer de gens en face de nous que de ceux qui ne nous entendent pas.  
+65  
+Le manque de sagesse oblige à mentir ou à ne rien dire.  
+66  
+Certains qui ne peuvent se justifier par les faits se rattrapent sur les mots.  
+67  
+Ce qui n’est pas la stricte vérité peut permettre de nous faire évoluer ou d’avancer vers une vérité plus proche. Un proverbe n’est pas forcément vrai mais peut donner une partie de la vérité.  
+68  
+Le condamné doit avoir l’option d’obtenir une petite remise de peine en travaillant pour la société et ainsi ne pas servir à rien, et faire une rééducation morale en lisant un ou des livres de philosophie avec un test à la fin.  
+69  
+Deux mochetés contraires qui fusionnent peuvent engendrer la beauté parfaite.  
+L’enfant qui naît de deux parents avec des défauts physiques à l’opposé peut bénéficier d’un mélange de gênes équilibrés qui lui donne la beauté idéale du milieu. Exemple : une asiatique avec une énorme tête et des yeux trop fins et bridés avec un européen avec une tête trop montagneuse et rectangulaire, ainsi que des yeux trop renfoncés.  
+70  
+Le condamné doit ressortir plus sage.  
+71  
+Le plus important n’est pas d’être puni mais de ne pas recommencer.  
+72  
+Si l’on a compris son erreur, il ne sert plus à rien d’être puni.  
+73  
+Le mieux n’est pas de punir le mal ni de l’enfermer mais de l’arrêter.  
+74  
+On ne doit jamais punir en infligeant des douleurs physiques.  
+75  
+On ne doit pas punir mais soigner le mal pour qu’il disparaisse et se transforme en bien.  
+76  
+Devenir sage rend plus beau, être idiot rend plus laid.  
+77  
+On doit pouvoir suivre ses goûts sans être discriminé par le goût des autres.  
+78  
+La beauté peut être pauvre ou riche.  
+79  
+Chacun de nous peut créer une mode, on ne doit pas nous l’imposer.  
+80  
+Préserver la diversité, c’est préserver la beauté.  
+81  
+Le beau est variable selon les individus mais il faut savoir le reconnaître.  
+82  
+J’exige que toute destruction de conscience doit être interdite.  
+Si un grand criminel de l’univers demande à ne plus jamais exister pour ses fautes, cela doit être interdit car ne plus jamais vouloir exister est un manque d’intelligence. Quand on a toute son intelligence, on veut être éternel, on doit ne pas laisser décider quelqu’un pour sa mort éternelle car il lui manque de l’intelligence et il n’est donc pas en capacité de décider.  
+Le pire des criminels ne mérite pas la pire des tortures et même petite soit-elle sinon c’est se mettre dans le camp du mal, et cela peut lui faire dire des choses qu’il n’a pas faite. Si tu souhaite la torture, tu es un énorme connard dans cet aspect.  
+Au moyen-âge ou avant, dans différents pays du monde, pour punir des voleurs, ils pouvaient te couper un bout d’oreille ou de main ou te tatouer. Vraiment des gens atroces, une personne qui fait pire que ce que il lui reproche est plus méchante qu’elle.  
+Les choses très désagréables comme la chiasse ou vomir devraient être la limite de souffrance qui devrait exister dans l’univers mais le monde est encore pourri pour beaucoup.  
+Interdire les armes ou moyens capables de tuer le corps avec la conscience si ça existe dans l’univers.  
+Après la mort, pour éviter aux très méchants de souffrir ou pour qu’ils comprennent l’horreur qu’ils ont infligé aux autres, l’au-delà positif peut leur faire comprendre que même à 10%, la souffrance peut être horrible, on peut lui montrer si il le souhaite le ressenti de ce qu’il a infligé par la technologie ou des pouvoirs psychiques ou à un certain pourcentage pour qu’il comprend et soit compatissant pour avoir un meilleur comportement.   
+ Je ne souhaite la souffrance à 0 personne mais j’aimerais éviter que le méchant puisse avoir une grosse douleur dans sa prochaine vie, donc l’univers doit tout faire pour arrêter les mauvais karmas ou les annuler. Je veux que l’univers invente un téléchargement minimum de sagesse pour arrêter d’être très con. Je veux un univers propre sans grosse souffrance.  
+Au moment de ta revue de vie dans l’au-delà, il vaut mieux pour toi que tu regrettes les souffrances physiques que tu as engendré pour espérer qu’on t’accorde de ne pas te fasse pas ressentir la souffrance comme exactement à l’intérieur de sa conscience.  
+La peine de mort (de manière instantané et sans douleur si possible : piqûre) doit peut-être en dernier recours pour éviter d’autres catastrophes dans un certain contexte être exceptionnellement réservée à ceux qui torturent très gravement plusieurs fois des gens par plaisir, les tueurs en séries ou satanistes très cruels qui ne veulent pas changer car leurs pensées créent des vibrations très négatives dans la conscience collective et le mal continue plus sur la planète tant qu’ils sont vivants.  
+La conscience de la planète peut s’énerver et créer des catastrophes donc attention à faire le bien, elle s’est souvent retenue.  
+83  
+La beauté peut nous aveugler tout comme la mocheté.  
+84  
+La beauté, ça se travaille et s’entretient.  
+85  
+Il existe deux beautés chez l’humain, la beauté réelle et la beauté apparente, l’une est un peu plus figée, l’autre varie plus.  
+86  
+La naissance est la mort de l’au-delà et la mort est la renaissance dans l’au-delà.  
+87  
+La beauté du monde est fondamentale car elle nous apporte du bonheur.  
+88  
+Une belle forêt est la beauté des anciens temps qui se perpétuent à la beauté du présent changeant.  
+89  
+On est plus à l'aise quand on est plus beau.  
+90  
+Semez la lumière et récoltez la beauté du monde.  
+91  
+Ce n’est pas parce qu’on n’est pas à la mode que nous sommes laids car la beauté n’a pas d’âge.  
+92  
+Accepter sa défaite est une petite victoire.  
+93  
+Regarder, analyser, comprendre, agir dans la continuité et/ou améliorer, transmettre.  
+94  
+Suivre la mode, c’est suivre le troupeau.  
+95  
+Le mal peut se transformer en bien et le bien en mal.  
+96  
+Le bien est la meilleure des solutions qui s’offre à nous.  
+97  
+La vérité sans le bien n’est pas toujours le bien (inquiéter les gens de sa maladie au lieu d’attendre de leur dire après sa guérison), le bien sans la vérité peut parfois être le bien (mentir pour se sauver des méchants peut être utile).  
+Le bien peut avoir une partie de mal (dommages collatérales) car il est parfois difficile de prendre la meilleure décision qui amène des conséquences plus ou moins négatives.  
+98  
+Il faut connaître le mal pour connaître le bien.  
+99  
+La vie sur Terre est le mélange du bien et du mal.  
+100  
+Le plus beau poisson vit dans l’eau la plus pure.  
 
-La truite fario
+La truite fario  
 
-Le plus beau poisson vit dans l’eau la plus pure,
-il a belle allure.
-Éclatante comme un arc en ciel,
-dans l’eau la plus naturelle.
-Rapide comme l’éclair,
-elle franchit les cascades d’eau claire.
-Un moment cachée dans les belles racines de l’aulne et l’écume de la chute d’eau,
-un moment elle dandine au milieu du courant du ruisseau.
-Sa belle silhouette au-dessus des cailloux colorés aux nuances de marron, gris, bleu, blanc,
-devant la chute d’eau qui fait son chant.
-Sa peau lisse divinement tachetée,
-décorant ce sublime ruisseau argenté.
+Le plus beau poisson vit dans l’eau la plus pure,  
+il a belle allure.  
+Éclatante comme un arc en ciel,  
+dans l’eau la plus naturelle.  
+Rapide comme l’éclair,  
+elle franchit les cascades d’eau claire.  
+Un moment cachée dans les belles racines de l’aulne et l’écume de la chute d’eau,  
+un moment elle dandine au milieu du courant du ruisseau.  
+Sa belle silhouette au-dessus des cailloux colorés aux nuances de marron, gris, bleu, blanc,  
+devant la chute d’eau qui fait son chant.  
+Sa peau lisse divinement tachetée,  
+décorant ce sublime ruisseau argenté.  
 
-Sylvain Meili (2019 : n°3)
+Sylvain Meili (2019 : n°3)  
 
-101
-Il faut savoir renoncer aux caprices de l’enfant quand cela est nécessaire.
-102
-C’est dans le plus jeune âge que l’on forme le meilleur comportement.
-103
-Éduquer un enfant, c’est expliquer les choses et non pas les imposer arbitrairement. 
-On doit l’inciter à la curiosité et à la réflexion personnelle, ce n’est pas un programme à répéter.
-Des enfants peuvent être plus évolués que des adultes sur des sujets faciles à comprendre.
-104
-Tricher ne dure jamais indéfiniment.
-105
-Tricher est généralement mauvais.
-106
-Il faut parfois tricher pour survivre.
-107
-Tricher peut être bien exceptionnellement pour une bonne cause et si cela n’affecte pas négativement les autres.
-108
-L’univers, c’est la transparence, l’opaque, le miroir, les dimensions.
-Consciences, énergies, matières, fréquences, couleurs, sensations.
-1 : nous somme tous unis.
-0 : toute la création (dans le cercle).
-8 : pour l’éternité.
-109
-Un problème ne s’enferme pas, il se résout.
-110
-Mentir est nécessaire dans certaines circonstances.
-111
-Nous ne sommes pas tous égaux envers la réussite de la vie.
-112
-Les conditions sociales ont une influence sur chaque individu.
-113
-La diversité du monde enseigne la tolérance.
-114
-Ne jamais rien faire met mal à l’aise.
-115
+101  
+Il faut savoir renoncer aux caprices de l’enfant quand cela est nécessaire.  
+102  
+C’est dans le plus jeune âge que l’on forme le meilleur comportement.  
+103  
+Éduquer un enfant, c’est expliquer les choses et non pas les imposer arbitrairement.   
+On doit l’inciter à la curiosité et à la réflexion personnelle, ce n’est pas un programme à répéter.  
+Des enfants peuvent être plus évolués que des adultes sur des sujets faciles à comprendre.  
+104  
+Tricher ne dure jamais indéfiniment.  
+105  
+Tricher est généralement mauvais.  
+106  
+Il faut parfois tricher pour survivre.  
+107  
+Tricher peut être bien exceptionnellement pour une bonne cause et si cela n’affecte pas négativement les autres.  
+108  
+L’univers, c’est la transparence, l’opaque, le miroir, les dimensions.  
+Consciences, énergies, matières, fréquences, couleurs, sensations.  
+1 : nous somme tous unis.  
+0 : toute la création (dans le cercle).  
+8 : pour l’éternité.  
+109  
+Un problème ne s’enferme pas, il se résout.  
+110  
+Mentir est nécessaire dans certaines circonstances.  
+111  
+Nous ne sommes pas tous égaux envers la réussite de la vie.  
+112  
+Les conditions sociales ont une influence sur chaque individu.  
+113  
+La diversité du monde enseigne la tolérance.  
+114  
+Ne jamais rien faire met mal à l’aise.  
+115  
 L’évolution de la beauté physique et de l’ADN peut avancer et reculer.
-116
-Une espèce peut dégénérer ou se bonifier physiquement.
-117
-Il ne faut pas rabaisser la beauté de quelqu’un par rapport à une autre personne, le jugement doit être gardé pour soi. On peut critiquer mais sans que la personne concernée le sache.
-118
-C’est pendant la jeunesse que l’apprentissage est le plus efficace.
-119
-La musique n’a pas le même effet si elle est chantée dans sa langue ou une autre.
-120
-La souplesse fait la force, l’équilibre et la vitesse.
-121
-Être souple, c’est être plus léger.
-122
-Plus on est souple et endurant, mieux l’on se sent.
-123
-L’Homme est raide comme un chien.
-124
-Le moine Shaolin est souple comme le chat.
-125
-Le Kung-fu, c’est souplesse, endurance, rapidité, technique, force et esthétisme.
-126
-Le Kung-fu et les arts martiaux, c’est faire de son corps le plus beau des jouets.
-127
-Le Kung-fu est un hymne à l'immortalité (métaphore poétique).
-128
-Le bonheur préserve la santé.
-129
-La vie est comme la marée.
-130
-Se fondre dans la masse rend la vie plus facile.
-131
-L’argent crée du bonheur mais le bonheur ne crée pas d’argent mais de la richesse.
-132
-Il y a trois sortes de fainéantises : intelligence, sagesse, et travail physique.
-133
-Trop de création humaine engendre de la destruction de la nature.
-134
-La peur doit se vaincre mais toutes les peurs ne peuvent être vaincues, la peur diminue l’immunité.
-135
-Il faut si on le peut sans risque, guérir sans médicaments car cela fortifie notre organisme, par exemple en bien mangeant équilibré ou avec des remèdes naturels. Si la seule solution efficace est un médicament ou une autre méthode sûre, il faut y aller auusi.
-136
-C’est en s’éloignant de ce que l’on aime, qu’on l’aime encore plus.
-137
-Nous sommes tous en parti programmés à la naissance mais le libre arbitre permet de le modifier.
-138
-Il y a trois grandes choses en nous, notre programmation (instinctive, tempérament), ce qui nous est donné (éducation, cadre de vie) et ce que l'on va chercher (libre arbitre et savoir).
-139
-L’individu d’un jour n’est pas forcément l’individu d’un autre jour.
-140
-La violence n’est tolérable que dans la fiction.
-141
-L’originalité alimente les trouvailles, de l’isolement naît l’originalité.
-142
-Ce que l’on dit n’est pas toujours le reflet de ce que l’on pense. Ce que l’on pense n’est pas toujours ce que l’on dit. Enfin, ce que l’on dit et ce que l’on pense peut changer.
-143
-Il est plus facile de s’intéresser aux choses quand on est de bonne humeur.
-144
-Nous ne sommes pas vraiment racistes qaund nous avons des goûts et des préférences (ex : préférer les gens beaux) mais nous devons respecter les autres sans les discriminer ou avoir de la haine pour ne pas tomber dans le racisme.
-Il y a les racistes énergétiques dont tu ne plais pas à cause de ton énergie, parce que tu n’a pas assez une conscience de ruche ou qui t’invente des défauts.
-145
-On n’est pas le même en fonction des personnes que l’on côtoie.
-146
-Juger à l’apparence est impossible mais cela donne une indication.
-147
-L’antagonisme de la vie sur Terre.
-La nature est à la fois horrible et magnifique en 3ème dimension.
-La prédation et les guerres animales ou humaines ainsi que les accidents hasardeux ou par manque d’intelligence ou climatiques (chaleur, sécheresse, tornade, vent, innondation, froid, éruption volcanique), maladies et débilités peuvent rendre la vie horrible.
-La beauté de la nature et des paysages, la diversité des formes de toutes choses, l’intelligence, toutes les inventions humaines et toutes les sensations peuvent rendre la vie magnifique.
+116  
+Une espèce peut dégénérer ou se bonifier physiquement.  
+117  
+Il ne faut pas rabaisser la beauté de quelqu’un par rapport à une autre personne, le jugement doit être gardé pour soi. On peut critiquer mais sans que la personne concernée le sache.  
+118  
+C’est pendant la jeunesse que l’apprentissage est le plus efficace.  
+119  
+La musique n’a pas le même effet si elle est chantée dans sa langue ou une autre.  
+120  
+La souplesse fait la force, l’équilibre et la vitesse.  
+121  
+Être souple, c’est être plus léger.  
+122  
+Plus on est souple et endurant, mieux l’on se sent.  
+123  
+L’Homme est raide comme un chien.  
+124  
+Le moine Shaolin est souple comme le chat.  
+125  
+Le Kung-fu, c’est souplesse, endurance, rapidité, technique, force et esthétisme.  
+126  
+Le Kung-fu et les arts martiaux, c’est faire de son corps le plus beau des jouets.  
+127  
+Le Kung-fu est un hymne à l'immortalité (métaphore poétique).  
+128  
+Le bonheur préserve la santé.  
+129  
+La vie est comme la marée.  
+130  
+Se fondre dans la masse rend la vie plus facile.  
+131  
+L’argent crée du bonheur mais le bonheur ne crée pas d’argent mais de la richesse.  
+132  
+Il y a trois sortes de fainéantises : intelligence, sagesse, et travail physique.  
+133  
+Trop de création humaine engendre de la destruction de la nature.  
+134  
+La peur doit se vaincre mais toutes les peurs ne peuvent être vaincues, la peur diminue l’immunité.  
+135  
+Il faut si on le peut sans risque, guérir sans médicaments car cela fortifie notre organisme, par exemple en bien mangeant équilibré ou avec des remèdes naturels. Si la seule solution efficace est un médicament ou une autre méthode sûre, il faut y aller aussi.  
+136  
+C’est en s’éloignant de ce que l’on aime, qu’on l’aime encore plus.  
+137  
+Nous sommes tous en parti programmés à la naissance mais le libre arbitre permet de le modifier.  
+138  
+Il y a trois grandes choses en nous, notre programmation (instinctive, tempérament), ce qui nous est donné (éducation, cadre de vie) et ce que l'on va chercher (libre arbitre et savoir).  
+139  
+L’individu d’un jour n’est pas forcément l’individu d’un autre jour.  
+140  
+La violence n’est tolérable que dans la fiction.  
+141  
+L’originalité alimente les trouvailles, de l’isolement naît l’originalité.  
+142  
+Ce que l’on dit n’est pas toujours le reflet de ce que l’on pense. Ce que l’on pense n’est pas toujours ce que l’on dit. Enfin, ce que l’on dit et ce que l’on pense peut changer.  
+143  
+Il est plus facile de s’intéresser aux choses quand on est de bonne humeur.  
+144  
+Nous ne sommes pas vraiment racistes quand nous avons des goûts et des préférences (ex : préférer les gens beaux) mais nous devons respecter les autres sans les discriminer ou avoir de la haine pour ne pas tomber dans le racisme.  
+Il y a les racistes énergétiques dont tu ne plais pas à cause de ton énergie, parce que tu n’a pas assez une conscience de ruche ou qui t’invente des défauts.  
+145  
+On n’est pas le même en fonction des personnes que l’on côtoie.  
+146  
+Juger à l’apparence est impossible mais cela donne une indication.  
+147  
+L’antagonisme de la vie sur Terre.  
+La nature est à la fois horrible et magnifique en 3ème dimension.  
+La prédation et les guerres animales ou humaines ainsi que les accidents hasardeux ou par manque d’intelligence ou climatiques (chaleur, sécheresse, tornade, vent, inondation, froid, éruption volcanique), maladies et débilités peuvent rendre la vie horrible.  
+La beauté de la nature et des paysages, la diversité des formes de toutes choses, l’intelligence, toutes les inventions humaines et toutes les sensations peuvent rendre la vie magnifique.  
 Les opposés de la vie obligent à s’adapter, à inventer, l’inspiration des autres engendre les combinaisons de la création se diversifiant en multitudes aspects.
-Le mal en excés ou les cataclysmes de la Terre ou catastrophes stellaires ou de l’espace peuvent détruire la richesse créative, la civilisation devra toujours trouver un moyen d’accés pour échapper à sa planète et s’enrichir de nouveaux partages extraterrestres, d’une nouvelle Terre espérée ou de vivre dans l’espace.
-L’équilibre malsain de la vie sur Terre ne veut pas dire que c’est le mode normal sur toutes les planètes de l’univers, on doit créer des planètes avec moins de prédations voir pas du tout pour les espèces sensibles surtout physiquement par la sensation de douleur physique.
-Une civilisation plus ou moins négative avancée technologiquement peut implanter des espèces ou en créer de manière génétique ou bouleverser un équilibre antérieur à leurs interventions.
-Quand on invente trop de mauvaises choses, il devient de plus en plus difficile d’éliminer un problème sans en provoquer un autre différent par l’élimination du problème précédent.
-148
-La vie est toujours s’occuper et le bonheur.
-149
-Pardonner soulage la conscience.
-150
-Le chat est à la truite ce que le cochon est à la carpe.
+Le mal en excès ou les cataclysmes de la Terre ou catastrophes stellaires ou de l’espace peuvent détruire la richesse créative, la civilisation devra toujours trouver un moyen d’accès pour échapper à sa planète et s’enrichir de nouveaux partages extraterrestres, d’une nouvelle Terre espérée ou de vivre dans l’espace. 
+L’équilibre malsain de la vie sur Terre ne veut pas dire que c’est le mode normal sur toutes les planètes de l’univers, on doit créer des planètes avec moins de prédations voir pas du tout pour les espèces sensibles surtout physiquement par la sensation de douleur physique.  
+Une civilisation plus ou moins négative avancée technologiquement peut implanter des espèces ou en créer de manière génétique ou bouleverser un équilibre antérieur à leurs interventions. 
+Quand on invente trop de mauvaises choses, il devient de plus en plus difficile d’éliminer un problème sans en provoquer un autre différent par l’élimination du problème précédent.  
+148  
+La vie est toujours s’occuper et le bonheur.  
+149  
+Pardonner soulage la conscience.  
+150  
+Le chat est à la truite ce que le cochon est à la carpe.  
 
-Le chat parfait
+Le chat parfait  
 
-Docile et joueur,	
-il est beau comme une fleur.
-Bon grimpeur avec griffes rétractiles,
-il est souple et agile.
-Assez petit pour être sans danger,
-sans besoin d’aller le promener.
-Animal sans mauvaise senteur,
-il est bon laveur.
-Il fait ses besoins dans la litière,
-pas dehors par terre.
-Douceur d’un pelage idéal,
-sublimes dessins tigrés symétriques et royales.
-Jolie voix amusante,
-il nous offre une vie plus envoutante.
-Fidèle à sa maison,
-c’est une belle attraction.
-Empereur de la beauté,
-il apporte félicité.
+Docile et joueur,  
+il est beau comme une fleur.  
+Bon grimpeur avec griffes rétractiles,  
+il est souple et agile.  
+Assez petit pour être sans danger,  
+sans besoin d’aller le promener.  
+Animal sans mauvaise senteur,  
+il est bon laveur.  
+Il fait ses besoins dans la litière,  
+pas dehors par terre.  
+Douceur d’un pelage idéal,  
+sublimes dessins tigrés symétriques et royales.  
+Jolie voix amusante,  
+il nous offre une vie plus envoutante.  
+Fidèle à sa maison,  
+c’est une belle attraction.  
+Empereur de la beauté,  
+il apporte félicité.  
 
-Sylvain Meili (2019 : n°4)
+Sylvain Meili (2019 : n°4)  
 
-151
-On s'amuse plus facilement avec une part d’humour.
-152
-Il y a un savoir donné et un savoir à chercher.
-153
-Le débat se construit dans la tolérance.
-154
-Un individu n’est presque rien sans les autres.
-155
-Notre code génétique ou notre apparence influence notre manière d’être.
-156
-Si l’ennemi t’agresse, reste neutre, évite-le, sinon raisonne-le ou au pire débarrasse-toi-en par la force.
-157
-Chacun de nous doit avoir au moins un point fort.
-158
-Nous sommes des nuages qui parcourent sans cesse le ciel à la recherche du bonheur.
-159
-On n’est pas ce que l’on est, on est ce que l’on devient.
-160
-On peut partager son bonheur mais pas son malheur.
-161
-Ce qui est difficile à court terme peut être facile à long terme.
-162
-Quand on est seul, il faut être encore plus fort.
-163
-La douceur peut cacher la puissance.
-164
-La pensée influence l’organisme.
-165
-De l’épreuve surmontée naît une plus grande force.
-166
-Le maître n’a pas toujours raison.
-167
-Il y a trois façons de réussir sa vie : être heureux, contribuer au monde ou évoluer spirituellement.
-168
-Il ne faut pas donner pour attendre en retour, cela doit être naturel.
-169
-Le passé ne doit pas être un fardeau pour le présent et l'avenir.
-170
-Un plaisir est moins appréciable quand il est trop fréquent.
-171
-On devrait être ce que l’on veut être et non pas ce que l’on nous impose d’être.
-172
-Un corps sale salit le mental.
-173
-On est plus jaloux des vantards qui réussissent que des modestes qui réussissent.
-174
-La fusion du ying (mal) et du yang (bien) donne la voie du chemin central.
-175
-Trop profiter n’est valable qu’à court terme.
-176
-Libre dans son corps, libre d'esprit donc libre dans l'action.
-177
-Ne pas se dévoiler, c'est cultiver son jardin secret.
-178
-Passer l'épreuve pour mieux s'orienter.
-179
-Il est plus facile d’être meilleur selon l’époque.
-180
-Une voix douce comme de la soie, étincelante telle une fleur de nénuphar et mouvante tel un dragon au firmament.
+151  
+On s'amuse plus facilement avec une part d’humour.  
+152  
+Il y a un savoir donné et un savoir à chercher.  
+153  
+Le débat se construit dans la tolérance.  
+154  
+Un individu n’est presque rien sans les autres.  
+155  
+Notre code génétique ou notre apparence influence notre manière d’être.  
+156  
+Si l’ennemi t’agresse, reste neutre, évite-le, sinon raisonne-le ou au pire débarrasse-toi-en par la force.  
+157  
+Chacun de nous doit avoir au moins un point fort.  
+158  
+Nous sommes des nuages qui parcourent sans cesse le ciel à la recherche du bonheur.  
+159  
+On n’est pas ce que l’on est, on est ce que l’on devient.  
+160  
+On peut partager son bonheur mais pas son malheur.  
+161  
+Ce qui est difficile à court terme peut être facile à long terme.  
+162  
+Quand on est seul, il faut être encore plus fort.  
+163  
+La douceur peut cacher la puissance.  
+164  
+La pensée influence l’organisme.  
+165  
+De l’épreuve surmontée naît une plus grande force.  
+166  
+Le maître n’a pas toujours raison.  
+167  
+Il y a trois façons de réussir sa vie : être heureux, contribuer au monde ou évoluer spirituellement.  
+168  
+Il ne faut pas donner pour attendre en retour, cela doit être naturel.  
+169  
+Le passé ne doit pas être un fardeau pour le présent et l'avenir.  
+170  
+Un plaisir est moins appréciable quand il est trop fréquent.  
+171  
+On devrait être ce que l’on veut être et non pas ce que l’on nous impose d’être.  
+172  
+Un corps sale salit le mental.  
+173  
+On est plus jaloux des vantards qui réussissent que des modestes qui réussissent.  
+174  
+La fusion du ying (mal) et du yang (bien) donne la voie du chemin central.  
+175  
+Trop profiter n’est valable qu’à court terme.  
+176  
+Libre dans son corps, libre d'esprit donc libre dans l'action.  
+177  
+Ne pas se dévoiler, c'est cultiver son jardin secret.  
+178  
+Passer l'épreuve pour mieux s'orienter.  
+179  
+Il est plus facile d’être meilleur selon l’époque.  
+180  
+Une voix douce comme de la soie, étincelante telle une fleur de nénuphar et mouvante tel un dragon au firmament.  
 
-181
+181  
 
-La vie est faite pour être partagée.
+La vie est faite pour être partagée.  
 
-La beauté asiatique
+La beauté asiatique  
 
-Délicate comme un nénuphar blanc flottant sur l’eau pure.
-Sa beauté est fragile mais son visuel est puissant.
-Sa peau douce à la couleur idéale.
-Son visage sublime sans maquillage.
-Ses cheveux divins et doux comme de la soie.
-Ses yeux incrustés comme un bijou inestimable.
-Sa voix est envoutante et ses mots exquis.
-Ses belles courbes posées comme un jardin parfait.
-Sa sagesse est la dernière chose à rêver pour combler le tout.
-Pour l’éternité soyons ensemble.
+Délicate comme un nénuphar blanc flottant sur l’eau pure.  
+Sa beauté est fragile mais son visuel est puissant.  
+Sa peau douce à la couleur idéale.  
+Son visage sublime sans maquillage.  
+Ses cheveux divins et doux comme de la soie.  
+Ses yeux incrustés comme un bijou inestimable.  
+Sa voix est envoutante et ses mots exquis.  
+Ses belles courbes posées comme un jardin parfait.  
+Sa sagesse est la dernière chose à rêver pour combler le tout.  
+Pour l’éternité soyons ensemble.  
 
-Sylvain Meili (2019 : n°5)
+Sylvain Meili (2019 : n°5)  
 
-182
-Le jardin parfait est la réunion des principales beautés de la nature.
-183
-La mort d'un arbre n'est pas la mort de sa beauté.
-184
-Il y a de bons et de mauvais mensonges comme il y a de bonnes ou mauvaises vérités en fonction de la situation.
-185
-Le don d’un bouquet de fleurs que l’on cueille a plus de valeur sentimentale qu’un bouquet acheté car le temps qu’on le confectionne, c’est du temps où l’on pense à celui ou celle qui le recevra.
-186
-Il faut parfois subir un peu l’injustice ou la défaite pour amener plus de justice et la victoire.
-La victoire du mal est toujours sa future défaite sauf si il rejoint la lumière.
-187
-Quand le destin ne vient pas à soi, c’est à soi-même de construire son destin.
-188
-Nous sommes tous unis divisés à l’infini.
-189
-À la base, la vie est unique mais pour ne pas être seul et s’expérimenter, elle s’est déployée à l’infini.
-190
-On voit plus la connerie des autres que sa propre connerie.
-191
-Si nous ne sommes pas égaux dans la vie, nous le serons peut-être dans le destin.
-192
-La colère fait perdre patience.
-193
-La vie est un éventail d’émotions.
-194
-Ce n’est pas parce qu’il y a quelqu’un pour nettoyer que l’on doit se permettre de salir.
-195
-La nature est un équilibre sans justice sur Terre.
-196
-Le maître peut parfois apprendre de l’élève.
-197
-Se venger est une perte de temps, empêcher de nuire est une solution.
-198
-Il y a l’effort actif et l’effort passif.
-199
-Ce qui ne nous affaiblit pas nous rend plus fort est faux, les épreuves peuvent nous affaiblir ou nous rendre plus fort.
-200
-Les arguments vides
-Il y a des personnes qui utilisent des arguments vides pour se justifier tel que :
-Ça fait longtemps que ça existe. 
-Il y a (zéro) personne qui pense comme toi ou la plupart des gens ne pensent pas comme toi. 
-Parce que c’est comme ça. 
-Ça ne se fait pas. 
-En complément : les moujoncs disent aussi, j’ai vécu avant toi (apparemment, t’as pas bien appris et t’es très lent), tu n’es pas normal (tu es dans la normalité d’un troupeau de bas niveau et mon anormalité est d’un niveau supérieur ou c’est plus proche du niveau de la sagesse universelle, je ne suis pas un imitateur, je suis empereur de moi-même en allant vers le meilleur ou des choses justes, pas vers le troupeau), tu es dans la connerie (c’est tout, tu n’as pas d’arguments vérifiables)
-201
-Trop de gentillesse amène à la faiblesse. 
-La gentillesse équilibrée est la voie juste.
-202
-Quelques secondes peuvent changer toute une vie.
-203
-Le hasard des choses ne donne pas la même chance à tout le monde.
-204
-Avec quatre saisons, on apprécie mieux le temps.
-205
-La vie, c’est être, avoir, et vouloir mais sans l’addiction qui nous fait se sentir mal.
-206
-On doit écouter ses parents mais les parents doivent aussi écouter leurs enfants.
-207
-L’intelligence est le moteur et la sagesse est le guide.
-208
-Ce qui est injuste doit être changé mais il faut le prouver, ce qui est inutile doit être changer.
-209
-À quoi sert le rituel s’il n’apporte rien de positif.
-210
-Pauvre de nature mais riche d’esprit.
-211
-Une mauvaise vie entraîne la crispation et cette crispation entretient le mal-être comme un cercle sans fin.
-212
-On peut gâter quelqu’un seulement s’il n’est pas perverti par un narcissisme naissant.
-213
-La beauté peut être morale, physique, naturelle ou artificielle.
-214
-La bêtise est immensément répandue, à nous de faire le tri et de nous débarrasser de notre propre bêtise.
-215
-La bêtise se répand vite mais la sagesse est longue à construire.
-216
-On peut être conscient de sa bêtise comme on peut ne pas l’être.
-217
-Ceux qui sont contre l’avortement et qui disent « avorter c’est tuer » ne devraient donc pas manger de viande si l’animal a été tué.
-218
-On est humain mais un animal a aussi un esprit sauf qu’il est resté au stade de petit enfant.
-219
-On peut mentir et dire la vérité tout en ayant le même état d’esprit, jamais une machine ne pourra déceler à 100% la vérité ou le mensonge sauf peut-être si c’est quantique.
-220
-Mechanceté et perversité
-Le méchant se venge toujours plus fort et plus longtemps même si on a l’erreur de lui faire une toute petite méchanceté.
-Le pervers présente surtout en premier critère un manque d’empathie, il peut aimer les sensations fortes malsaines comme voir la souffrance ou l’infliger, la vengeance est une forme de perversité, être très capricieux avec un sentiment de supériorité fausse, mentir pour montrer sa fausse supériorité.
-Inciter les autres à faire des erreurs pour les manipuler, le chantage, sa souffrance peut-être aussi le carburant pour déverser son mal être sur quelqu’un pour ne pas se sentir ignorer, rendre la ou les personnes dépendantes de lui et possiblement isolés pour mieux les contrôler, ne pas admettre ses erreurs sauf si cela sert la manipulation.
-Les quelques cadeaux offerts sont pour te contrôler et le chantage, un faux cadeau qui lui appartient et qui n’est donc pas vraiment à toi.
-Etre d’abord sympathique par calcul et non par sincérité.
-Gagner en pouvoir sans se soucier des mauvaises conséquences pour les autres.
-221
-Il faut savoir attendre plutôt que de se précipiter.
-222
-Il est plus facile d’aider moins chanceux que soi.
-223
-Il vaut mieux un ami à vie que plein d’amis de passage.
-224
-La différence des humains est la force du progrès.
-225
-Les gens s’influencent les uns les autres.
-226
-Essaye par toi-même avant de demander aux autres.
-227
-La personne mauvaise laisse toujours l’autre faire à sa place.
-228
-Instruis-toi pour ne pas te faire piéger.
-229
-Est mauvais celui qui répète tout ce qu’il entend, grand trouble il sèmera.
-230
-Plus tu parles, plus on te critique.
-231
-La plus belle montagne n’est pas forcément la plus haute.
-Une montagne de proverbes plus haute en contenus peut être plus basse en beautés et contenus diversifiés comme les vraies montagnes dans la nature.
-232
-N’envie pas l’autre, donne envie à ta vie.
-La noblesse fait l’envie du rêve épique.
-233
-Nul besoin de se toucher pour dire bonjour.
-234
-Ne pas se laisser programmer par les autres, aller vers le bien et la vérité.
-235
-Chanter juste est bien mais avoir une belle voix est encore mieux.
-236
-On apprend surtout en faisant plus qu’en regardant.
-237
-À trop te laver tu vas te salir.
-238
-Un bon fruit est un fruit qui ne brille pas trop de produit néfaste.
-239
-Un petit sourire préserve mieux qu’un grand sourire.
-240
-À commettre trop d’erreurs, on peut être rattrapé par le passé.
-241
-Il est plus facile d’être gentil quand on n’est pas accablé par le malheur.
-242
-Pour préserver ce que tu aimes, caches-le parfois.
-243
-Le chien aboie après le chat, le chat regarde le chien.
-244
-À trop critiquer les autres, tu ne te critiques plus.
-245
-Certains ont plus le sens de l’esthétique que d’autres.
-246
-D’un manque de bienveillance, la méchanceté se nourrit.
-247
-Trop de monde sur terre déséquilibre la planète.
-248
-Ne sois pas trop généreux ou l’on profitera de toi.
-249
-Commence par le simple avant le compliqué.
-250
-Une forêt sans ancêtres n’est pas une véritable forêt.
+182  
+Le jardin parfait est la réunion des principales beautés de la nature.  
+183  
+La mort d'un arbre n'est pas la mort de sa beauté.  
+184  
+Il y a de bons et de mauvais mensonges comme il y a de bonnes ou mauvaises vérités en fonction de la situation.  
+185  
+Le don d’un bouquet de fleurs que l’on cueille a plus de valeur sentimentale qu’un bouquet acheté car le temps qu’on le confectionne, c’est du temps où l’on pense à celui ou celle qui le recevra.  
+186  
+Il faut parfois subir un peu l’injustice ou la défaite pour amener plus de justice et la victoire.  
+La victoire du mal est toujours sa future défaite sauf si il rejoint la lumière.  
+187  
+Quand le destin ne vient pas à soi, c’est à soi-même de construire son destin.  
+188  
+Nous sommes tous unis divisés à l’infini.  
+189  
+À la base, la vie est unique mais pour ne pas être seul et s’expérimenter, elle s’est déployée à l’infini.  
+190  
+On voit plus la connerie des autres que sa propre connerie.  
+191  
+Si nous ne sommes pas égaux dans la vie, nous le serons peut-être dans le destin.  
+192  
+La colère fait perdre patience.  
+193  
+La vie est un éventail d’émotions.  
+194  
+Ce n’est pas parce qu’il y a quelqu’un pour nettoyer que l’on doit se permettre de salir.  
+195  
+La nature est un équilibre sans justice sur Terre.  
+196  
+Le maître peut parfois apprendre de l’élève.  
+197  
+Se venger est une perte de temps, empêcher de nuire est une solution.  
+198  
+Il y a l’effort actif et l’effort passif.  
+199  
+Ce qui ne nous affaiblit pas nous rend plus fort est faux, les épreuves peuvent nous affaiblir ou nous rendre plus fort.  
+200  
+Les arguments vides  
+Il y a des personnes qui utilisent des arguments vides pour se justifier tel que :  
+Ça fait longtemps que ça existe.  
+Il y a (zéro) personne qui pense comme toi ou la plupart des gens ne pensent pas comme toi.  
+Parce que c’est comme ça.  
+Ça ne se fait pas.  
+En complément : les moujoncs disent aussi, j’ai vécu avant toi (apparemment, t’as pas bien appris et t’es très lent), tu n’es pas normal (tu es dans la normalité d’un troupeau de bas niveau et mon anormalité est d’un niveau supérieur ou c’est plus proche du niveau de la sagesse universelle, je ne suis pas un imitateur, je suis empereur de moi-même en allant vers le meilleur ou des choses justes, pas vers le troupeau), tu es dans la connerie (c’est tout, tu n’as pas d’arguments vérifiables).  
+201  
+Trop de gentillesse amène à la faiblesse.  
+La gentillesse équilibrée est la voie juste.  
+202  
+Quelques secondes peuvent changer toute une vie.  
+203  
+Le hasard des choses ne donne pas la même chance à tout le monde.  
+204  
+Avec quatre saisons, on apprécie mieux le temps.  
+205  
+La vie, c’est être, avoir, et vouloir mais sans l’addiction qui nous fait se sentir mal.  
+206  
+On doit écouter ses parents mais les parents doivent aussi écouter leurs enfants.  
+207  
+L’intelligence est le moteur et la sagesse est le guide.  
+208  
+Ce qui est injuste doit être changé mais il faut le prouver, ce qui est inutile doit être changer.  
+209  
+À quoi sert le rituel s’il n’apporte rien de positif.  
+210  
+Pauvre de nature mais riche d’esprit.  
+211  
+Une mauvaise vie entraîne la crispation et cette crispation entretient le mal-être comme un cercle sans fin.  
+212  
+On peut gâter quelqu’un seulement s’il n’est pas perverti par un narcissisme naissant.  
+213  
+La beauté peut être morale, physique, naturelle ou artificielle.  
+214  
+La bêtise est immensément répandue, à nous de faire le tri et de nous débarrasser de notre propre bêtise.  
+215  
+La bêtise se répand vite mais la sagesse est longue à construire.  
+216  
+On peut être conscient de sa bêtise comme on peut ne pas l’être.  
+217  
+Ceux qui sont contre l’avortement et qui disent « avorter c’est tuer » ne devraient donc pas manger de viande si l’animal a été tué.  
+218  
+On est humain mais un animal a aussi un esprit sauf qu’il est resté au stade de petit enfant.  
+219  
+On peut mentir et dire la vérité tout en ayant le même état d’esprit, jamais une machine ne pourra déceler à 100% la vérité ou le mensonge sauf peut-être si c’est quantique.  
+220  
+Méchanceté et perversité  
+Le méchant se venge toujours plus fort et plus longtemps même si on a l’erreur de lui faire une toute petite méchanceté.  
+Le pervers présente surtout en premier critère un manque d’empathie, il peut aimer les sensations fortes malsaines comme voir la souffrance ou l’infliger, la vengeance est une forme de perversité, être très capricieux avec un sentiment de supériorité fausse, mentir pour montrer sa fausse supériorité.  
+Inciter les autres à faire des erreurs pour les manipuler, le chantage, sa souffrance peut-être aussi le carburant pour déverser son mal être sur quelqu’un pour ne pas se sentir ignorer, rendre la ou les personnes dépendantes de lui et possiblement isolés pour mieux les contrôler, ne pas admettre ses erreurs sauf si cela sert la manipulation.  
+Les quelques cadeaux offerts sont pour te contrôler et le chantage, un faux cadeau qui lui appartient et qui n’est donc pas vraiment à toi.  
+Être d’abord sympathique par calcul et non par sincérité.  
+Gagner en pouvoir sans se soucier des mauvaises conséquences pour les autres.  
+221  
+Il faut savoir attendre plutôt que de se précipiter.  
+222   
+Il est plus facile d’aider moins chanceux que soi.  
+223  
+Il vaut mieux un ami à vie que plein d’amis de passage.  
+224  
+La différence des humains est la force du progrès.  
+225  
+Les gens s’influencent les uns les autres.  
+226  
+Essaye par toi-même avant de demander aux autres.  
+227  
+La personne mauvaise laisse toujours l’autre faire à sa place.  
+228  
+Instruis-toi pour ne pas te faire piéger.  
+229  
+Est mauvais celui qui répète tout ce qu’il entend, grand trouble il sèmera.  
+230  
+Plus tu parles, plus on te critique.  
+231  
+La plus belle montagne n’est pas forcément la plus haute.  
+Une montagne de proverbes plus haute en contenus peut être plus basse en beautés et contenus diversifiés comme les vraies montagnes dans la nature.  
+232  
+N’envie pas l’autre, donne envie à ta vie.  
+La noblesse fait l’envie du rêve épique.  
+233  
+Nul besoin de se toucher pour dire bonjour.  
+234  
+Ne pas se laisser programmer par les autres, aller vers le bien et la vérité.  
+235  
+Chanter juste est bien mais avoir une belle voix est encore mieux.  
+236  
+On apprend surtout en faisant plus qu’en regardant.  
+237  
+À trop te laver tu vas te salir.  
+238  
+Un bon fruit est un fruit qui ne brille pas trop de produit néfaste.  
+239  
+Un petit sourire préserve mieux qu’un grand sourire.  
+240  
+À commettre trop d’erreurs, on peut être rattrapé par le passé.  
+241  
+Il est plus facile d’être gentil quand on n’est pas accablé par le malheur.  
+242  
+Pour préserver ce que tu aimes, caches-le parfois.  
+243  
+Le chien aboie après le chat, le chat regarde le chien.  
+244  
+À trop critiquer les autres, tu ne te critiques plus.  
+245  
+Certains ont plus le sens de l’esthétique que d’autres.  
+246  
+D’un manque de bienveillance, la méchanceté se nourrit.  
+247  
+Trop de monde sur terre déséquilibre la planète.  
+248  
+Ne sois pas trop généreux ou l’on profitera de toi.  
+249  
+Commence par le simple avant le compliqué.  
+250  
+Une forêt sans ancêtres n’est pas une véritable forêt.  
 
 Forêt impériale
 
