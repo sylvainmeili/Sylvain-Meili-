@@ -1271,134 +1271,134 @@ nous laisse en son cœur entrer.
 
 Sylvain Meili (2020 : n°6)  
 
-251
-Celui qui veut faire du mal à autrui se fait mal à lui-même, et celui qui fait du bien aux autres se fait du bien.
-252
-Certains s’enrichissent en construisant, d’autres en détruisant et d’autres sans rien faire.
-253
-L’homme et la femme ont le même esprit mais celui-ci s’est adapté au corps.
-254
-Le désespoir amène à la déchéance.
-255
-On peut être diplomate sans avoir de bonnes idées et avoir de bonnes idées en étant un solitaire.
-256
-Le diplomate se doit d’avoir des conseillers.
-257
-La musique que l’on écoute reflète un peu de soi-même.
-Avec toute la musique inventée, il est évident qu’ils existent des bouts de mélodie se ressemblant ou identique, donc ne pas créer de problèmes pour si peu car une personne a quelques accords similaires.
-J’invente directement des mélodies en apprenant un instrument pour gagner du temps.
-258
-Être riche n’est pas une raison pour gaspiller.
-259
-Qui attend trop se fait prendre de court.
-260
-Dans une famille, il n’y a pas de chef mais deux parents.
-261
-Détruire un système à cause d’un petit mal fait encore plus grand mal.
-262
-Il est mieux d’avoir une seule grande décharge de déchets que beaucoup de petites décharges qui salissent encore plus la nature.
-263
-On doit faire disparaître le plus possible la souffrance de l’univers.
-264
-C’est en accablant l’autre de ses défauts que l’on ralentit son évolution.
-265
-À être trop nationaliste, on passe à côté de belles choses.
-266
-La vie est comme un nœud à dénouer à la découverte de tous ses trésors.
-267
-Seule l’eau a toujours la victoire de chuter.
-268
-La beauté n’a pas d’excès, seule la façon d’y arriver peut être un excès.
-269
-Plus facile de travailler quand on a la conscience tranquille.
-270
-Un fou enfermé devient plus fou sans rééducation.
-271
-Lors d’un premier rendez-vous, c’est chacun sa consommation pour l’addition au restaurant sinon c’est de l’injustice, à moins de vouloir payer par générosité ou parce que quelqu’un est pauvre. Ce n’est pas plus à l’homme de payer que la femme si elle gagne de l’argent, pas comme les anciennes traditions, le vrai amour ne doit pas s’acheter avec de l’argent.
-Ne demande pas si on peut se revoir car la réponse n’est pas sûre d’être véridique.
-272
-Un bon parfum n’a pas de sexe, soit tu trouves que ça sent bon ou pas.
-Les couleurs n’appartiennent pas à un sexe, le rose n’est pas réservé aux filles, c’est une programmation mentale et sociétale qui a habitué à croire ça.
-273
-Plus on se regarde dans le miroir plus on a de chances d’améliorer sa beauté.
-274
-Un arbre qui tombe bien fait une belle décoration. 
-Ce n’est pas parce qu’un arbre tombe au-dessus d’un ruisseau qu’il faut le couper car cela peut être très beau, rare, surtout si l’arbre est gros.
-275
-Dans la nature et le paysage, ce qui est beau et rare doit être préservé même ce qui est gênant pour certains.
-276
-Avec un véritable ami, tu peux t’ennuyer avec, il restera.
-277
-Les rêves peuvent être de l’imagination, holographiques, prémonitoires ou des vies passées, un voyage dans une autre dimension, avec des vrais ou fausses personnes, en astral, encore faut-il s’en rappeler parfaitement. Voir proverbe 916.
-278
-Ce que je suis est ce que je décide d’être.
-279
-La mocheté peut être créée par le mal mais le mal peut s’emparer de la beauté.
-280
-S’il y avait plus de gens beaux et moins d’idiots, il y aurait moins de célibataires.
-281
-Ne court pas trop vite ou la flamme s’éteindra.
-282
-À deux beautés égales et esprits égaux, le ou la plus jeune n’est pas forcément le ou la mieux, l’avenir le dira.
-283
-Ne soit pas trop expressif ou tu vieilliras vite. 
+251  
+Celui qui veut faire du mal à autrui se fait mal à lui-même, et celui qui fait du bien aux autres se fait du bien.  
+252  
+Certains s’enrichissent en construisant, d’autres en détruisant et d’autres sans rien faire.  
+253  
+L’homme et la femme ont le même esprit mais celui-ci s’est adapté au corps.  
+254  
+Le désespoir amène à la déchéance.  
+255  
+On peut être diplomate sans avoir de bonnes idées et avoir de bonnes idées en étant un solitaire.  
+256  
+Le diplomate se doit d’avoir des conseillers.  
+257  
+La musique que l’on écoute reflète un peu de soi-même.  
+Avec toute la musique inventée, il est évident qu’ils existent des bouts de mélodie se ressemblant ou identique, donc ne pas créer de problèmes pour si peu car une personne a quelques accords similaires.  
+J’invente directement des mélodies en apprenant un instrument pour gagner du temps.  
+258  
+Être riche n’est pas une raison pour gaspiller.  
+259  
+Qui attend trop se fait prendre de court.  
+260  
+Dans une famille, il n’y a pas de chef mais deux parents.  
+261  
+Détruire un système à cause d’un petit mal fait encore plus grand mal.  
+262  
+Il est mieux d’avoir une seule grande décharge de déchets que beaucoup de petites décharges qui salissent encore plus la nature.  
+263  
+On doit faire disparaître le plus possible la souffrance de l’univers.  
+264  
+C’est en accablant l’autre de ses défauts que l’on ralentit son évolution.  
+265  
+À être trop nationaliste, on passe à côté de belles choses.  
+266  
+La vie est comme un nœud à dénouer à la découverte de tous ses trésors.  
+267  
+Seule l’eau a toujours la victoire de chuter.  
+268  
+La beauté n’a pas d’excès, seule la façon d’y arriver peut être un excès.  
+269  
+Plus facile de travailler quand on a la conscience tranquille.  
+270  
+Un fou enfermé devient plus fou sans rééducation.  
+271  
+Lors d’un premier rendez-vous, c’est chacun sa consommation pour l’addition au restaurant sinon c’est de l’injustice, à moins de vouloir payer par générosité ou parce que quelqu’un est pauvre. Ce n’est pas plus à l’homme de payer que la femme si elle gagne de l’argent, pas comme les anciennes traditions, le vrai amour ne doit pas s’acheter avec de l’argent.  
+Ne demande pas si on peut se revoir car la réponse n’est pas sûre d’être véridique.  
+272  
+Un bon parfum n’a pas de sexe, soit tu trouves que ça sent bon ou pas.  
+Les couleurs n’appartiennent pas à un sexe, le rose n’est pas réservé aux filles, c’est une programmation mentale et sociétale qui a habitué à croire ça.  
+273  
+Plus on se regarde dans le miroir plus on a de chances d’améliorer sa beauté.  
+274  
+Un arbre qui tombe bien fait une belle décoration.  
+Ce n’est pas parce qu’un arbre tombe au-dessus d’un ruisseau qu’il faut le couper car cela peut être très beau, rare, surtout si l’arbre est gros.  
+275  
+Dans la nature et le paysage, ce qui est beau et rare doit être préservé même ce qui est gênant pour certains.  
+276  
+Avec un véritable ami, tu peux t’ennuyer avec, il restera.  
+277  
+Les rêves peuvent être de l’imagination, holographiques, prémonitoires ou des vies passées, un voyage dans une autre dimension, avec des vrais ou fausses personnes, en astral, encore faut-il s’en rappeler parfaitement. Voir proverbe 916.  
+278  
+Ce que je suis est ce que je décide d’être.  
+279  
+La mocheté peut être créée par le mal mais le mal peut s’emparer de la beauté.  
+280  
+S’il y avait plus de gens beaux et moins d’idiots, il y aurait moins de célibataires.  
+281  
+Ne court pas trop vite ou la flamme s’éteindra.  
+282  
+À deux beautés égales et esprits égaux, le ou la plus jeune n’est pas forcément le ou la mieux, l’avenir le dira.  
+283  
+Ne soit pas trop expressif ou tu vieilliras vite.  
 Quand tu appuyes assez fort en faisant des rides, tu fais youp, yep, yap, yip. Youp, c’est sauter en général, les autres je les ai inventé pour rire).
-(Lever les sourcils (youp) crée pleins de rides au front et crée en plus ce que j’ai nommé « la ride du globe oculaire » sous le sourcil surtout pour les gens qui ont les sourcils éloignés des yeux, sourire à fond (yip), plisser les yeux (yep : pattes d’oie) fait des grosses rides, la ride verticale ou horizontale entre les deux yeux (yep v ou h). Le dormelissage (mon mot que j’ai inventé) permet de tirer légèrement sa peau du haut de la joue vers le bas contre l’oreiller pour avoir moins de cernes sous les yeux.
-Rester la bourche ouverte déforme l’expression du visage et accentue la crispation.
-284
-Être conscient de ses défauts est une chose mais il faut parfois quelqu’un pour les corriger.
-285
-Il faut renoncer à certains plaisirs éphémères pour assurer son avenir.
-286
+(Lever les sourcils (youp) crée pleins de rides au front et crée en plus ce que j’ai nommé « la ride du globe oculaire » sous le sourcil surtout pour les gens qui ont les sourcils éloignés des yeux, sourire à fond (yip), plisser les yeux (yep : pattes d’oie) fait des grosses rides, la ride verticale ou horizontale entre les deux yeux (yep v ou h). Le dormelissage (mon mot que j’ai inventé) permet de tirer légèrement sa peau du haut de la joue vers le bas contre l’oreiller pour avoir moins de cernes sous les yeux.  
+Rester la bourche ouverte déforme l’expression du visage et accentue la crispation.  
+284  
+Être conscient de ses défauts est une chose mais il faut parfois quelqu’un pour les corriger.  
+285  
+Il faut renoncer à certains plaisirs éphémères pour assurer son avenir.  
+286  
 Il ne faut jamais laisser le mal s’installer dans le corps même petit soit-il, il faut le traiter dès le début car le corps ne fait que s’user.
-287
-La nature n’est pas un modèle à suivre mais une source d’inspiration.
-288
-Le meilleur des amis n’est pas forcément celui qui vient te voir le plus.
-289
-Réussite de la vie égale QI (quotient intellectuel), circonstances et volonté.
-290
-Dans leurs mauvais côtés, les hommes sont des mauvais chiens et les femmes des mauvais serpents. 
-291
-Le manipulateur : il t’empêche de parler quand il est menacé mais te provoque et te laisse parler pour te piéger. Il sort les faits ou les phrases du contexte, les déforment. Il met des étiquettes sur des personnes, dans des catégories au lieu d’avoir des arguments, pour les discréditer. Sur un fait ponctuel, il fait croire qu’ils sont comme ça toute leur vie. Il crée des problèmes pour justifier des solutions qui sont des pièges.
-Le manipulateur s’abonne à ton compte pour que tu t’abonnes au sien puis te vire en espérant que t’oublies de te désabonner.
-L’arnaqueur peut paraître le plus crédible car il paraît le plus sympathique et te fait croire qu’il te laisse quelques chose en attendant qu’il te rembourse mais sachant qu’il avait de grandes probabilités que tu ne prennes pas sa chose en échange et de te faire rembourser après. Il te fait gagner de l’argent pour gagner ta confiance jusqu’à il te vole tout d’un coup (graphique du cour de l’argent à la bourse).
-292
-Ce n’est pas parce qu’il n’y a pas mieux qu’il ne faut plus s’améliorer.
-293
-Attention à ne pas confier tes rêves à n’importe qui, il pourrait te les voler, l’ironie du destin.
-294
-L’artificialisation et la privatisation de la nature
-Il y a des régions surpeuplées par leurs étalements ou mitage plutôt que par leur nombre d’habitants. 
-100 habitants par km2 (par exemple sur 500 000 km2), c’est un humain tous les 100 mètres en moyenne, ça fait beaucoup. 
-Il faut stopper l’augmentation de population à 100 habitants par kilomètre carré dans les zones où il y a aucun désert et cultivable à presque 100%.
-Il faut aussi laisser des zones sur la planète de grandes forêts sauvages de 100 ou plusieurs centaines de km de diamètre sans habitants.
-Ce n’est pas parce qu’on peut nourrir tout le monde qu’il n’y a pas de surpopulation. Toute colonisation humaine devrait être interdite dans les lieux les plus rares tels que des étendus de régions les plus sauvages, la privatisation de terrains des types de personnes aux actions négatives qui sont loin de sa maison devrait être interdite si c’est justifié et être accessible pour une nature pour tous. 
-Dans les plus beaux endroits, la construction de maisons te prive de tes meilleures territoires de promenade, réduit la nature et cela engendre du bruit. C’est mieux d’avoir une vallée ou un territoire de plusieurs kilomètres sauvages qu’une succession tous les 500 ou 1000 mètres sur des centaines de km dans beaucoup de départements, de maisons, de clôtures, de cabanes, et autres choses humaines. Il faut préserver des diamètres de plusieurs km et des longueurs comme les rivières et ruisseaux de plusieurs km de nature sauvage dans tous les départements. Équilibre entre population concentrée, plus étalée et grands espaces sauvages vides d’humains et d’exploitations.
+287  
+La nature n’est pas un modèle à suivre mais une source d’inspiration.  
+288  
+Le meilleur des amis n’est pas forcément celui qui vient te voir le plus.  
+289  
+Réussite de la vie égale QI (quotient intellectuel), circonstances et volonté.  
+290  
+Dans leurs mauvais côtés, les hommes sont des mauvais chiens et les femmes des mauvais serpents.  
+291  
+Le manipulateur : il t’empêche de parler quand il est menacé mais te provoque et te laisse parler pour te piéger. Il sort les faits ou les phrases du contexte, les déforment. Il met des étiquettes sur des personnes, dans des catégories au lieu d’avoir des arguments, pour les discréditer. Sur un fait ponctuel, il fait croire qu’ils sont comme ça toute leur vie. Il crée des problèmes pour justifier des solutions qui sont des pièges.  
+Le manipulateur s’abonne à ton compte pour que tu t’abonnes au sien puis te vire en espérant que t’oublies de te désabonner.  
+L’arnaqueur peut paraître le plus crédible car il paraît le plus sympathique et te fait croire qu’il te laisse quelques chose en attendant qu’il te rembourse mais sachant qu’il avait de grandes probabilités que tu ne prennes pas sa chose en échange et de te faire rembourser après. Il te fait gagner de l’argent pour gagner ta confiance jusqu’à il te vole tout d’un coup (graphique du cour de l’argent à la bourse).  
+292  
+Ce n’est pas parce qu’il n’y a pas mieux qu’il ne faut plus s’améliorer.  
+293  
+Attention à ne pas confier tes rêves à n’importe qui, il pourrait te les voler, l’ironie du destin.  
+294  
+L’artificialisation et la privatisation de la nature  
+Il y a des régions surpeuplées par leurs étalements ou mitage plutôt que par leur nombre d’habitants.   
+100 habitants par km2 (par exemple sur 500 000 km2), c’est un humain tous les 100 mètres en moyenne, ça fait beaucoup.   
+Il faut stopper l’augmentation de population à 100 habitants par kilomètre carré dans les zones où il y a aucun désert et cultivable à presque 100%.  
+Il faut aussi laisser des zones sur la planète de grandes forêts sauvages de 100 ou plusieurs centaines de km de diamètre sans habitants.  
+Ce n’est pas parce qu’on peut nourrir tout le monde qu’il n’y a pas de surpopulation. Toute colonisation humaine devrait être interdite dans les lieux les plus rares tels que des étendus de régions les plus sauvages, la privatisation de terrains des types de personnes aux actions négatives qui sont loin de sa maison devrait être interdite si c’est justifié et être accessible pour une nature pour tous.   
+Dans les plus beaux endroits, la construction de maisons te prive de tes meilleures territoires de promenade, réduit la nature et cela engendre du bruit. C’est mieux d’avoir une vallée ou un territoire de plusieurs kilomètres sauvages qu’une succession tous les 500 ou 1000 mètres sur des centaines de km dans beaucoup de départements, de maisons, de clôtures, de cabanes, et autres choses humaines. Il faut préserver des diamètres de plusieurs km et des longueurs comme les rivières et ruisseaux de plusieurs km de nature sauvage dans tous les départements. Équilibre entre population concentrée, plus étalée et grands espaces sauvages vides d’humains et d’exploitations.  
 Il y a parfois des villages ou villes au fond d’une vallée qui sont en équilibre entre la place que prennent les villages ou les villes et la place que prend la nature. Dans les villages à haute valeur paysagère, il est important d’interdire toute nouvelle construction pour empêcher de boucher presque toute la nature ou les meilleurs endroits accessibles comme coins de promenade pour les gens. En effet, ce sont souvent les fonds de vallées les endroits les plus beaux, donc ne pas boucher trop le fond de la vallée avec des maisons. Il faut laisser des prairies pour l’herbe, les légumes, parsementés d’arbres fruitiers.
 Dans les espaces de montagnes, collines et plateaux, on ne devrait pas être plus de 25 habitants au km2 avec des forêts de 5 kilomètres de diamètre.
-Quand on regarde le pays par satellite, il ne reste que des lambeaux qui ne sont pas miter par l’Homme.
-Il y a des abrutis qui ont construit une cabane de type maison dans la plus belle vallée sauvage qui était encore épargnée.
-Et les autres qui construisent des maisonnettes entre 2 villages alors que ce n’est pas constructible (acheter une caravane pour venir est plus intelligent), on peut ne pas avoir une vallée sauvage avec ces égoïstes. Quand on réduit ma liberté de promenade et ma nature sauvage, on réduit ma richesse.
-Ils habitent déjà dans un beau village mais veulent voler la nature des autres ou faire de l’argent en revendant plus cher. Le seul endroit où poussaient des bouquets de noisetier qui ont été coupé et où je ne peux plus me poser tranquillement.
-Les gens qui mettent des toiles et géotextiles en polypropylène (familles des plastiques) autour de leurs plantes pour ne pas désherber sont des gros pollueurs, ça part en lambeaux dans la nature et c’est moche.
-Quand tu es contre la construction d’une nouvelle maison pour garder ta tranquilité et la belle nature, le moujonc dit : tu n’aimes pas les humains, tue-toi, il y a plein de nature ici, tu en a profité ton enfance, t’habites en ville maintenant. Les phrases à la con, ils font d’un cas une généralité, je n’aime pas les conneries que font les humains. 
-On ne va pas construire des maisons à l’infini. Il faut préserver les zones les plus rares, comme ça les humains du village pourront continuer à aller partout, alors j’achète des terrains pour qu’ils puissent toujours se promener dedans donc les gens sont plus riches car ils ont plus de territoire de qualité à partager, et je partage les fruits. Je ne privatise pas la nature que j’achète donc je ne suis pas contre les humains, ça rend services à pleins d’humains contrairement à un terrain privatisé et je ne peux pas être contre moi-même car je suis un humain.
-Les humains vendent des terrains à construire des maisons dans les dernières zones plates du villlage au lieu de planter des arbres fruitiers, ils vont acheter au magasin alors qu’ils pourraient avoir des fruits près de chez eux. Ils me bouchent la vue du seul côté où je pouvais admirer la colline tranquillement à cet endroit et ils ont détruient une zone de jonquilles sauvages (narcisses).
-Dans un village il ne faut pas boucher les deux côtés de la rue sur 1 km, il faut laisser quelquefois les prairies au bord de la route pour faire plus diversifié et harmonieux.
-Pleins de plaisirs qu’on m’enlève à cause des gravats, clôtures, maisons, arbres magnifiques et centenaires coupés, lieux privatisés, plus les ronces qui s’accumulent, soit ils laissent la merde pousser, ronces, trop de bouleaux dans une belle prairie, soit ils enlèvent, privatisent, balancent des déchets et détériorent la nature, c’est la voie des moujoncs, pas la voie du milieu, à croire que je suis la seule personne intelligente qui fait du bien quand j’achête un terrain.Il y’en a un à qui j’avais dit de ne pas toucher aux autres arbres à part celui tombé par le vent qui mourrait qui se permet de couper des branches de plusieurs décennies sans autorisations comme un bout du noisetier et la branche d’épicéa qui tenait le noisetier dans la pente, après il risque de tomber dans longtemps, en plus il a une forme super originale et magnifique.
-295
-L’humain qui laisse aboyer son chien dehors trop souvent est vraiment un idiot et un emmerdeur.
-296
-Quand on fabrique un objet, on doit prévoir son recyclage donc tout déchet humain devrait être détruit ou recycler.
-Il faut savoir d’où viennent les objets ou la nourriture et dans quels conditions ils ont été fabriqué pour éviter de contribuer à l’injustice d’une surexploitation de la nature ou des gens et de la souffrance humaine et animale.
-297
-On voit ce qu’il reste de la nature mais en imaginant ce qu’il y a dans le sol, il reste encore moins.
-298
-Si tout le monde avait une maison avec un jardin, on ne verrait plus de nature sauvage, on verrait des constructions à perte de vue sur des milliers de km de la planète.
-299
-Chacun sa culture mais il faut savoir détruire le mal et la grande connerie.
-300
+Quand on regarde le pays par satellite, il ne reste que des lambeaux qui ne sont pas miter par l’Homme.  
+Il y a des abrutis qui ont construit une cabane de type maison dans la plus belle vallée sauvage qui était encore épargnée.  
+Et les autres qui construisent des maisonnettes entre 2 villages alors que ce n’est pas constructible (acheter une caravane pour venir est plus intelligent), on peut ne pas avoir une vallée sauvage avec ces égoïstes. Quand on réduit ma liberté de promenade et ma nature sauvage, on réduit ma richesse.  
+Ils habitent déjà dans un beau village mais veulent voler la nature des autres ou faire de l’argent en revendant plus cher. Le seul endroit où poussaient des bouquets de noisetier qui ont été coupé et où je ne peux plus me poser tranquillement.  
+Les gens qui mettent des toiles et géotextiles en polypropylène (familles des plastiques) autour de leurs plantes pour ne pas désherber sont des gros pollueurs, ça part en lambeaux dans la nature et c’est moche.  
+Quand tu es contre la construction d’une nouvelle maison pour garder ta tranquilité et la belle nature, le moujonc dit : tu n’aimes pas les humains, tue-toi, il y a plein de nature ici, tu en a profité ton enfance, t’habites en ville maintenant. Les phrases à la con, ils font d’un cas une généralité, je n’aime pas les conneries que font les humains.  
+On ne va pas construire des maisons à l’infini. Il faut préserver les zones les plus rares, comme ça les humains du village pourront continuer à aller partout, alors j’achète des terrains pour qu’ils puissent toujours se promener dedans donc les gens sont plus riches car ils ont plus de territoire de qualité à partager, et je partage les fruits. Je ne privatise pas la nature que j’achète donc je ne suis pas contre les humains, ça rend services à pleins d’humains contrairement à un terrain privatisé et je ne peux pas être contre moi-même car je suis un humain.  
+Les humains vendent des terrains à construire des maisons dans les dernières zones plates du villlage au lieu de planter des arbres fruitiers, ils vont acheter au magasin alors qu’ils pourraient avoir des fruits près de chez eux. Ils me bouchent la vue du seul côté où je pouvais admirer la colline tranquillement à cet endroit et ils ont détruient une zone de jonquilles sauvages (narcisses).  
+Dans un village il ne faut pas boucher les deux côtés de la rue sur 1 km, il faut laisser quelquefois les prairies au bord de la route pour faire plus diversifié et harmonieux.  
+Pleins de plaisirs qu’on m’enlève à cause des gravats, clôtures, maisons, arbres magnifiques et centenaires coupés, lieux privatisés, plus les ronces qui s’accumulent, soit ils laissent la merde pousser, ronces, trop de bouleaux dans une belle prairie, soit ils enlèvent, privatisent, balancent des déchets et détériorent la nature, c’est la voie des moujoncs, pas la voie du milieu, à croire que je suis la seule personne intelligente qui fait du bien quand j’achête un terrain.Il y’en a un à qui j’avais dit de ne pas toucher aux autres arbres à part celui tombé par le vent qui mourrait qui se permet de couper des branches de plusieurs décennies sans autorisations comme un bout du noisetier et la branche d’épicéa qui tenait le noisetier dans la pente, après il risque de tomber dans longtemps, en plus il a une forme super originale et magnifique.  
+295  
+L’humain qui laisse aboyer son chien dehors trop souvent est vraiment un idiot et un emmerdeur.  
+296  
+Quand on fabrique un objet, on doit prévoir son recyclage donc tout déchet humain devrait être détruit ou recycler.  
+Il faut savoir d’où viennent les objets ou la nourriture et dans quels conditions ils ont été fabriqué pour éviter de contribuer à l’injustice d’une surexploitation de la nature ou des gens et de la souffrance humaine et animale.  
+297  
+On voit ce qu’il reste de la nature mais en imaginant ce qu’il y a dans le sol, il reste encore moins.  
+298  
+Si tout le monde avait une maison avec un jardin, on ne verrait plus de nature sauvage, on verrait des constructions à perte de vue sur des milliers de km de la planète.  
+299  
+Chacun sa culture mais il faut savoir détruire le mal et la grande connerie.  
+300  
 Un jardin parfait est inspiré de la nature pour être optimisé.
 
 Songes des huit dragons du jardin de l’empereur
