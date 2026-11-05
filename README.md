@@ -2017,174 +2017,174 @@ qui saura reconnaître ma sagesse ?
 Sylvain Meili (2020 : n°9)  
 
 451  
-La chute d’eau tombe mais s’élève en beauté.
-452
-Les gens sont sympas quand tu penses comme eux. Quand tu sors de leur barrière de conscience, pour certains tu es l’idiot pour eux même si tu as raison.
-453
-La famille n’a pas à imposer les cadeaux qu’ils veulent faire à ton enfant si tu veux décider.
-454
-L’argument que l’idiot utilisera contre toi pour te décrédibiliser est que tu dis des conneries, c’est pour ça que tu n’as pas de travail et que tu n’es pas en couple alors que tu peux être plus sage que la plupart des couples qui ont un salaire.
-455
-On peut être plus utile à ne pas travailler pour un salaire facilement remplaçable par un autre qui ne fait rien si on fait des choses utiles pour la société qu’aucune personne n’aurait fait à notre place. 
-456
-Se sentir bien dans sa vie n’empêche pas de dire plein de conneries et on peut se sentir mal et être très évolué car le monde est injuste.
-457
+La chute d’eau tombe mais s’élève en beauté.  
+452  
+Les gens sont sympas quand tu penses comme eux. Quand tu sors de leur barrière de conscience, pour certains tu es l’idiot pour eux même si tu as raison.  
+453  
+La famille n’a pas à imposer les cadeaux qu’ils veulent faire à ton enfant si tu veux décider.  
+454  
+L’argument que l’idiot utilisera contre toi pour te décrédibiliser est que tu dis des conneries, c’est pour ça que tu n’as pas de travail et que tu n’es pas en couple alors que tu peux être plus sage que la plupart des couples qui ont un salaire.  
+455  
+On peut être plus utile à ne pas travailler pour un salaire facilement remplaçable par un autre qui ne fait rien si on fait des choses utiles pour la société qu’aucune personne n’aurait fait à notre place.  
+456  
+Se sentir bien dans sa vie n’empêche pas de dire plein de conneries et on peut se sentir mal et être très évolué car le monde est injuste.  
+457  
 Certains jouets sont tellement beaux que l’on peut considérer non plus comme des jouets mais comme des œuvres d’art à admirer.
-458
-Dessin
-Commencer pour l’enfant de dessiner avec des crayons à papier de couleurs est mieux que les feutres car ils sont moins polluants et durent beaucoup plus longtemps. 
-Un crayon dure au minimum 10 à 50 fois plus longtemps qu’un feutre.
-Certaines personnes savent faire des dessins presque photographiques avec ces crayons là en superposant les couches contrairement au feutre lourd d’encre et imprécis.
-Cela évite les graffitis des enfants de bas âge sur les murs.
-Tu peux attacher un dessin de ton enfant au mur pour lui faire plaisir mais aussi ne pas l’accrocher car il est très moche, les deux visions se valent.
-459
-Parfois on s’engueule sur deux idées qui ont la même valeur, la bonne idée n’est pas le problème, le problème est de s’engueuler.
-460
-On peut faire plaisir en disant un mensonge ou blesser utilement en disant une vérité, la solution est le résultat de circonstances.
-461
-La meilleure vengeance est de devenir le meilleur philosophe.
-On se venge par son destin quand on prouve aux autres qu’ils avaient tort d’avoir dit des bêtises sur nous. La vengeance par la réussite et la par la vérité sont les seules bonnes vengeances.
-462
-On peut toujours essayer des choses qui paraissent impossibles dans le présent et qui pourront être possibles dans le futur.
-463
-Seulement une partie de son savoir sert à quelque chose donc c’est préférable de ne pas apprendre des choses inutiles pour des choses plus utiles.
-464
-Quand deux idées s’opposent mais se valent, soit l’un suit l’idée de l’autre, soit on tire à pile ou face ou soit on annule tout.
-465
-L’idiot fait d’une petite chose toute une dramaturgie.
-466
-Merci aux idiots de m’avoir inspiré tant de proverbes mais ce n’est pas une raison pour que la bêtise continue.
-467
-L’idiot juge ta vie seulement sur une petite partie de ce que tu veux bien lui dire sur des idées fausses.
-468
-On est parfois obligé de raconter sa vie pour faire taire les mensonges sur soi.
-469
-Les plus forts négatifs veulent imposer leurs lois aux plus faibles, les seules lois à imposer sont les lois de la raison qui donnent le meilleur futur.
-470
-Il y a des personnalités plus sociables et des personnalités plus solitaires qui aiment la tranquillité et s’intéressent moins aux vies personnelles des autres mais veulent améliorer le monde. Quand on est différent, on a moins une personnalité passe partout.
-471
-Ne pas s’entraider assez, c’est laisser germer le malheur.
-472
-L’idiot râle quand les toilettes sont occupées et ça énerve la personne à l’intérieur, on ne dérange pas une personne aux toilettes sauf si c’est justifié.
-473
-On peut ne pas s’intéresser à la vie personnelle des autres mais faire beaucoup plus pour la planète que les gens qui s’intéressent à parler avec beaucoup de personnes.
-474
-Accepter dans le renoncement à exiger que l’autre pense plus à soi ou à un autre, c’est sa liberté.
-Dire que l’on parle trop de soi, alors tu peux aussi parler de ta vie sans que j’ai besoin de te le demander. On peut faire des efforts chacun dans la direction de l’autre, on doit aussi respecter le tempérament, certains aiment poser plus de questions, d’autres préfèrent qu’ils racontent leur vie naturellement.
-475
-S’énerver du refus d’une demande revient à transformer cette demande en ordre.
-476
-C’est en reliant les points les plus éloignés que le dessin de la vérité devient de plus en plus clair.
-477
-Un enfant doit participer aux tâches de la maison, s’il refuse, il faut le convaincre que si l’on refusait de l’aider il serait malheureux et que lui aussi il doit aider ses parents pour le bonheur de tous.
-478
-Le sage regarde loin dans l’avenir et s’intéresse à beaucoup de choses.
-Le pas (pied) sage ou le pas (pas être) sage : ça dépend des fois et du passage.
-Sage ou pas sage, la différence est le passage.
-479
-Occuper son temps rend plus heureux.
-480
-On applique à soi-même les rituels de la société par habitude ou pour ne pas se faire embêter et à devoir s’expliquer à chaque fois.
-481
-Les méchants ou injustices obligent à restreindre certaines libertés pour pouvoir atténuer plus de problèmes, il faut trouver l’équilibre en fonction des circonstances.
-Plus de sagesse c’est plus de libertés mais quand le mal est présent, c’est le plus fort qui se donne plus de libertés en limitant celle des autres.
-Plus il y a de sagesse moins il y a besoin de lois supplémentaires.
-482
-La liberté c’est pouvoir agir dans le bien sans être embêté par le mal.
-La sagesse est d’avoir un maximum de libertés sans nuire.
-Garder sa pureté, c’est faire ce qui nous rend heureux, pas se restreindre sous couvert d’une pureté illusoire.
-483
-Être très beau ou belle et ne pas avoir d’enfant, c’est mettre ses gênes à la poubelle.
-484
-Pour faire taire une vérité, le mal crée une fausse vérité parallèle pour discréditer la vraie vérité.
-485
-Parfois les proverbes paraissent beaux alors les gens trouvent ça bien même si c’est un mensonge.
-486
-Être soi-même, c’est ne pas obéir aux envies des autres.
-487
-Une personne qui a commis des fautes ne doit pas être moins respectée que les autres car cela augmente la négativité et n’a pas d’effet positif mais on peut lui demander s’il a compris sa faute et si non, on peut lui faire la morale.
-488
-Montrer la vérité
-La subtilité consiste à montrer aux gens qu’ils ont tord sans leur dire.
-Si on dit à quelqu’un qu’il a fait ou qu’il a dit des conneries ou a tord, même avec la condition d’avoir la preuve direct de raison et d’argumenter, il risque d’être contrarié, il vaut mieux supposer à propos de lui que d’affirmer pour ne pas avoir le mauvais rôle.
-Il est plus constructif de dire « je ne suis pas d’accord ou je ne crois pas à ça » sinon le mot connerie peut être prit pour une insulte et créer un conflit. On peut dire « je préfère faire comme ça » aussi « j’ai vu ça ou qu’il disait ça ici » pour le mettre sur le bon chemin sans faire croire que c’est notre opinion pour ne pas qu’il nous prend pour un con. Il faut essayer de trouver une chose qu’il a dite en disant que c’est bien, que l’on est d’accord, merci de m’avoir fait penser à cet argument, pour être plus sûr d’apaiser le dialogue.
-Ce n’est pas parce que l’on dit que tu as tort qu’on se croît supérieur, c’est donner son avis sur un sujet mais il faut argumenter.
-489
-L’argent dont tu ne te serviras jamais, donne-le pour améliorer la planète.
-490
-On peut aimer quelqu’un mais idolâtrer une personne c’est enchaîner son esprit. 
-491
-Il y a le mouton bien intégré à la société et le marginal de l’excellence qui fait évoluer les consciences.
-492
-On n’encourage pas quelqu’un à prendre des risques dangereux pour sa vie, ça doit seulement venir de lui.
-493
-Le premier pas de la pensée est la conscience.
-Chaque esprit a la même valeur, c’est seulement l’éveil de la conscience qui est différent et son rôle suivant la situation.
-494
-C’est plus glorieux de réussir à faire plaisir à quelqu’un sans dépenser d’argent en utilisant son talent qu’en dépensant de l’argent surtout si c’est de l’argent gagné facilement.
-495
-On peut aimer les objets mais il ne faut pas être esclave de leurs possessions.
-496 
-Pour tester sa sagesse, il faut se confronter au monde de la médiocrité.
-497
-Fait honneur à ton mérite (pour continuer à mériter). 
-Fait mérite à ton honneur (pour mériter ton honneur).
-L’important n’est pas l’honneur, c’est de prendre un bon chemin.
-L’honneur n’est pas d’obéir à des traditions illogiques, 0traditions illogiques, il n y a pas de perte d’honneur à vouloir changer des activités programmées par un groupe de dictateur (ex : les parents qui choisissent en obligeant la personne à marier, notre corps nous appartient alors on peut s’en aller quand on veut au lieu de nous obliger).
-Hiérarchie
-L’obéissance à une personne plus haute en hiérarchie doit être justifiée par le mérite de ses compétences qui contribue à la bonne coordination du groupe (exemple : commandant de vaisseau ou enseignant), les autres doivent pouvoir avoir le droit à la critique au moment opportun (à définir selon les règles et circonstances avec la fonction ou la mission) pour laisser un bon déroulement efficace, il y a des cas d’urgence où l’on n’a pas assez de temps au débat mais une suggestion utile rapide peut aider.
-La juste cause est supérieure à l’honneur.
-498
-Le but de la vie : se faire plaisir, apprendre, sans nuire aux autres ou le moins possible.
-499
-Intéresse-toi à toutes les couleurs de la vie pour atteindre la lumière.
-500
-La plus grande victoire contre le mal est qu’il rejoigne la lumière.
-501
-Être vers la sagesse c’est toujours chercher la bêtise en soi et l’expulser.
-502
-Le mensonge peut être utilisé pour atteindre un but : faire le mal, pour se protéger des attaques négatives des autres, pour ne pas inquiéter, pour empêcher quelqu’un de faire une bêtise ou pour être tranquille.
-503
-Il y a les mensonges du service à soi et ceux du service aux autres.
-504
-On ne se moque pas des autres sans leurs consentements.
-505
+458  
+Dessin  
+Commencer pour l’enfant de dessiner avec des crayons à papier de couleurs est mieux que les feutres car ils sont moins polluants et durent beaucoup plus longtemps.  
+Un crayon dure au minimum 10 à 50 fois plus longtemps qu’un feutre.  
+Certaines personnes savent faire des dessins presque photographiques avec ces crayons là en superposant les couches contrairement au feutre lourd d’encre et imprécis.  
+Cela évite les graffitis des enfants de bas âge sur les murs.  
+Tu peux attacher un dessin de ton enfant au mur pour lui faire plaisir mais aussi ne pas l’accrocher car il est très moche, les deux visions se valent.  
+459  
+Parfois on s’engueule sur deux idées qui ont la même valeur, la bonne idée n’est pas le problème, le problème est de s’engueuler.  
+460  
+On peut faire plaisir en disant un mensonge ou blesser utilement en disant une vérité, la solution est le résultat de circonstances.  
+461  
+La meilleure vengeance est de devenir le meilleur philosophe.  
+On se venge par son destin quand on prouve aux autres qu’ils avaient tort d’avoir dit des bêtises sur nous. La vengeance par la réussite et la par la vérité sont les seules bonnes vengeances.  
+462  
+On peut toujours essayer des choses qui paraissent impossibles dans le présent et qui pourront être possibles dans le futur.  
+463  
+Seulement une partie de son savoir sert à quelque chose donc c’est préférable de ne pas apprendre des choses inutiles pour des choses plus utiles.  
+464  
+Quand deux idées s’opposent mais se valent, soit l’un suit l’idée de l’autre, soit on tire à pile ou face ou soit on annule tout.  
+465  
+L’idiot fait d’une petite chose toute une dramaturgie.  
+466  
+Merci aux idiots de m’avoir inspiré tant de proverbes mais ce n’est pas une raison pour que la bêtise continue.  
+467  
+L’idiot juge ta vie seulement sur une petite partie de ce que tu veux bien lui dire sur des idées fausses.  
+468  
+On est parfois obligé de raconter sa vie pour faire taire les mensonges sur soi.  
+469  
+Les plus forts négatifs veulent imposer leurs lois aux plus faibles, les seules lois à imposer sont les lois de la raison qui donnent le meilleur futur.  
+470  
+Il y a des personnalités plus sociables et des personnalités plus solitaires qui aiment la tranquillité et s’intéressent moins aux vies personnelles des autres mais veulent améliorer le monde. Quand on est différent, on a moins une personnalité passe partout.  
+471  
+Ne pas s’entraider assez, c’est laisser germer le malheur.  
+472  
+L’idiot râle quand les toilettes sont occupées et ça énerve la personne à l’intérieur, on ne dérange pas une personne aux toilettes sauf si c’est justifié.  
+473  
+On peut ne pas s’intéresser à la vie personnelle des autres mais faire beaucoup plus pour la planète que les gens qui s’intéressent à parler avec beaucoup de personnes.  
+474  
+Accepter dans le renoncement à exiger que l’autre pense plus à soi ou à un autre, c’est sa liberté.  
+Dire que l’on parle trop de soi, alors tu peux aussi parler de ta vie sans que j’ai besoin de te le demander. On peut faire des efforts chacun dans la direction de l’autre, on doit aussi respecter le tempérament, certains aiment poser plus de questions, d’autres préfèrent qu’ils racontent leur vie naturellement.  
+475  
+S’énerver du refus d’une demande revient à transformer cette demande en ordre.  
+476  
+C’est en reliant les points les plus éloignés que le dessin de la vérité devient de plus en plus clair.  
+477  
+Un enfant doit participer aux tâches de la maison, s’il refuse, il faut le convaincre que si l’on refusait de l’aider il serait malheureux et que lui aussi il doit aider ses parents pour le bonheur de tous.  
+478  
+Le sage regarde loin dans l’avenir et s’intéresse à beaucoup de choses.  
+Le pas (pied) sage ou le pas (pas être) sage : ça dépend des fois et du passage.  
+Sage ou pas sage, la différence est le passage.  
+479  
+Occuper son temps rend plus heureux.  
+480  
+On applique à soi-même les rituels de la société par habitude ou pour ne pas se faire embêter et à devoir s’expliquer à chaque fois.  
+481  
+Les méchants ou injustices obligent à restreindre certaines libertés pour pouvoir atténuer plus de problèmes, il faut trouver l’équilibre en fonction des circonstances.  
+Plus de sagesse c’est plus de libertés mais quand le mal est présent, c’est le plus fort qui se donne plus de libertés en limitant celle des autres.  
+Plus il y a de sagesse moins il y a besoin de lois supplémentaires.  
+482  
+La liberté c’est pouvoir agir dans le bien sans être embêté par le mal.  
+La sagesse est d’avoir un maximum de libertés sans nuire.  
+Garder sa pureté, c’est faire ce qui nous rend heureux, pas se restreindre sous couvert d’une pureté illusoire.  
+483  
+Être très beau ou belle et ne pas avoir d’enfant, c’est mettre ses gênes à la poubelle.  
+484  
+Pour faire taire une vérité, le mal crée une fausse vérité parallèle pour discréditer la vraie vérité.  
+485  
+Parfois les proverbes paraissent beaux alors les gens trouvent ça bien même si c’est un mensonge.  
+486  
+Être soi-même, c’est ne pas obéir aux envies des autres.  
+487  
+Une personne qui a commis des fautes ne doit pas être moins respectée que les autres car cela augmente la négativité et n’a pas d’effet positif mais on peut lui demander s’il a compris sa faute et si non, on peut lui faire la morale.  
+488  
+Montrer la vérité  
+La subtilité consiste à montrer aux gens qu’ils ont tord sans leur dire.  
+Si on dit à quelqu’un qu’il a fait ou qu’il a dit des conneries ou a tord, même avec la condition d’avoir la preuve direct de raison et d’argumenter, il risque d’être contrarié, il vaut mieux supposer à propos de lui que d’affirmer pour ne pas avoir le mauvais rôle.  
+Il est plus constructif de dire « je ne suis pas d’accord ou je ne crois pas à ça » sinon le mot connerie peut être prit pour une insulte et créer un conflit. On peut dire « je préfère faire comme ça » aussi « j’ai vu ça ou qu’il disait ça ici » pour le mettre sur le bon chemin sans faire croire que c’est notre opinion pour ne pas qu’il nous prend pour un con. Il faut essayer de trouver une chose qu’il a dite en disant que c’est bien, que l’on est d’accord, merci de m’avoir fait penser à cet argument, pour être plus sûr d’apaiser le dialogue.  
+Ce n’est pas parce que l’on dit que tu as tort qu’on se croît supérieur, c’est donner son avis sur un sujet mais il faut argumenter.  
+489  
+L’argent dont tu ne te serviras jamais, donne-le pour améliorer la planète.  
+490  
+On peut aimer quelqu’un mais idolâtrer une personne c’est enchaîner son esprit.  
+491  
+Il y a le mouton bien intégré à la société et le marginal de l’excellence qui fait évoluer les consciences.  
+492  
+On n’encourage pas quelqu’un à prendre des risques dangereux pour sa vie, ça doit seulement venir de lui.  
+493  
+Le premier pas de la pensée est la conscience.  
+Chaque esprit a la même valeur, c’est seulement l’éveil de la conscience qui est différent et son rôle suivant la situation.  
+494  
+C’est plus glorieux de réussir à faire plaisir à quelqu’un sans dépenser d’argent en utilisant son talent qu’en dépensant de l’argent surtout si c’est de l’argent gagné facilement.  
+495  
+On peut aimer les objets mais il ne faut pas être esclave de leurs possessions.  
+496  
+Pour tester sa sagesse, il faut se confronter au monde de la médiocrité.  
+497  
+Fait honneur à ton mérite (pour continuer à mériter).  
+Fait mérite à ton honneur (pour mériter ton honneur).  
+L’important n’est pas l’honneur, c’est de prendre un bon chemin.  
+L’honneur n’est pas d’obéir à des traditions illogiques, 0traditions illogiques, il n y a pas de perte d’honneur à vouloir changer des activités programmées par un groupe de dictateur (ex : les parents qui choisissent en obligeant la personne à marier, notre corps nous appartient alors on peut s’en aller quand on veut au lieu de nous obliger).  
+Hiérarchie  
+L’obéissance à une personne plus haute en hiérarchie doit être justifiée par le mérite de ses compétences qui contribue à la bonne coordination du groupe (exemple : commandant de vaisseau ou enseignant), les autres doivent pouvoir avoir le droit à la critique au moment opportun (à définir selon les règles et circonstances avec la fonction ou la mission) pour laisser un bon déroulement efficace, il y a des cas d’urgence où l’on n’a pas assez de temps au débat mais une suggestion utile rapide peut aider.  
+La juste cause est supérieure à l’honneur.  
+498  
+Le but de la vie : se faire plaisir, apprendre, sans nuire aux autres ou le moins possible.  
+499  
+Intéresse-toi à toutes les couleurs de la vie pour atteindre la lumière.  
+500  
+La plus grande victoire contre le mal est qu’il rejoigne la lumière.  
+501  
+Être vers la sagesse c’est toujours chercher la bêtise en soi et l’expulser.  
+502  
+Le mensonge peut être utilisé pour atteindre un but : faire le mal, pour se protéger des attaques négatives des autres, pour ne pas inquiéter, pour empêcher quelqu’un de faire une bêtise ou pour être tranquille.  
+503  
+Il y a les mensonges du service à soi et ceux du service aux autres.  
+504  
+On ne se moque pas des autres sans leurs consentements.  
+505  
 Apprends beaucoup de choses à ton enfant pour lui donner plus de libertés sans qu’il profite trop de toi, de son mérite plus de libertés.
-Plus il y a de libertés différentes dans l’harmonie, l’équilibre et la diversité, plus la société est évolué.
-506
-Ne rends pas malheureux un enfant qui a de mauvaises notes ou il ne pourra pas s’améliorer, on doit laisser un minimum de plaisirs pour mieux travailler.
-507
-Ne pas se réjouir du malheur de son ennemi car c’est du gâchis.
-508
-Face à l’emmerdeur, sois en paix face à l’épreuve qui est une occasion d’adopter le meilleur comportement, aie de la compassion pour cet ignorant qui récoltera son karma.
-Même le grand chef du mal qui croît gagner, cela sera un retour de mal vers toi pour ton futur car le mal ne peut pas gagner toujours et en plus une planète trop négative finit pas se détruire par les mauvaises vibrations (catastrophes planétaires et axes de rotation autour de son soleil qui finira par ne plus tenir si la négativité est très forte).
-La différence de la vibration globale d’une planète lors d’un cycle de milliers d’années où elle passe dans une zone de la galaxie ou la vibration est beaucoups plus haute, la trop grande différence de vibration crée des catastrophes planétaires.
-509
-L’imbécile affirme une critique sur ce que tu ne dis pas avant de demander et de savoir.
-510
-Il faut se méfier des gens sympas qui t’influencent dans la bêtise ou dans un piège. La flatterie peut être utilisé pour manipuler, comploter.
-511
-À force de pardonner à un idiot qui recommence, évite-le.
-512
-Réussir sa vie sans vivre assez, c’est prendre la route en ratant les petits chemins.
-513
-Augmenter son énergie c’est bouger, dormir, manger, bonheur.
-514
-La vérité se voile pour s’adapter à la société médiocre.
-515
-Facile de dire que c’est facile quand on n’a pas eu le mérite d’y penser.
-516
-Une croissance trop rapide engendre toujours plus de déchets écologiques, sociétaux et artistiques.
-517
-L’espoir meurt dans son abandon et dans sa réalisation.
-518
-Je possède ce que les autres partagent.
-519
-Il est bien d’être fort non pas pour se sentir supérieur aux autres mais surtout pour ne pas se sentir inférieur aux autres.
-520
-Il faut garder l’esprit d’enfant tout en ayant la sagesse des anciens.
-521
-L’amour est une fleur aux pétales infinis.
+Plus il y a de libertés différentes dans l’harmonie, l’équilibre et la diversité, plus la société est évolué.  
+506  
+Ne rends pas malheureux un enfant qui a de mauvaises notes ou il ne pourra pas s’améliorer, on doit laisser un minimum de plaisirs pour mieux travailler.  
+507  
+Ne pas se réjouir du malheur de son ennemi car c’est du gâchis.  
+508  
+Face à l’emmerdeur, sois en paix face à l’épreuve qui est une occasion d’adopter le meilleur comportement, aie de la compassion pour cet ignorant qui récoltera son karma.  
+Même le grand chef du mal qui croît gagner, cela sera un retour de mal vers toi pour ton futur car le mal ne peut pas gagner toujours et en plus une planète trop négative finit pas se détruire par les mauvaises vibrations (catastrophes planétaires et axes de rotation autour de son soleil qui finira par ne plus tenir si la négativité est très forte).  
+La différence de la vibration globale d’une planète lors d’un cycle de milliers d’années où elle passe dans une zone de la galaxie ou la vibration est beaucoup plus haute, la trop grande différence de vibration crée des catastrophes planétaires.  
+509  
+L’imbécile affirme une critique sur ce que tu ne dis pas avant de demander et de savoir.  
+510  
+Il faut se méfier des gens sympas qui t’influencent dans la bêtise ou dans un piège. La flatterie peut être utilisé pour manipuler, comploter.  
+511  
+À force de pardonner à un idiot qui recommence, évite-le.  
+512  
+Réussir sa vie sans vivre assez, c’est prendre la route en ratant les petits chemins.  
+513  
+Augmenter son énergie c’est bouger, dormir, manger, bonheur.  
+514  
+La vérité se voile pour s’adapter à la société médiocre.  
+515  
+Facile de dire que c’est facile quand on n’a pas eu le mérite d’y penser.  
+516  
+Une croissance trop rapide engendre toujours plus de déchets écologiques, sociétaux et artistiques.  
+517  
+L’espoir meurt dans son abandon et dans sa réalisation.  
+518  
+Je possède ce que les autres partagent.  
+519  
+Il est bien d’être fort non pas pour se sentir supérieur aux autres mais surtout pour ne pas se sentir inférieur aux autres.  
+520  
+Il faut garder l’esprit d’enfant tout en ayant la sagesse des anciens.  
+521  
+L’amour est une fleur aux pétales infinis.  
 
 La victoire retrouvée
 
