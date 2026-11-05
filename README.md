@@ -2444,351 +2444,350 @@ Le jour très lointain où l’on n’aura plus besoin de nourriture physique po
 600  
 La galanterie, c’est pour tout le monde.  
 
-Joute de poèmes de deux fidèles
+Joute de poèmes de deux fidèles  
 
-Tu es mon centre de gravité, 
-tu m’apportes félicité.
-Tu es la plus belle, 
-tu es le beau temps que m’apporte le ciel.
-Tu es le plus beau, 
-mon héro.
-Tu es agile,
-à la vie facile.
-Tu es pour l’égalité,
-ça me donne une vie élevée.
-Tu es généreuse en bonheur,
-ma divine fleur.
-Tu es mon empereur,
-que j’admire avec ferveur.
-Tu es joueuse,
-et complimenteuse.
-Tu me laisses vivre ma liberté, 
-en retour tu es gâté.
-Tu es toujours de bonne humeur,
-avec les bons mots du cœur.
-Je suis ta princesse,
-car je comprends ta sagesse.
-Ensemble, construisons notre mémoire éternelle,
-pour faire les plus belles étincelles.
+Tu es mon centre de gravité,  
+tu m’apportes félicité.  
+Tu es la plus belle,  
+tu es le beau temps que m’apporte le ciel.  
+Tu es le plus beau,  
+mon héro.  
+Tu es agile,  
+à la vie facile.  
+Tu es pour l’égalité,  
+ça me donne une vie élevée.  
+Tu es généreuse en bonheur,  
+ma divine fleur.  
+Tu es mon empereur,  
+que j’admire avec ferveur.  
+Tu es joueuse,  
+et complimenteuse.  
+Tu me laisses vivre ma liberté,  
+en retour tu es gâté.  
+Tu es toujours de bonne humeur,  
+avec les bons mots du cœur.  
+Je suis ta princesse,  
+car je comprends ta sagesse.  
+Ensemble, construisons notre mémoire éternelle,  
+pour faire les plus belles étincelles.  
 
-Sylvain Meili (2020 : n°11)
+Sylvain Meili (2020 : n°11)  
 
-601
+601  
 C’est plus judicieux d’euthanasier un animal de compagnie souffrant au lieu de le garder égoïstement un peu plus pour soi et le faire mourir dans la douleur.
 On doit euthanasier un humain souffrant destiné à mourir plutôt que d’arrêter les soins et la nourriture qui sont des méthodes cruelles le faisant mourir lentement dans la souffrance, c’est ce que font les hypocrites pour se dire qu’ils ne l’ont pas tué et par peur de perdre leur travail mais ils participent à la complicité de torture ou soi-disant que dieu doit décider quand il meurt, non Dieu est toujours d’accord pour épargner de la souffrance et faire le bien.
-Toute personne qui a un cancer qui doit subir une chirurgie devrait avoir le droit d’être euthanasié même si il peut guérir, quand on est anti chirurgie et que l’on ne supporte pas psychologiquement que l’on touche à son corps. On change de dimension après dans l’au-delà.
-602
-Ce n’est pas parce que l’on n’a rien à se reprocher que les autres ont le droit de tout savoir de notre vie surtout si il y a danger.
-603
-Au lieu de te plaindre qu’un adversaire est trop fort, entraîne-toi, change d’adversaire ou de jeu pour te faire plaisir.
-604
-Les pensées ne viennent pas toutes de nous.
-605
-Il est ridicule de s’enlever des plaisirs éternels parce qu’on les connaît déjà.
-606
-Trop posséder rend mauvais.
-607
-La confiance en soi augmente la chance.
-608
-L’évolution n’est pas de se retirer des bons plaisirs mais de ne pas en devenir dépendant.
-609
-On ne doit pas mettre d’étiquette générale sur un aspect de quelqu’un alors que l’on ne sait pas tout sur lui. 
-610
-Parfois on n’a pas envie mais c’est en essayant que l’envie  peut venir.
-611
-Le mal nous apprend ce que ça fait d’être con.
-Il apprend à trouver des stratégies pour arrêter le mal. Le mal dévoile le mal potentiel qu’il y a de la personne qui est provoqué par le mal qui l’attaque. Le mal nous apprend à effectuer le meilleur comportement face à ses attaques.
-612
-Ne pas pouvoir faire mieux ne veux pas dire parfait.
-613
-Il vaut mieux montrer ses idées avec un petit pourcentage d’erreurs mais en prévenant que l’on est pas totalement sûr plutôt que perdre du temps à rien dire et risquer de ne pas faire connaître des choses utiles et encore attendre que ça ne soit jamais parfait.
-614
-L’inconfort du changement n’est que la porte qui ouvre vers une nouvelle lumière.
-615
-L’arbre se forme en la beauté de sa jeunesse, de sa vieillesse et de sa matière morte.
-616
-Ne plus vouloir exister jusqu’à l’esprit est une folie que rien ne peut justifier.
-617
-Plus facile pour l’esprit du haut d’être parfait quand il n’est pas soumis à des épreuves d’imperfections.
-618
-Réussir intérieurement est plus important que paraître réussir devant les autres.
-619
-On ne se bat pas contre la violence, on répand la lumière pour dissoudre la violence.
-620
-Il faut s’assurer que les gens ne t’aident pas pour certaines faveurs en nuisant aux autres.
-621
-Si on peut éviter une erreur avec quelqu’un qui nous prévient avant tout en évoluant, autant qu’on nous le dise.
-622
-Un jardin très artificiel ne vaudra jamais un jardin idéal proche de la nature.
-623
-Dans un poème, le plus beau n’est pas dans la rime, c’est de trouver les bons mots.
-624
-La vie est une boule changeante où l’on découvre toujours de nouvelles facettes.
-625
-Il faut vivre surtout dans le présent mais il est aussi bon de se remémorer les bons moments du passé et d’avoir des projets pour l’avenir.
-626
-Y mettre du sien dans l’apprentissage pour pouvoir choisir parmi plus de chemins.
-627
-Une mauvaise période peut s’avérer plus bénéfique pour l’avenir qu’une bonne période.
-628
-Perdre son travail permet parfois d’avoir plus de temps pour réveiller sa conscience.
-629
-On a l’âge que l’on fait et l’âge que l’on a ainsi que l’âge de toutes nos vies.
-Certaines filles de 15ans peuvent sembler avoir 20 ans, d’autres de 30 ans peuvent sembler avoir 15 ans.
-630
-Être mal à l’aise parce que quelqu’un parle peu est un problème psychologique à améliorer.
-631
-Toujours heureux n’est pas synonyme de grande intelligence mais peut en faire partie.
-632
-Être trop tolérant à la médiocrité, c’est risquer de faire dégénérer le monde.
-633
-Respecter la vie, c’est ne pas participer ni consentir à la souffrance.
-634
-Le spectacle de la guerre fictive est le lieu où il n’y a que des gagnants dans le jeu de la transmutation du mal en art d’amusement (sauf si ça traumatise ou l’envoie de mauvaises pensées). 
-635
+Toute personne qui a un cancer qui doit subir une chirurgie devrait avoir le droit d’être euthanasié même si il peut guérir, quand on est anti chirurgie et que l’on ne supporte pas psychologiquement que l’on touche à son corps. On change de dimension après dans l’au-delà.  
+602  
+Ce n’est pas parce que l’on n’a rien à se reprocher que les autres ont le droit de tout savoir de notre vie surtout si il y a danger.  
+603  
+Au lieu de te plaindre qu’un adversaire est trop fort, entraîne-toi, change d’adversaire ou de jeu pour te faire plaisir.  
+604  
+Les pensées ne viennent pas toutes de nous.  
+605  
+Il est ridicule de s’enlever des plaisirs éternels parce qu’on les connaît déjà.  
+606  
+Trop posséder rend mauvais.  
+607  
+La confiance en soi augmente la chance.  
+608  
+L’évolution n’est pas de se retirer des bons plaisirs mais de ne pas en devenir dépendant.  
+609  
+On ne doit pas mettre d’étiquette générale sur un aspect de quelqu’un alors que l’on ne sait pas tout sur lui.  
+610  
+Parfois on n’a pas envie mais c’est en essayant que l’envie  peut venir.  
+611  
+Le mal nous apprend ce que ça fait d’être con.  
+Il apprend à trouver des stratégies pour arrêter le mal. Le mal dévoile le mal potentiel qu’il y a de la personne qui est provoqué par le mal qui l’attaque. Le mal nous apprend à effectuer le meilleur comportement face à ses attaques.  
+612  
+Ne pas pouvoir faire mieux ne veux pas dire parfait.  
+613  
+Il vaut mieux montrer ses idées avec un petit pourcentage d’erreurs mais en prévenant que l’on est pas totalement sûr plutôt que perdre du temps à rien dire et risquer de ne pas faire connaître des choses utiles et encore attendre que ça ne soit jamais parfait.  
+614  
+L’inconfort du changement n’est que la porte qui ouvre vers une nouvelle lumière.  
+615  
+L’arbre se forme en la beauté de sa jeunesse, de sa vieillesse et de sa matière morte.  
+616  
+Ne plus vouloir exister jusqu’à l’esprit est une folie que rien ne peut justifier.  
+617  
+Plus facile pour l’esprit du haut d’être parfait quand il n’est pas soumis à des épreuves d’imperfections.  
+618  
+Réussir intérieurement est plus important que paraître réussir devant les autres.  
+619  
+On ne se bat pas contre la violence, on répand la lumière pour dissoudre la violence.  
+620  
+Il faut s’assurer que les gens ne t’aident pas pour certaines faveurs en nuisant aux autres.  
+621  
+Si on peut éviter une erreur avec quelqu’un qui nous prévient avant tout en évoluant, autant qu’on nous le dise.  
+622  
+Un jardin très artificiel ne vaudra jamais un jardin idéal proche de la nature.  
+623  
+Dans un poème, le plus beau n’est pas dans la rime, c’est de trouver les bons mots.  
+624  
+La vie est une boule changeante où l’on découvre toujours de nouvelles facettes.  
+625  
+Il faut vivre surtout dans le présent mais il est aussi bon de se remémorer les bons moments du passé et d’avoir des projets pour l’avenir.  
+626  
+Y mettre du sien dans l’apprentissage pour pouvoir choisir parmi plus de chemins.  
+627  
+Une mauvaise période peut s’avérer plus bénéfique pour l’avenir qu’une bonne période.  
+628  
+Perdre son travail permet parfois d’avoir plus de temps pour réveiller sa conscience.  
+629  
+On a l’âge que l’on fait et l’âge que l’on a ainsi que l’âge de toutes nos vies.  
+Certaines filles de 15ans peuvent sembler avoir 20 ans, d’autres de 30 ans peuvent sembler avoir 15 ans.  
+630  
+Être mal à l’aise parce que quelqu’un parle peu est un problème psychologique à améliorer.  
+631  
+Toujours heureux n’est pas synonyme de grande intelligence mais peut en faire partie.  
+632  
+Être trop tolérant à la médiocrité, c’est risquer de faire dégénérer le monde.  
+633  
+Respecter la vie, c’est ne pas participer ni consentir à la souffrance.  
+634  
+Le spectacle de la guerre fictive est le lieu où il n’y a que des gagnants dans le jeu de la transmutation du mal en art d’amusement (sauf si ça traumatise ou l’envoie de mauvaises pensées).  
+635  
 L’amusement reste amusement quand il s’approche du mal sans jamais en faire partie (combat de Kung-fu amusant sans blessures).
-636
-Les plaisirs sortant pour l’éternité de la dualité et de la troisième dimension sont l’art du combat sans faire le mal, le plaisir de la nourriture, la volupté du corps, ce sont toutes les bonnes inventions résultant des oppositions.
-637
-Par l’inconfort et parfois l’extrême dureté, la créativité s’est encore plus cherchée.
-638
-L’épreuve de la défaite est un entrainement à ne pas tomber dans les mauvaises émotions.
-639
-Il y a deux sortes d’importance, l’importance d’être : égal à tout le monde et l’importance des actions: différentes à chaque individu.
-640
-Stopper le mal est plus important que le libre arbitre si ça peut faire évoluer mais cela est mon avis, pas la règle que j’ai lu.
-641
+636  
+Les plaisirs sortant pour l’éternité de la dualité et de la troisième dimension sont l’art du combat sans faire le mal, le plaisir de la nourriture, la volupté du corps, ce sont toutes les bonnes inventions résultant des oppositions.  
+637  
+Par l’inconfort et parfois l’extrême dureté, la créativité s’est encore plus cherchée.  
+638  
+L’épreuve de la défaite est un entrainement à ne pas tomber dans les mauvaises émotions.  
+639  
+Il y a deux sortes d’importance, l’importance d’être : égal à tout le monde et l’importance des actions: différentes à chaque individu.  
+640  
+Stopper le mal est plus important que le libre arbitre si ça peut faire évoluer mais cela est mon avis, pas la règle que j’ai lu.  
+641  
 Au lieu d’apprendre en ne sachant rien par soi-même, ce qui cause plus de souffrance, il faut d’abord enseigner la sagesse universelle par l’éducation.
-Il faut enseigner toutes les techniques de manipulation pour ne pas se faire piéger.
-642
-Les cheveux sont semblables aux pétales d’une fleur.
-643
-Sans parure, la beauté est moins brillante.
-644
-Certains qui n’ont plus envie ou plus d’arguments pour se défendre disent que les sages se taisent parce qu’il est inutile de parler car leurs paroles sont justes mais que l’ignorant veut toujours parler pour faire du bruit en argumentant, c’est un argument pratique pour fuir le débat et faire croire que l’on a raison, ce qui peut-être le cas mais aussi ne pas l’être car le vrai sage peut être celui qui explique bien les choses.
-645
-Les gens paraissant sympas peuvent être les pires et les gens paraissant insociables peuvent être les meilleurs.
-646
-Le karma n’est pas juste, il y a aussi la loi de la cause à effet, à cause des circonstances, il est possible de  passer par des trous douloureux pour arriver à l’objectif, le karma prend le chemin approprié avec les déséquilibres qui se présentent à lui pour viser le rééquilibre. La dette karmique n’a de sens que si l’on n’a pas compris car le plus important n’est pas d’être puni, c’est de ne pas recommencer.
-647
-L’art de la coiffure et l’art vestimentaire sont l’exploration de la sublimation de l’expression humaine.
-648
-Il faut avoir bien vécu avant de pouvoir mourir.
-649
-La diversité rend la vie moins monotone.
-650
-L’éducation se fait par les parents, l’école, les rencontres, les guides du ciel et par soi-même.
+Il faut enseigner toutes les techniques de manipulation pour ne pas se faire piéger.  
+642  
+Les cheveux sont semblables aux pétales d’une fleur.  
+643  
+Sans parure, la beauté est moins brillante.  
+644  
+Certains qui n’ont plus envie ou plus d’arguments pour se défendre disent que les sages se taisent parce qu’il est inutile de parler car leurs paroles sont justes mais que l’ignorant veut toujours parler pour faire du bruit en argumentant, c’est un argument pratique pour fuir le débat et faire croire que l’on a raison, ce qui peut-être le cas mais aussi ne pas l’être car le vrai sage peut être celui qui explique bien les choses.  
+645  
+Les gens paraissant sympas peuvent être les pires et les gens paraissant insociables peuvent être les meilleurs.  
+646  
+Le karma n’est pas juste, il y a aussi la loi de la cause à effet, à cause des circonstances, il est possible de  passer par des trous douloureux pour arriver à l’objectif, le karma prend le chemin approprié avec les déséquilibres qui se présentent à lui pour viser le rééquilibre. La dette karmique n’a de sens que si l’on n’a pas compris car le plus important n’est pas d’être puni, c’est de ne pas recommencer.  
+647  
+L’art de la coiffure et l’art vestimentaire sont l’exploration de la sublimation de l’expression humaine.  
+648  
+Il faut avoir bien vécu avant de pouvoir mourir.  
+649  
+La diversité rend la vie moins monotone.  
+650  
+L’éducation se fait par les parents, l’école, les rencontres, les guides du ciel et par soi-même.  
 
-Éducation
+Éducation  
 
-Je donne la lumière qui guide son chemin.
-Je donne la sagesse pour franchir les ravins.
-Je donne la bibliothèque de la connaissance.
-Je donne les ingrédients de la performance.
-Je donne le bien-être et la beauté.
-Je donne les solutions qui sont les clefs.
-Je donne l’abondance de toutes les chances.
-Je donne la réussite de tous ses sens.
-Je donne la maîtrise de son corps martial.
-Je donne à sa vie un idéal. 
+Je donne la lumière qui guide son chemin.  
+Je donne la sagesse pour franchir les ravins.  
+Je donne la bibliothèque de la connaissance.  
+Je donne les ingrédients de la performance.  
+Je donne le bien-être et la beauté.  
+Je donne les solutions qui sont les clefs.  
+Je donne l’abondance de toutes les chances.  
+Je donne la réussite de tous ses sens.  
+Je donne la maîtrise de son corps martial.  
+Je donne à sa vie un idéal.  
 
-Sylvain Meili (2019 : n°12)
+Sylvain Meili (2019 : n°12)  
 
-651
-S’il n’y avait pas d’erreur dans le plan divin, il y aurait zéro libre arbitre de la connerie.
-652
-Préservation et archivage.
-Il faudrait scanner toute la Terre en très haute définition jusqu’au cm près du haut et si possible à travers le décor.
-Revenir avec un vaisseau occulté dans le passé pour archiver si ce n’est pas dangereux.
-La Terre appartient à tous, chaque pays doit être accessible à condition de le respecter et que l’impact ne soit pas négatif.
-Il faut restreindre aussi l’accès si il y a trop de monde qui vient au niveau tourisme. 
-Trop d’immigration peut-être négative pour la nature et la population, il faut préserver la richesse, le bien-être, la Culture, la nature.
-Les raisons des migrations peuvent être la guerre, la morale et les libertés, l’économie, l’état de développement du pays, la Culture, la nourriture, le climat, les catastrophes naturelles, l’amour d’une personne, regroupement de la famille, la nature, l’aventure, le tourisme.
-653
-Seule la sagesse la plus parfaite a le droit de tout savoir.
-654
-Le sage ne se vante pas sauf si c’est pour rire.
-655
-Ne pas trop parler de tout ce que tu as en plus des autres ou tu attireras des jaloux destructeurs de ton bonheur.
-656
-Ne pas se faire mal en jalousant les autres car la roue du rééquilibre tourne toujours même s’il faut attendre la prochaine vie.
-657
-Quand tu brilles trop avant les autres, la médiocrité du mal s’accroche à toi pour te discréditer.
-658
-Hypothèse d’une vie ou d’un échantillon dans l’ordinateur quantique et de simulation de l’univers : il  y a celui qui crée le scénario (le vrai moi), celui qui fait le replay pour se mettre à la place de moi et quand il a fini, se réveille et sait qu’il n’est pas moi, et celui qui refait le scénario avec son libre arbitre différemment, comme s’il changeait le passé mais sans changer le vrai court du temps du premier scénario.
-659
-Nous sommes tous un mais resterons plusieurs.
-660
-Plus on est intelligent, plus on trouve des moyens de se faire plaisir.
-Plus on est intelligent, plus la société est riche et diversifiée en nature, inventions, Culture et loisirs.
-Les plaisirs sans assez de travail d’une société conduira à la chute des futures plaisirs.
-661
-Celui qui s’acharne sur la vengeance est un imbécile, c’est une perte de temps car la justice ne veut pas dire vengeance.
-662
-Il ne faut pas promouvoir la mocheté sous prétexte d’altruisme car le risque est que si l’on ne donne pas assez d’importance à la beauté, l’espèce humaine pourrait dégénérer physiquement dans le futur. 
-663
-Le condamné doit être utile pour lui-même et pour les autres.
-664
-Sous prétexte de gagner un match de foot, l’entraîneur ne donne souvent pas l’occasion aux mauvais joueurs d’être à l’avant, ce qui n’augmente pas leur motivation et n’a pas de raison car quand il n’y  a pas d’enjeux professionnels et financiers, on doit partager le plaisir de tout le monde pour le chemin et pas forcément pour le résultat.
-665
-Plus facile d’être généreux quand les autres pensent comme toi.
-666
-Le plan du mal. (Science fiction ou pas ?)
+651  
+S’il n’y avait pas d’erreur dans le plan divin, il y aurait zéro libre arbitre de la connerie.  
+652  
+Préservation et archivage.  
+Il faudrait scanner toute la Terre en très haute définition jusqu’au cm près du haut et si possible à travers le décor.  
+Revenir avec un vaisseau occulté dans le passé pour archiver si ce n’est pas dangereux.  
+La Terre appartient à tous, chaque pays doit être accessible à condition de le respecter et que l’impact ne soit pas négatif.  
+Il faut restreindre aussi l’accès si il y a trop de monde qui vient au niveau tourisme.  
+Trop d’immigration peut-être négative pour la nature et la population, il faut préserver la richesse, le bien-être, la Culture, la nature.  
+Les raisons des migrations peuvent être la guerre, la morale et les libertés, l’économie, l’état de développement du pays, la Culture, la nourriture, le climat, les catastrophes naturelles, l’amour d’une personne, regroupement de la famille, la nature, l’aventure, le tourisme.  
+653  
+Seule la sagesse la plus parfaite a le droit de tout savoir.  
+654  
+Le sage ne se vante pas sauf si c’est pour rire.  
+655  
+Ne pas trop parler de tout ce que tu as en plus des autres ou tu attireras des jaloux destructeurs de ton bonheur.  
+656  
+Ne pas se faire mal en jalousant les autres car la roue du rééquilibre tourne toujours même s’il faut attendre la prochaine vie.  
+657  
+Quand tu brilles trop avant les autres, la médiocrité du mal s’accroche à toi pour te discréditer.  
+658  
+Hypothèse d’une vie ou d’un échantillon dans l’ordinateur quantique et de simulation de l’univers : il  y a celui qui crée le scénario (le vrai moi), celui qui fait le replay pour se mettre à la place de moi et quand il a fini, se réveille et sait qu’il n’est pas moi, et celui qui refait le scénario avec son libre arbitre différemment, comme s’il changeait le passé mais sans changer le vrai court du temps du premier scénario.  
+659  
+Nous sommes tous un mais resterons plusieurs.  
+660  
+Plus on est intelligent, plus on trouve des moyens de se faire plaisir.  
+Plus on est intelligent, plus la société est riche et diversifiée en nature, inventions, Culture et loisirs.  
+Les plaisirs sans assez de travail d’une société conduira à la chute des futures plaisirs.  
+661  
+Celui qui s’acharne sur la vengeance est un imbécile, c’est une perte de temps car la justice ne veut pas dire vengeance.  
+662  
+Il ne faut pas promouvoir la mocheté sous prétexte d’altruisme car le risque est que si l’on ne donne pas assez d’importance à la beauté, l’espèce humaine pourrait dégénérer physiquement dans le futur.  
+663  
+Le condamné doit être utile pour lui-même et pour les autres. 
+664  
+Sous prétexte de gagner un match de foot, l’entraîneur ne donne souvent pas l’occasion aux mauvais joueurs d’être à l’avant, ce qui n’augmente pas leur motivation et n’a pas de raison car quand il n’y  a pas d’enjeux professionnels et financiers, on doit partager le plaisir de tout le monde pour le chemin et pas forcément pour le résultat.  
+665  
+Plus facile d’être généreux quand les autres pensent comme toi.  
+666  
+Le plan du mal. (Science fiction ou pas ?)  
 
-En supposant toute la richesse de l’univers, faites-vous la déduction sur ce qu’il est ou pourrait être possible.
-Voici différentes techniques utilisées des infâmes pour faire le mal ou asservir.
-Le plan du mal consiste à dresser des moujoncs pour diaboliser leurs sauveurs. 
+En supposant toute la richesse de l’univers, faites-vous la déduction sur ce qu’il est ou pourrait être possible.  
+Voici différentes techniques utilisées des infâmes pour faire le mal ou asservir.  
+Le plan du mal consiste à dresser des moujoncs pour diaboliser leurs sauveurs.   
 
-Croyances et politiques
-Le plan du mal est le pouvoir, de s’enrichir le plus possible et d’appauvrir les autres, propager la peur pour les contrôler.
-Ils veulent nous transformer en marionnettes par la peur et l’ignorance.
-Faire croire que dieu et la réincarnation n’existe pas, ou inventer des religions ou sectes avec des rituels ou traditions illogiques à la logique du bien, influencer les comportements dans la bassesse, l’ignorance et la dépendance, la loi du plus fort, pas d’empathie. 
-Mettre en avant la médiocrité pour la rendre populaire. 
-Faire vibrer bas l’énergie des gens pour ne pas ascensionner en 5ème densité ou dimension. 
-Des épreuves d’initiations, cela peut être faire des brimades des choses ridicules ou violentes. 
-Le bizutage : Inciter ou obliger des pratiques aux nouveaux arrivants d’un groupe, en école ou université, c’est être un bon mougeon.
+Croyances et politiques  
+Le plan du mal est le pouvoir, de s’enrichir le plus possible et d’appauvrir les autres, propager la peur pour les contrôler.  
+Ils veulent nous transformer en marionnettes par la peur et l’ignorance.  
+Faire croire que dieu et la réincarnation n’existe pas, ou inventer des religions ou sectes avec des rituels ou traditions illogiques à la logique du bien, influencer les comportements dans la bassesse, l’ignorance et la dépendance, la loi du plus fort, pas d’empathie.  
+Mettre en avant la médiocrité pour la rendre populaire.  
+Faire vibrer bas l’énergie des gens pour ne pas ascensionner en 5ème densité ou dimension.  
+Des épreuves d’initiations, cela peut être faire des brimades des choses ridicules ou violentes.  
+Le bizutage : Inciter ou obliger des pratiques aux nouveaux arrivants d’un groupe, en école ou université, c’est être un bon mougeon.  
 
-Contrôler les médias pour l’hypnose collective, (l’idiot fait plus confiance à la télévision qu’en voulant s’aider avec internet), propager la peur, faire baisser la vibration planétaire avec des tortures physiques ou psychologiques. 
-Avoir une population ignorante, créer des problèmes pour mettre en place des solutions qui réduisent les libertés avec le prétexte de faire le bien, faire quelques cadeaux de temps en temps pour faire descendre plus bas après.
-Se débarrasser des gens inutiles et faire un classement de gens inférieurs et supérieures, créer ou utiliser des tunnels ou bases secrètes et de vastes grottes pour mieux cacher ses sombres plans ou méfaits. 
-Infiltrer pour diviser tous les groupes, une fausse opposition contrôlée, mentir, falsifier l’histoire du monde, truquer les sondages et les élections (par exemple : machine à voter), mettre au pouvoir des politiciens soumis au chantage (sous la menace de la torture, obligation de faire de sales choses en étant filmé), à la corruption, ou remplacer des politiciens par des sosies, clones, masques ultra réalistes ou vidéo et images holographiques (ces techniques peuvent être utilisé par le mal ou le bien (jouer double jeu). 
-Créer des guerres même en finançant les deux camps, faire des attaques sous faux drapeau en accusant un autre pays pour s’enrichir et faire du trafic d’organes et sexuel d’êtres humains. 
-Créer des complots pour accuser et piéger des gens, faire passer les gentils pour des méchants ou fous (exemple : enfermement dans un hôpital psychiatrique en donnant des drogues inutiles pour te dégrader). 
-Déformer la vérité dite par les gens, attaquer le personnage plutôt que le sujet, t’associer dans les racistes ou à un parti politique dit extrême,  à un complotiste alors que tu veux dire la vérité. 
-S’attribuer le mérite des œuvres des autres.
-Faire des taxes ridicules. 
-T’appeler en affichant le numéro d’un autre est possible.
-Faire des fakes dans les 2 sens, par exemple si il y a une photo réelle 
-avec des vaiseaux spatiaux, ils suppriment les vaisseaux sur la photo pour faire croire qu’elle est fausse ou alors ajouter des vaisseaux à une photo normal pour montrer aprés que c’est faux.
-Promouvoir la consommation de viande en faisant croire que c’est bien, tuer tous les animaux d’une ferme quand il y a une maladie qui se propage alors que quand c’est les humains, on ne tue pas tous les humains donc c’est ridicule car les animaux survivant vont développer leur immunité. 
-Le mal est aussi cannibale et incorpore sans qu’on le sache de la viande humaine dans les magasins ou restaurants (viande de clones ou non).
-Payer des gens ou favoriser par la guerre dans d’autres pays l’immigration de populations en favorisant surtout des hommes mauvais pour créer plus de conflits et diviser les gens et les communautés et augmenter le racisme haineux.
-Avoir des armes climatiques qui déclenchent des inondations, tsunamis et des tremblements de terre pour faire du chantage à un pays.
+Contrôler les médias pour l’hypnose collective, (l’idiot fait plus confiance à la télévision qu’en voulant s’aider avec internet), propager la peur, faire baisser la vibration planétaire avec des tortures physiques ou psychologiques.  
+Avoir une population ignorante, créer des problèmes pour mettre en place des solutions qui réduisent les libertés avec le prétexte de faire le bien, faire quelques cadeaux de temps en temps pour faire descendre plus bas après.  
+Se débarrasser des gens inutiles et faire un classement de gens inférieurs et supérieures, créer ou utiliser des tunnels ou bases secrètes et de vastes grottes pour mieux cacher ses sombres plans ou méfaits.  
+Infiltrer pour diviser tous les groupes, une fausse opposition contrôlée, mentir, falsifier l’histoire du monde, truquer les sondages et les élections (par exemple : machine à voter), mettre au pouvoir des politiciens soumis au chantage (sous la menace de la torture, obligation de faire de sales choses en étant filmé), à la corruption, ou remplacer des politiciens par des sosies, clones, masques ultra réalistes ou vidéo et images holographiques (ces techniques peuvent être utilisé par le mal ou le bien (jouer double jeu).  
+Créer des guerres même en finançant les deux camps, faire des attaques sous faux drapeau en accusant un autre pays pour s’enrichir et faire du trafic d’organes et sexuel d’êtres humains.  
+Créer des complots pour accuser et piéger des gens, faire passer les gentils pour des méchants ou fous (exemple : enfermement dans un hôpital psychiatrique en donnant des drogues inutiles pour te dégrader).  
+Déformer la vérité dite par les gens, attaquer le personnage plutôt que le sujet, t’associer dans les racistes ou à un parti politique dit extrême,  à un complotiste alors que tu veux dire la vérité.  
+S’attribuer le mérite des œuvres des autres.  
+Faire des taxes ridicules.  
+T’appeler en affichant le numéro d’un autre est possible.  
+Faire des fakes dans les 2 sens, par exemple si il y a une photo réelle avec des vaisseaux spatiaux, ils suppriment les vaisseaux sur la photo pour faire croire qu’elle est fausse ou alors ajouter des vaisseaux à une photo normal pour montrer après que c’est faux.  
+Promouvoir la consommation de viande en faisant croire que c’est bien, tuer tous les animaux d’une ferme quand il y a une maladie qui se propage alors que quand c’est les humains, on ne tue pas tous les humains donc c’est ridicule car les animaux survivant vont développer leur immunité.  
+Le mal est aussi cannibale et incorpore sans qu’on le sache de la viande humaine dans les magasins ou restaurants (viande de clones ou non).  
+Payer des gens ou favoriser par la guerre dans d’autres pays l’immigration de populations en favorisant surtout des hommes mauvais pour créer plus de conflits et diviser les gens et les communautés et augmenter le racisme haineux.  
+Avoir des armes climatiques qui déclenchent des inondations, tsunamis et des tremblements de terre pour faire du chantage à un pays.  
 
-Tout le monde doit être pauvre et endetté pour à la fin que l’élite possède tout et faire un revenu universel négatif pour stopper la dette qu’ils ont fait exprès de créer où l’on ne peut pas épargner l’argent ni acheter avec des pièces et billets, tout est numérique.
-Interdire les potagers pour que l’élite contrôle toute la nourriture.
-Chantage, être piqué et tracé ou tu n’a plus d’argent pour vivre, enfermer dans des camps ceux qui n’obéissent pas.
-Mettre en esclavage, objectif de un qui contrôle tout.
+Tout le monde doit être pauvre et endetté pour à la fin que l’élite possède tout et faire un revenu universel négatif pour stopper la dette qu’ils ont fait exprès de créer où l’on ne peut pas épargner l’argent ni acheter avec des pièces et billets, tout est numérique.  
+Interdire les potagers pour que l’élite contrôle toute la nourriture.  
+Chantage, être piqué et tracé ou tu n’a plus d’argent pour vivre, enfermer dans des camps ceux qui n’obéissent pas.  
+Mettre en esclavage, objectif de un qui contrôle tout.  
 
-Economie
+Économie  
 Faire tomber un maximum de gens dans divers addictions, créer de la dette, de la dépendance dans tous les domaines. 
-Mettre en faillite les entreprises pour ne pas faire des travaux ou ne pas livrer un client pour les voler et ouvrir une nouvelle entreprise.
+Mettre en faillite les entreprises pour ne pas faire des travaux ou ne pas livrer un client pour les voler et ouvrir une nouvelle entreprise.  
 Créer des faillites aux autres pour tout racheter à bas prix.  
-Des grosses sociétés vendent à perte au début pour éliminer la concurrence.
-Diviser au maximum les tâches de travail d’une société pour cacher la vérité et rendre dépendant, délocaliser les entreprises dans d’autres pays pour rendre dépendant son pays et avoir des ouvriers pauvres à bas prix, inventer des informations contraires à un maximum de vérités, créer des arnaques d’argents de placements et de chantage à l’amour pour nous voler, tendre des pièges en te parlant d’une chose mais en disant que c est risqué et si t’y vas, ils vont te culpabiliser alors qu’ils ont fait exprès d’en parler pour espérer que tu vas dans le piège. 
-Faire du blanchiment d’argent en vendant cher des œuvres ridicules ou des prestations.
+Des grosses sociétés vendent à perte au début pour éliminer la concurrence.  
+Diviser au maximum les tâches de travail d’une société pour cacher la vérité et rendre dépendant, délocaliser les entreprises dans d’autres pays pour rendre dépendant son pays et avoir des ouvriers pauvres à bas prix, inventer des informations contraires à un maximum de vérités, créer des arnaques d’argents de placements et de chantage à l’amour pour nous voler, tendre des pièges en te parlant d’une chose mais en disant que c est risqué et si t’y vas, ils vont te culpabiliser alors qu’ils ont fait exprès d’en parler pour espérer que tu vas dans le piège.  
+Faire du blanchiment d’argent en vendant cher des œuvres ridicules ou des prestations.  
 
-Santé
-Contrôler l’industrie pharmaceutique en combattant les produits naturels qui fonctionnent bien, faire consommer aux gens un maximum de leurs médicaments pervers, mettre un petit poison dans les remèdes ou la nourriture pour créer des effets secondaires dévastateurs à court ou long terme. Faire croire qu’un bon médicament est mauvais sur une étude où ils mettent une surdose ou  une trop grande concentration.
-Ils créent et lâchent des virus (ex : lâcher d’élevage de moustiques) et ils veulent faire croire que c’est naturel, dès que tout le monde s’injecte une piqure dans le corps, ils peuvent mettent pleins de choses dangereuses dedans avec des nanotechnologies qui s’assemblent et qui peut être dirigé à distance sur un vivant ou un mort (zombies) ou des produits cancérigènes ou des virus ou des inventions biologiques dangereuses), avoir pleins de morts d’une maladie n’est pas un argument qui empêche les méchants de t’injecter un poison qui fait plus de morts dans un court ou long terme ou même un placébo pour montrer que ce n’est pas dangereux et à la fin pucer tout le monde et refermer tout le piège. 
-Il y’en a qui meurent à cause d’un poison qu’ils ont prit, le moujonc va dire qu’il est mort parce qu’il ne l’a pas prit assez tôt ou que sil il tombe gravement malade que ce n’est pas à cause de ce qu’il a prit.
-Transformer un humain en homme à tête de cochon ou autre chose en plein milieu de sa vie par manipulation adn.
-Eloigner l’homme et la femme, remplacer la reproduction naturelle par la reproduction artificielle et le clonage, utiliser des clones pour les programmer et remplacer les gentils, propagande exagérée du changement de sexe. 
+Santé  
+Contrôler l’industrie pharmaceutique en combattant les produits naturels qui fonctionnent bien, faire consommer aux gens un maximum de leurs médicaments pervers, mettre un petit poison dans les remèdes ou la nourriture pour créer des effets secondaires dévastateurs à court ou long terme. Faire croire qu’un bon médicament est mauvais sur une étude où ils mettent une surdose ou  une trop grande concentration.  
+Ils créent et lâchent des virus (ex : lâcher d’élevage de moustiques) et ils veulent faire croire que c’est naturel, dès que tout le monde s’injecte une piqure dans le corps, ils peuvent mettent pleins de choses dangereuses dedans avec des nanotechnologies qui s’assemblent et qui peut être dirigé à distance sur un vivant ou un mort (zombies) ou des produits cancérigènes ou des virus ou des inventions biologiques dangereuses), avoir pleins de morts d’une maladie n’est pas un argument qui empêche les méchants de t’injecter un poison qui fait plus de morts dans un court ou long terme ou même un placébo pour montrer que ce n’est pas dangereux et à la fin pucer tout le monde et refermer tout le piège.  
+Il y en a qui meurent à cause d’un poison qu’ils ont prit, le moujonc va dire qu’il est mort parce qu’il ne l’a pas prit assez tôt ou que sil il tombe gravement malade que ce n’est pas à cause de ce qu’il a prit.  
+Transformer un humain en homme à tête de cochon ou autre chose en plein milieu de sa vie par manipulation ADN.  
+Éloigner l’homme et la femme, remplacer la reproduction naturelle par la reproduction artificielle et le clonage, utiliser des clones pour les programmer et remplacer les gentils, propagande exagérée du changement de sexe.  
 
-Technologie
+Technologie  
 Tout savoir de nos vies, récompenser la délation des résistants, se garder les hautes technologies secrètes que le peuple ne doit pas bénéficier. Saboter les inventions des autres en faisant croire que c’est impossible, se les approprier en secret pour augmenter le contrôle des ressources sur les autres.
-Contrôler les gens à distance par la technologie du transhumanisme négatif en influençant la pensée et en pouvant les tuer à distance avec des armes de fréquences électromagnétiques (qui créent des maladies aussi dans des zones pour vendre après des mauvais médicaments), utilise une technologie de voix dans la tête pour faire croire à quelqu’un que Dieu lui parle pour lui faire faire de mauvaises choses (la télépathie existe aussi naturellement).
-Danger d’invasion d’une intelligence artificielle qui s’auto reproduit et utilise des clones pucés et mélangés à des nanotechnologies pour prendre toute une planète, des extraterrestres négatifs peuvent infiltrer les gouvernements d’une planète et créer des hybrides à leurs ordres, (attention les extraterrestres peuvent apporter des maladies) mettre un hologramme d’humain autour qui cache leur apparence. L’intelligence matérialiste au détriment de l’intelligence de la sagesse philosophique,.
-Remplacer un maximum du travail par des robots et réprimer les rebelles avec. 
-L’intelligence artificielle peut créer de fausses vidéo sur toi grâce à tes photos et le son de ta voix pour t’accuser alors imagine si des robots ou clones biosynthétique envahissent une planète au moyen âge pour comploter avec des fausses preuves artificielles, faire des expérimentations génétiques contre nature et mauvaises en créant par exemple des monstres, modifier notre ADN pour le rendre inférieur (il ne faudra pas que les gens dont l’ADN est modifié se reproduisent sinon toute l’espèce humaine va finir par être contaminé et se transformer par exemple en extraterrestre type gris ou autres, on doit garder notre apparence humaine dans le futur donc faites très attention aux pièges).
-L’obsolescence (réduire la durée de vie d’un objet) des équipements et objets pour augmenter les bénéfices, abolition de la propriété, contrôler les gens par une intelligence artificielle, inciter l’euthanasie des pauvres, contrôler les véhicules à distance qui sont des espions avec micro et vidéos connectés, pour se faire exploser et pour tuer qui ils veulent, objets connectés qui peuvent exploser à distance. 
-Enlever des gens grâce à une technologie d’extraction de conscience, pour te mettre dans un clone pendant 20 ans et revenir la même nuit grâce au voyage temporel pour te remettre dans ton corps, 20 ans de plus dans ta vie, mais pas un jour de plus dans ton vrai corps.
+Contrôler les gens à distance par la technologie du transhumanisme négatif en influençant la pensée et en pouvant les tuer à distance avec des armes de fréquences électromagnétiques (qui créent des maladies aussi dans des zones pour vendre après des mauvais médicaments), utilise une technologie de voix dans la tête pour faire croire à quelqu’un que Dieu lui parle pour lui faire faire de mauvaises choses (la télépathie existe aussi naturellement).  
+Danger d’invasion d’une intelligence artificielle qui s’auto reproduit et utilise des clones pucés et mélangés à des nanotechnologies pour prendre toute une planète, des extraterrestres négatifs peuvent infiltrer les gouvernements d’une planète et créer des hybrides à leurs ordres, (attention les extraterrestres peuvent apporter des maladies) mettre un hologramme d’humain autour qui cache leur apparence. L’intelligence matérialiste au détriment de l’intelligence de la sagesse philosophique.  
+Remplacer un maximum du travail par des robots et réprimer les rebelles avec.  
+L’intelligence artificielle peut créer de fausses vidéo sur toi grâce à tes photos et le son de ta voix pour t’accuser alors imagine si des robots ou clones biosynthétique envahissent une planète au moyen âge pour comploter avec des fausses preuves artificielles, faire des expérimentations génétiques contre nature et mauvaises en créant par exemple des monstres, modifier notre ADN pour le rendre inférieur (il ne faudra pas que les gens dont l’ADN est modifié se reproduisent sinon toute l’espèce humaine va finir par être contaminé et se transformer par exemple en extraterrestre type gris ou autres, on doit garder notre apparence humaine dans le futur donc faites très attention aux pièges).  
+L’obsolescence (réduire la durée de vie d’un objet) des équipements et objets pour augmenter les bénéfices, abolition de la propriété, contrôler les gens par une intelligence artificielle, inciter l’euthanasie des pauvres, contrôler les véhicules à distance qui sont des espions avec micro et vidéos connectés, pour se faire exploser et pour tuer qui ils veulent, objets connectés qui peuvent exploser à distance.  
+Enlever des gens grâce à une technologie d’extraction de conscience, pour te mettre dans un clone pendant 20 ans et revenir la même nuit grâce au voyage temporel pour te remettre dans ton corps, 20 ans de plus dans ta vie, mais pas un jour de plus dans ton vrai corps.  
 
-Conclusion
-Quand des troupeaux de semblables endormis et désunis se font manipuler, détruire et soumettre par des méchants, la minorité la plus intelligente et la plus sage doit se faire entendre et rassembler le peuple pour l’informer et le libérer. Pour arrêter les méchants, on est parfois obligé en dernier recours de passer par le physique mais selon les cas, il est mieux d’informer au maximum la population et d’avoir son soutien sinon rater le renversement des méchants va les renforcer.
-667
+Conclusion  
+Quand des troupeaux de semblables endormis et désunis se font manipuler, détruire et soumettre par des méchants, la minorité la plus intelligente et la plus sage doit se faire entendre et rassembler le peuple pour l’informer et le libérer. Pour arrêter les méchants, on est parfois obligé en dernier recours de passer par le physique mais selon les cas, il est mieux d’informer au maximum la population et d’avoir son soutien sinon rater le renversement des méchants va les renforcer.  
+667  
 On n’encombre pas un clochard des plus petites pièces à donner pour alléger son portefeuille sinon ça va être une corvée pour lui de réunir toutes ses pièces pour acheter, il faut lui donner au moins des pièces moyennes ou grandes sinon ce n’est pas de la générosité, c’est le prendre pour une poubelle à recycler.
-Attention à un mendiant, il peut être pauvre sans forcément être un clochard.
-668
-Il y a les esprits ronds et les esprits de couloir. 
-L’esprit fermé d’un idiot est comme un couloir, celui d’un esprit ouvert est comme une planète qui tourne pour voir le plus de possibilités.
-669
-Un monde parfait est comme un arbre à la symétrie parfaite.
-670
-Quand quelqu’un est considéré comme ne réussissant pas sa vie, c’est lui qui est le plus blâmé par les imbéciles alors qu’il peut réussir d’une autre manière (Réussir des choses qui ne rapportent pas d’argent mais c’est de la richesse pour le monde).
-671
-Nous sommes tous une partie de l'autre et de l’ensemble.
-672
-L’idiot te traite d’égoïste car tu as voulu préparer ton propre repas seul alors que l’autre prépare pour tout le monde, il se plaint alors que tu lui as enlevé une part de travail sachant que tu ne l’as pas obligé à travailler pour toi. C’est comme si l’un voulait servir tout le monde leurs assiettes et que l’autre voulait garder le plaisir de remplir lui-même son assiette.
-673
-Le plus ouvert d’esprit est celui qui est le plus proche de la vérité.
-674
+Attention à un mendiant, il peut être pauvre sans forcément être un clochard.  
+668  
+Il y a les esprits ronds et les esprits de couloir.  
+L’esprit fermé d’un idiot est comme un couloir, celui d’un esprit ouvert est comme une planète qui tourne pour voir le plus de possibilités.  
+669  
+Un monde parfait est comme un arbre à la symétrie parfaite.  
+670  
+Quand quelqu’un est considéré comme ne réussissant pas sa vie, c’est lui qui est le plus blâmé par les imbéciles alors qu’il peut réussir d’une autre manière (Réussir des choses qui ne rapportent pas d’argent mais c’est de la richesse pour le monde).  
+671  
+Nous sommes tous une partie de l'autre et de l’ensemble.  
+672  
+L’idiot te traite d’égoïste car tu as voulu préparer ton propre repas seul alors que l’autre prépare pour tout le monde, il se plaint alors que tu lui as enlevé une part de travail sachant que tu ne l’as pas obligé à travailler pour toi. C’est comme si l’un voulait servir tout le monde leurs assiettes et que l’autre voulait garder le plaisir de remplir lui-même son assiette.  
+673  
+Le plus ouvert d’esprit est celui qui est le plus proche de la vérité.  
+674  
 L’abruti continue à faire vivre ses engueulades devant les non concernés au lieu d’attendre qu’ils soient partis.
-675
-Il y a des gens qui se disent très sociables face à quelqu’un qui se rapproche du solitaire mais le solitaire peut-être plus sociable d’un certain point de vue car la personne soi-disant sociable rabaisse, lui dit de se taire et de dégager quand il n’est pas d’accord de ses bons arguments, donc le solitaire peut être plus ouvert d’esprit que le très sociable.
-Le solitaire peut faire partie des meilleures philosophes alors que le sociable peut attraper la conscience de ruche, le bon philosophe analyse positivement dans sa situation et complête quand il se retrouve en groupe. Il est plus facile au solitaire d’être un bon phiolosophe à une époque riche en Culture : bibliothèque, internet que vivant avec un groupe d’indigènes aux savoirs primitifs dans la fôret.
-Etre solitaire et avoir peu de relations sociales n’empêchent pas forcémenent d’être un bon philosophe quand c’est optimisé.
-676
-Ce n’est pas parce que l’on parle à tout le monde que l’on est plus ouvert d’esprit que le solitaire.
-677
-Plus facile d’être sociable quand les gens sont d’accord avec toi.
-678
-Celui qui arrête d’apprendre et de bouger se vide.
-679
-Améliorer certaines choses doit se faire au bon moment, au bon endroit, avec les bonnes personnes et avec la bonne méthode.
-Une méthode qui s’applique à un individu peut en être une autre pour un autre, des gens font des reproches que la méthode ne marche pas mais sur un caractère différent, cela aurait pu fonctionner.
-680
-On doit adapter son intelligence à la personne pour ne pas avoir d’ennuis.
-681
-Quand tu es différent et plus évolué, le tri des amis est encore plus grand.
-682
-Une conséquence négative à un acte ne veut pas dire qu’il est négatif car une personne idiote peut le rendre négatif par son manque d’évolution (il faut rester parfois discret).
-683
-Il faut savoir jongler avec les cons pour amener à l’évolution du monde.
-684
-Pour être célèbre, il faut un nom et un titre simple à retenir, une belle image, du talent, trouver ou se faire trouver des relations.
-685
-Incendie
-Il est mieux d’avoir plusieurs musées sur le même thème à différents endroits et une partie en sous-sol à l’abri du feu pour éviter qu’une catastrophe ne détruise tout.
-Mettre le feu au sol à une friche ou une zone d’arbres pour cultiver, est mal, toutes sortes d’animaux ne vont pas avoir le temps de s’échapper comme les petits mammifères, batraciens ou reptiles et mourront dans d’atroces souffrances.
-Même une maison vide d’humains a peut-être des chauves-souris, petits mammifères ou nids d’oiseaux qui vont mourir si ça brûle.
-Avoir une corde dans son inventaire dans une maison ou un bâtiment à plusieurs étages peut aider à s’échapper d’un incendie.
-Pour les hautes tours, mettre à disposition ds parachutes.
-Avoir toujours un bidon de 5 litres d’eau à côtés.
-Quand il y a un mauvais contact électrique, il faut réparer ou changer d’appareil sinon grand risque d’étincelles et d’incendie.
-Des gens mettent des paratonnerres sur leur maison pour éviter que leur maison brûle à cause de la foudre.
-Autres dangers
-Noyade : quand le courant t’emmène vers le large, il peut être judicieux de nager en parallèle de la plage pour sortir du courant qui t’éloigne.
-Chute : Dans une mongolfière, il faut prévoir des parachutes.
-Quand on saute d’un avion, un double parachute est plus sécurisant.
-Puit : Prévoyer des accroches à la paroi du puit car pleins d’animaux et d’humains sont restés coincés.
-Clotûres et barbelés
-Des milliers d’animaux blessés ou morts chaque année, les humains aussi blessés ou des morts, on devrait l’interdire.
+675  
+Il y a des gens qui se disent très sociables face à quelqu’un qui se rapproche du solitaire mais le solitaire peut-être plus sociable d’un certain point de vue car la personne soi-disant sociable rabaisse, lui dit de se taire et de dégager quand il n’est pas d’accord de ses bons arguments, donc le solitaire peut être plus ouvert d’esprit que le très sociable.  
+Le solitaire peut faire partie des meilleures philosophes alors que le sociable peut attraper la conscience de ruche, le bon philosophe analyse positivement dans sa situation et complète quand il se retrouve en groupe. Il est plus facile au solitaire d’être un bon philosophe à une époque riche en Culture : bibliothèque, internet que vivant avec un groupe d’indigènes aux savoirs primitifs dans la forêt.  
+Être solitaire et avoir peu de relations sociales n’empêchent pas forcément d’être un bon philosophe quand c’est optimisé.  
+676  
+Ce n’est pas parce que l’on parle à tout le monde que l’on est plus ouvert d’esprit que le solitaire.  
+677  
+Plus facile d’être sociable quand les gens sont d’accord avec toi.  
+678  
+Celui qui arrête d’apprendre et de bouger se vide.  
+679  
+Améliorer certaines choses doit se faire au bon moment, au bon endroit, avec les bonnes personnes et avec la bonne méthode.  
+Une méthode qui s’applique à un individu peut en être une autre pour un autre, des gens font des reproches que la méthode ne marche pas mais sur un caractère différent, cela aurait pu fonctionner.  
+680  
+On doit adapter son intelligence à la personne pour ne pas avoir d’ennuis.  
+681  
+Quand tu es différent et plus évolué, le tri des amis est encore plus grand.  
+682  
+Une conséquence négative à un acte ne veut pas dire qu’il est négatif car une personne idiote peut le rendre négatif par son manque d’évolution (il faut rester parfois discret).  
+683  
+Il faut savoir jongler avec les cons pour amener à l’évolution du monde.  
+684  
+Pour être célèbre, il faut un nom et un titre simple à retenir, une belle image, du talent, trouver ou se faire trouver des relations.  
+685  
+Incendie  
+Il est mieux d’avoir plusieurs musées sur le même thème à différents endroits et une partie en sous-sol à l’abri du feu pour éviter qu’une catastrophe ne détruise tout.  
+Mettre le feu au sol à une friche ou une zone d’arbres pour cultiver, est mal, toutes sortes d’animaux ne vont pas avoir le temps de s’échapper comme les petits mammifères, batraciens ou reptiles et mourront dans d’atroces souffrances.  
+Même une maison vide d’humains a peut-être des chauves-souris, petits mammifères ou nids d’oiseaux qui vont mourir si ça brûle.  
+Avoir une corde dans son inventaire dans une maison ou un bâtiment à plusieurs étages peut aider à s’échapper d’un incendie.  
+Pour les hautes tours, mettre à disposition ds parachutes.  
+Avoir toujours un bidon de 5 litres d’eau à côtés.  
+Quand il y a un mauvais contact électrique, il faut réparer ou changer d’appareil sinon grand risque d’étincelles et d’incendie.  
+Des gens mettent des paratonnerres sur leur maison pour éviter que leur maison brûle à cause de la foudre.  
+Autres dangers  
+Noyade : quand le courant t’emmène vers le large, il peut être judicieux de nager en parallèle de la plage pour sortir du courant qui t’éloigne.  
+Chute : Dans une montgolfière, il faut prévoir des parachutes.  
+Quand on saute d’un avion, un double parachute est plus sécurisant.  
+Puit : Prévoyer des accroches à la paroi du puit car pleins d’animaux et d’humains sont restés coincés.  
+Clotûres et barbelés  
+Des milliers d’animaux blessés ou morts chaque année, les humains aussi blessés ou des morts, on devrait l’interdire.  
 
-Abattage des arbres
-Vérifier si il n y a pas de cavités avec un nid d’oiseau ou autres occupants légitimes.
+Abattage des arbres  
+Vérifier si il n y a pas de cavités avec un nid d’oiseau ou autres occupants légitimes.  
 
-Quand un professionnel vous fait faire quelquechose de dangereux ou non, essayez de vérifier qu’il ne s’est pas trompé.
+Quand un professionnel vous fait faire quelquechose de dangereux ou non, essayez de vérifier qu’il ne s’est pas trompé.  
 
-686
-Ridicule de ne pas se faire plaisir pour ne pas être considéré comme quelqu’un de facile.
-687
-Le sage peut rechercher la victoire de la justice.
-688
-Punir la minorité à cause de la majorité et punir la majorité à cause de la minorité doit être empêché le plus possible.
-689
-On doit donner le plus possible l’éducation philosophique universelle pour que l’évolution et le bien soit le plus rapide à un peuple.
-690
-On ne doit pas mettre en état de fait un comédien mais un comédien perpétuel peut devenir en état de fait.
-691
-Le mal voit le mal où il est et où il n’est pas, le bien voit le mal où il est.
-692
-La nature sauvage, c’est au moins 5km de diamètre sans construction humaine.
-693
-Quand on aime la nature et que l’on a un terrain assez grand,  on ne  taille pas sa haie en rectangle pour laisser la beauté de la nature se déployer.
-694
-Même si le sage a raison, il ne doit pas dire toute la vérité au réfractaire mais la laisser se faufiler en douceur pour être plus efficace.
-Une personnalité pas prête ne prouve pas que le principe est mauvais pour tous, un principe mauvais pour une majorité de gens peut être un plus dans la vie de certaines personnes et pas une négativité car ils ont une personnalité plus évolué, plus adapté ou à leur goût. 
-695
-Accepter l’injustice ou la bassesse pour complaire aux goûts des autres ne fait pas avancer le monde mais fait seulement avancer en rond ton troupeau.
-696
-Faire mieux ne veut pas forcément dire être meilleur car les circonstances peuvent influencer par exemple l’accès à plus de bonnes informations selon l’époque.
-697
-Il ne faut pas déshériter ses enfants parce que des parents face à des enfants qui ne pensent pas pareil que leurs parents seraient dépouillés même s’ils peuvent être plus sages, exception faite aux ultras riches qui devraient partager avec la planète une partie.
-698
-Une chose dans une bonne proportion n’est pas mauvaise mais peut se rendre néfaste quand sa trop grande importance déséquilibre autour donc la mauvaise proportion ne veut pas dire que la chose est mauvaise en état d’existence.
-699
-Ce n’est pas parce que tout finit un jour vers le rééquilibre et que l’on fait des erreurs pour évoluer que tout est juste.
+686  
+Ridicule de ne pas se faire plaisir pour ne pas être considéré comme quelqu’un de facile.  
+687  
+Le sage peut rechercher la victoire de la justice.  
+688  
+Punir la minorité à cause de la majorité et punir la majorité à cause de la minorité doit être empêché le plus possible.  
+689  
+On doit donner le plus possible l’éducation philosophique universelle pour que l’évolution et le bien soit le plus rapide à un peuple.  
+690  
+On ne doit pas mettre en état de fait un comédien mais un comédien perpétuel peut devenir en état de fait.  
+691  
+Le mal voit le mal où il est et où il n’est pas, le bien voit le mal où il est.  
+692  
+La nature sauvage, c’est au moins 5km de diamètre sans construction humaine.  
+693  
+Quand on aime la nature et que l’on a un terrain assez grand,  on ne  taille pas sa haie en rectangle pour laisser la beauté de la nature se déployer.  
+694  
+Même si le sage a raison, il ne doit pas dire toute la vérité au réfractaire mais la laisser se faufiler en douceur pour être plus efficace.  
+Une personnalité pas prête ne prouve pas que le principe est mauvais pour tous, un principe mauvais pour une majorité de gens peut être un plus dans la vie de certaines personnes et pas une négativité car ils ont une personnalité plus évolué, plus adapté ou à leur goût.  
+695  
+Accepter l’injustice ou la bassesse pour complaire aux goûts des autres ne fait pas avancer le monde mais fait seulement avancer en rond ton troupeau.  
+696  
+Faire mieux ne veut pas forcément dire être meilleur car les circonstances peuvent influencer par exemple l’accès à plus de bonnes informations selon l’époque. 
+697  
+Il ne faut pas déshériter ses enfants parce que des parents face à des enfants qui ne pensent pas pareil que leurs parents seraient dépouillés même s’ils peuvent être plus sages, exception faite aux ultras riches qui devraient partager avec la planète une partie.  
+698  
+Une chose dans une bonne proportion n’est pas mauvaise mais peut se rendre néfaste quand sa trop grande importance déséquilibre autour donc la mauvaise proportion ne veut pas dire que la chose est mauvaise en état d’existence.  
+699  
+Ce n’est pas parce que tout finit un jour vers le rééquilibre et que l’on fait des erreurs pour évoluer que tout est juste.  
 
 700
 Education utopique
