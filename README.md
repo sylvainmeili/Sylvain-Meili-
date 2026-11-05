@@ -3928,223 +3928,230 @@ Le Kung-fu est l’art du mouvement et de l’amélioration de tout notre corps 
 900  
 Une planète idéale est composée de pleins de langages et de différentes races ou apparences.  
 
-Divine Corée
+Divine Corée  
 
-Peuple de Corée,
-bordé par des vagues de talents enchantés.
-Un dragon bleu du ciel illuminé d’étoiles,
-où tout le génie se dévoile.
-Une jolie péninsule,
-où tant de beautés circulent.
-Pays des trois rivages,
-aux grandioses paysages.
-Emerveillants pics de  montagnes kumgang au nord,
-et pics féériques de Seoraksan plus précieux que l’or.
-Un chemin parsemé de ponts courbés puis sculpté dans la falaise nous emmène à un temple délicatement posé sur son rocher,
-la cour bordée de rambardes et de poteaux blanc plongent sur le panorama qui s’admire à partir d’un petit pavillon au toit arqué.
-La langue coréenne est un bonheur de délices,
-étincelante comme un feu d’artifices.
-Ses mots sont agréables et faciles à l’écoute,
-comme un carré arrondi, un beau parlé qui nous envoûte.
-Un pays remplit d’histoires passionnantes,
-où des films et séries s’enfilent comme des perles aux adorables musiques chancelantes.
-Des sublimes costumes de guerriers antiques au superbe chapeau rond circulaire,
-et des belles robes hanbok traditionnelles millénaires.
-Les disciplines de combats sont variées : Ssireum, Taekkyon, Tangsudo, Hapkido, Taekwondo,
-pour s’élancer armé ou à mains nues, contrer, tournoyer, sauter et rouler comme un pro.
-Longue vie à cette nation et à tous ses arts,
-pour le plus longtemps nous faire goûter son nectar.
+Peuple de Corée,  
+bordé par des vagues de talents enchantés.  
+Un dragon bleu du ciel illuminé d’étoiles,  
+où tout le génie se dévoile.  
+Une jolie péninsule,  
+où tant de beautés circulent.  
+Pays des trois rivages,  
+aux grandioses paysages.  
+Emerveillants pics de  montagnes kumgang au nord,  
+et pics féériques de Seoraksan plus précieux que l’or.  
+Un chemin parsemé de ponts courbés puis sculpté dans la falaise nous emmène à un temple délicatement posé sur son rocher,  
+la cour bordée de rambardes et de poteaux blanc plongent sur le panorama qui s’admire à partir d’un petit pavillon au toit arqué.  
+La langue coréenne est un bonheur de délices,  
+étincelante comme un feu d’artifices.  
+Ses mots sont agréables et faciles à l’écoute,  
+comme un carré arrondi, un beau parlé qui nous envoûte.  
+Un pays remplit d’histoires passionnantes,  
+où des films et séries s’enfilent comme des perles aux adorables musiques chancelantes.  
+Des sublimes costumes de guerriers antiques au superbe chapeau rond circulaire,  
+et des belles robes hanbok traditionnelles millénaires.  
+Les disciplines de combats sont variées : Ssireum, Taekkyon, Tangsudo, Hapkido, Taekwondo,  
+pour s’élancer armé ou à mains nues, contrer, tournoyer, sauter et rouler comme un pro.  
+Longue vie à cette nation et à tous ses arts,  
+pour le plus longtemps nous faire goûter son nectar.  
 
-Sylvain Meili (11-12/06/2021 : n°20)
+Sylvain Meili (11-12/06/2021 : n°20)  
 
-901
-Le bambou est le roi des graminées et l’empereur de toutes les plantes pour les services qu’il permet dans de très nombreux domaines : maison, nourriture, musique, outil, décoration...
-902
-Il faut bien se comporter dans la vie mais aussi dans ses rêves.
-903
-Plante des noisetiers et des châtaigniers et fait des réserves de leurs fruits à la campagne pour être sûr de toujours avoir à manger, c’est le gain d’une conservation de plusieurs années sans besoin de le cuisiner et qui apporte beaucoup de calories. 
-904
-Si tu veux bronzer, il faut le faire en entier sinon tu es une contrefaçon bicolore. Pour se cacher des autres, plante 4 bâtons accrochés à des murs en tissus ou autres matières pour être à l’abri des regards.
-905
-Faire le bien est une manière de toujours avoir des projets dans la vie.
-906
-Il faut éviter d’acheter des gadgets électroniques qui consomment la planète et vont demander des efforts de recyclage simplement pour ne pas vouloir faire des petits efforts.
-907
-Le rôle d’un roi, d’un empereur, d’un président, d’un ministre ou d’un sage est de mettre en avant les talents de son pays dans l’équilibre d’au moins trois pouvoirs (pour éviter que l’un anéantisse l’autre, de faire en sorte que l’on ne soit pas trop riche et de redistribuer l’argent aux plus pauvres et aux projets de bienfaits communs.
+901  
+Le bambou est le roi des graminées et l’empereur de toutes les plantes pour les services qu’il permet dans de très nombreux domaines : maison, nourriture, musique, outil, décoration...  
+902  
+Il faut bien se comporter dans la vie mais aussi dans ses rêves.  
+903  
+Plante des noisetiers et des châtaigniers et fait des réserves de leurs fruits à la campagne pour être sûr de toujours avoir à manger, c’est le gain d’une conservation de plusieurs années sans besoin de le cuisiner et qui apporte beaucoup de calories.   
+904  
+Si tu veux bronzer, il faut le faire en entier sinon tu es une contrefaçon bicolore. Pour se cacher des autres, plante 4 bâtons accrochés à des murs en tissus ou autres matières pour être à l’abri des regards.  
+905  
+Faire le bien est une manière de toujours avoir des projets dans la vie.  
+906  
+Il faut éviter d’acheter des gadgets électroniques qui consomment la planète et vont demander des efforts de recyclage simplement pour ne pas vouloir faire des petits efforts.  
+907  
+Le rôle d’un roi, d’un empereur, d’un président, d’un ministre ou d’un sage est de mettre en avant les talents de son pays dans l’équilibre d’au moins trois pouvoirs (pour éviter que l’un anéantisse l’autre, de faire en sorte que l’on ne soit pas trop riche et de redistribuer l’argent aux plus pauvres et aux projets de bienfaits communs.  
 
-Pas de partis politiques. Les ministres de chaque domaine devraient être sélectionnés par un examen spécifique ouvert à tous qui ont les compétences pour y répondre ayant fait des études ou écrit un livre qui qualifie leurs compétences pour participer, aussi répondre à un test de questions de sagesse, toutes les réponses des candidats et leurs notes aux examens sont rendus publique immédiatement pour éviter la triche. Ensuite ils élisent le représentant ou le grand sage qui joue surtout le role d’orateur, quelques milliers de citoyens sont tirés au sort pour former toute la cour, le tirage au sort serait changé plus souvent que les ministres pour éviter qu’ils aient le temps d’être corrompus ou menacés, ils sont quelques miliers pour éviter d’être menacé car c’est moins facile qu’un petit groupe plus facilement attaquable. Les ministres peuvent être révocables à tout moment par un vote de la cour. 
-Avant un vote, faire un double débat de personnes contres et pour, 2 personnes choisis et 2 personnes tirés au sort parmi le peuple inscrit (le principal de ce texte en italique et surtout souligné est l’dée d’un autre que j’ai reformulé complêtement avec mes phrases et modifié un peu les idées).
+Pas de partis politiques. Les ministres de chaque domaine devraient être sélectionnés par un examen spécifique ouvert à tous qui ont les compétences pour y répondre ayant fait des études ou écrit un livre qui qualifie leurs compétences pour participer, aussi répondre à un test de questions de sagesse, toutes les réponses des candidats et leurs notes aux examens sont rendus publique immédiatement pour éviter la triche. Ensuite ils élisent le représentant ou le grand sage qui joue surtout le rôle d’orateur, quelques milliers de citoyens sont tirés au sort pour former toute la cour, le tirage au sort serait changé plus souvent que les ministres pour éviter qu’ils aient le temps d’être corrompus ou menacés, ils sont quelques milliers pour éviter d’être menacé car c’est moins facile qu’un petit groupe plus facilement attaquable. Les ministres peuvent être révocables à tout moment par un vote de la cour.  
+Avant un vote, faire un double débat de personnes contres et pour, 2 personnes choisis et 2 personnes tirés au sort parmi le peuple inscrit (le principal de ce texte en italique et surtout souligné est l’idée d’un autre que j’ai reformulé complètement avec mes phrases et modifié un peu les idées).  
 
-908
-Des éléments de vérités cachées, de vérités comparables ou de projets futuristes sont montrés dans les films mais beaucoup croient que ça ne peut pas être vrai. Les films peuvent nous programmer en partie vers un futur souhaité.
-Une prophétie ou une prédiction peut être faite mais nous pouvons agir pour éviter des choses négatives. Une prédiction peut être faite pour être corrigée.
-909
-Un gouvernant ne doit pas être trop payé sinon cela va attirer plus les arrivistes que les vertueux.
-910
-Un bon ami est ouvert d’esprit, fidèle, serviable, discret sur ta vie.
-911
-Où il n’y a pas de montagne, il suffit de creuser, d’entasser puis de décorer.
-912
-Dire d’une manière différente peut aider à comprendre ou nous restimuler l’envie d’écouter.
-913
-Le vertueux voudra faire réussir la vie des autres en plus de la sienne.
-914
-Certains animaux sont plus sages que certains humains.
-915
-C’est en s’imprégnant du talent des autres et de leurs paroles que l’on s’inspire.
-916
-Les rêves
-Mon enquête
-4 types : 
-Vraies personnes
-Hologrammes, internes au cerveau (illusions) ou extérieurs (projetés par une technologie ou une magie de soi-même ou d’une personne de l’astral), 
-Vies antérieures (mémoires temporelles), 
-Prémonitoires (moments de vie future).
+908  
+Des éléments de vérités cachées, de vérités comparables ou de projets futuristes sont montrés dans les films mais beaucoup croient que ça ne peut pas être vrai. Les films peuvent nous programmer en partie vers un futur souhaité.  
+Une prophétie ou une prédiction peut être faite mais nous pouvons agir pour éviter des choses négatives. Une prédiction peut être faite pour être corrigée.  
+909  
+Un gouvernant ne doit pas être trop payé sinon cela va attirer plus les arrivistes que les vertueux.  
+910  
+Un bon ami est ouvert d’esprit, fidèle, serviable, discret sur ta vie.  
+911  
+Où il n’y a pas de montagne, il suffit de creuser, d’entasser puis de décorer.  
+912  
+Dire d’une manière différente peut aider à comprendre ou nous restimuler l’envie d’écouter.  
+913  
+Le vertueux voudra faire réussir la vie des autres en plus de la sienne.  
+914  
+Certains animaux sont plus sages que certains humains.  
+915  
+C’est en s’imprégnant du talent des autres et de leurs paroles que l’on s’inspire.  
+916  
+Les rêves  
+Mon enquête  
+4 types :  
+Vraies personnes  
+Hologrammes, internes au cerveau (illusions) ou extérieurs (projetés par une technologie ou une magie de soi-même ou d’une personne de l’astral).   
+Vies antérieures (mémoires temporelles).  
+Prémonitoires (moments de vie future).  
 
-De l’autre côté existe la technologie et la vrai magie.
+De l’autre côté existe la technologie et la vrai magie.  
 
-Garder sa conscience lucide, explorer, essayer, apprendre.
+Garder sa conscience lucide, explorer, essayer, apprendre.  
 
-L’astral a 3 plans subdivisés 
-Astral supérieur (inférieur moyen, haut)
-Astral moyen (inférieur, moyen, haut)
-Astral inférieur ou bas astral (inférieur, moyen, haut)
-Pour ma part, j’ai demandé plusieurs fois où j’étais dans l’astral : on m’a répondu : moyen astral moyen, moyen astral inférieur, haut astral.
+L’astral a 3 plans subdivisés  
+Astral supérieur (inférieur moyen, haut)  
+Astral moyen (inférieur, moyen, haut)  
+Astral inférieur ou bas astral (inférieur, moyen, haut)  
+Pour ma part, j’ai demandé plusieurs fois où j’étais dans l’astral : on m’a répondu : moyen astral moyen, moyen astral inférieur, haut astral.  
 
-Le défi de s’endormir pour le rêve est de garder sa conscience comme éveillée, donc augmenter sa conscience.
+Le défi de s’endormir pour le rêve est de garder sa conscience comme éveillée, donc augmenter sa conscience.  
 
-Notre corps a de multiples corps qui s’emboîtent.
-On peut être dans un rêve et s’endormir dans un autre rêve (sortir de son corps astral comme pour un 2ème corps astral ou plus haut (ressemblant comme les poupées russes qui s’emboîtent).
-J’ai demandé dans l’astral ou ils atterrissent quand ils rêvent, plusieurs d’un groupe de personnes disent qu’ils sont au bafa dans la plénitude, ça doit être une dimension supérieur au haut astral où ils ont encore une forme, où il y a les anges, d’autres appellent cette zone autrement d’habitude (paradis, plan céleste), j’ai reçu cette information dans deux rêves différents.
+Notre corps a de multiples corps qui s’emboîtent.  
+On peut être dans un rêve et s’endormir dans un autre rêve (sortir de son corps astral comme pour un 2ème corps astral ou plus haut (ressemblant comme les poupées russes qui s’emboîtent).  
+J’ai demandé dans l’astral ou ils atterrissent quand ils rêvent, plusieurs d’un groupe de personnes disent qu’ils sont au bafa dans la plénitude, ça doit être une dimension supérieur au haut astral où ils ont encore une forme, où il y a les anges, d’autres appellent cette zone autrement d’habitude (paradis, plan céleste), j’ai reçu cette information dans deux rêves différents.  
 
-Pouvoirs magiques
-Métamorphe
-Il y a les métamorphes qui se transforment en autre humain, animal, objets… 
-Il y a des humains qui se transforment en animal.
-J’ai déjà été transformé en magnifique femme blonde, asiatique, brune, ce n’est pas une de mes vies antérieures car on m’a dit que je n’avais jamais été un animal ni une femme en tant qu’incarnation complète. 
-A force de s’imaginer à la place des autres, on peut se transformer plus ou moins consciemment, je n’arrive pas encore à le faire vraiment exprès, une fois, j’ai crié devant un ours du voisin qui s’échappait en montant en haut d’un arbre et au milieu, ma voix s’est transformé en aigu de femme.
-J’ai pensé à toucher mon clitoris pour voir l’effet pendant 10 secondes, pas eu le temps de vérifier plus à l’intérieur. 
-Je préfère avoir l’apparence d’une belle femme en transformation qu’un autre homme d’apparence insupportable, normal c’est plus agréable de me regarder dans le miroir.
-J’ai mis la laisse à un chien, je me suis retrouvé avec un humain debout en laisse, une personne a dit une phrase genre choqué, c’était encore un métamorphe.
-Téléportation
-On m’a dit qu’on m’avait téléporté, J’ai réussi aussi à voir une personne se téléporter de quelques mètres. 
-Dans un grand hall de bâtiment, j’ai demandé à quelqu’un de me téléporter pour  aller au WC, il m’a téléporté de plusieurs dizaines de mètres en ajoutant un bruitage de téléportation (sûrement pour l’humour).
-Voler
-Je sais voler, c’est le pouvoir que j’utilise le plus souvent, le plus facile.
-Une fois, j’étais en train de voler en haut de l’intérieur d’un grand hall et en redescendant fort vite, j’ai freiné très brusquement et mon anti gravité a produit une onde choc en cassant des vitres autour.
-Matérialisation et dématérialisation d’objets ou de substances
-J’ai déjà fait apparaître et disparaître un objet : une chaise (j’ai réussi à la faire disparaitre et réapparaitre). 
-Des gens se permettent de changer tes vêtements et même parfois ton apparence.
+Pouvoirs magiques  
+Métamorphe  
+Il y a les métamorphes qui se transforment en autre humain, animal, objets…  
+Il y a des humains qui se transforment en animal.  
+J’ai déjà été transformé en magnifique femme blonde, asiatique, brune, ce n’est pas une de mes vies antérieures car on m’a dit que je n’avais jamais été un animal ni une femme en tant qu’incarnation complète.  
+A force de s’imaginer à la place des autres, on peut se transformer plus ou moins consciemment, je n’arrive pas encore à le faire vraiment exprès, une fois, j’ai crié devant un ours du voisin qui s’échappait en montant en haut d’un arbre et au milieu, ma voix s’est transformé en aigu de femme.  
+J’ai pensé à toucher mon clitoris pour voir l’effet pendant 10 secondes, pas eu le temps de vérifier plus à l’intérieur.  
+Je préfère avoir l’apparence d’une belle femme en transformation qu’un autre homme d’apparence insupportable, normal c’est plus agréable de me regarder dans le miroir.  
+J’ai mis la laisse à un chien, je me suis retrouvé avec un humain debout en laisse, une personne a dit une phrase genre choqué, c’était encore un métamorphe.  
 
-Télékinésie
+Téléportation    
+On m’a dit qu’on m’avait téléporté, J’ai réussi aussi à voir une personne se téléporter de quelques mètres.  
+Dans un grand hall de bâtiment, j’ai demandé à quelqu’un de me téléporter pour  aller au WC, il m’a téléporté de plusieurs dizaines de mètres en ajoutant un bruitage de téléportation (sûrement pour l’humour).  
+
+Voler  
+Je sais voler, c’est le pouvoir que j’utilise le plus souvent, le plus facile.  
+Une fois, j’étais en train de voler en haut de l’intérieur d’un grand hall et en redescendant fort vite, j’ai freiné très brusquement et mon anti gravité a produit une onde choc en cassant des vitres autour.  
+
+Matérialisation et dématérialisation d’objets ou de substances  
+J’ai déjà fait apparaître et disparaître un objet : une chaise (j’ai réussi à la faire disparaitre et réapparaitre).  
+Des gens se permettent de changer tes vêtements et même parfois ton apparence.  
+
+Télékinésie  
  Le pouvoir de léviter (ex : un petit objet pour ma part mais d’autres fois, je n’arrive pas), J’ai soulevé une voiture en posant la main contre verticalement. 
-Une autre personne m’a poursuivi avec un sabre genre Maghreb ou arabe qui tournait dans l’air pour m’atteindre en le dirigeant par la pensée parce que j’ai traversé sa terrasse en haut d’un immeuble en volant, il m’a rattrapé et je me suis réveillé, une autre fois c’était un viking avec sa hache volante. 
-Traverser la matière
-J’ai déjà traversé des murs plusieurs fois.
-Multi instrumentation musicale de pensée 
-Accompagné de l’action d’un seul instrument réel pour ma part.
-J’ai réussi à créer une fois une très belle musique de 2 minutes avec un seul instrument de piano en complétant par des autres instruments seulement grâce à la pensée.
-Invisibilité
-J’ai entendu du bruit dans une salle de classe où je ne voyais pas de personne, je me suis dit, il me faudrait un radar (dans mes yeux), j’ai découvert qu’il était en mode invisible, j’ai dit M. cheveux mi-long, il y en a un qui a dit comment il a fait. 
-J’ai vu plusieurs fois le mode invisible, j’en ai vu disparaitre mais je voyais l’onde de leur forme.
+Une autre personne m’a poursuivi avec un sabre genre Maghreb ou arabe qui tournait dans l’air pour m’atteindre en le dirigeant par la pensée parce que j’ai traversé sa terrasse en haut d’un immeuble en volant, il m’a rattrapé et je me suis réveillé, une autre fois c’était un viking avec sa hache volante.   
 
-Hologrammes
-Il y a des purs hologrammes créés plus ou moins consciemment par soi, des hologrammes que les gens se mettent devant eux en illusion pour te faire croire qu’ils sont quelqu’un d’autre, technologie de projection holographique, les hologrammes durcis, une simulation entière d’hologrammes durcis. 
-Il y avait un groupe qui semblait être des hologrammes, j’ai touché où il ne fallait pas et quelqu’un derrière m’a dit : « tu vas arrêter, j’ai dit : c’est un hologramme et il ma répondu : oui c’est vrai.
-J’ai vu un hologramme de dessin-animé, j’ai voulu le toucher et il était durci au moins sur sa couche externe.
+Traverser la matière  
+J’ai déjà traversé des murs plusieurs fois.  
+Multi instrumentation musicale de pensée  
+Accompagné de l’action d’un seul instrument réel pour ma part.  
+J’ai réussi à créer une fois une très belle musique de 2 minutes avec un seul instrument de piano en complétant par des autres instruments seulement grâce à la pensée.  
 
-Vies antérieures : j’ai rêvé que je dessinais une aigrette, j’ai retrouvé mon dessin, impossible de confondre avec d’autres dessins d’oiseaux.
-J’en ai fait plus d’une dizaine de vies antérieures avant de trouver les faits historiques.
-J’ai déjà lu un texte en entier en rêve.
-Rêves prémonitoires
-J’ai fait des rêves prémonitoires (souvent quelques semaines ou mois à l’avance), une fille m’a dit que je suis un trésor, et m’a dit la même chose exactement à la même place de la bibliothèque, j’ai rêvé d’une douche dans un couloir, je l’ai vu en vrai. J’ai rêvé que j’avais des douleurs horribles dans un lit de chez mes parents et c’est arrivé alors que j’étais seulement venu pour les vacances, encore d’autres…
+Invisibilité  
+J’ai entendu du bruit dans une salle de classe où je ne voyais pas de personne, je me suis dit, il me faudrait un radar (dans mes yeux), j’ai découvert qu’il était en mode invisible, j’ai dit M. cheveux mi-long, il y en a un qui a dit comment il a fait.  
+J’ai vu plusieurs fois le mode invisible, j’en ai vu disparaitre mais je voyais l’onde de leur forme.  
 
-Anecdotes et autres…
-Je suis régulièrement conscient pendant le rêve que je suis dans un rêve (rêve lucide).
-Certains te testent pour enseigner des leçons ou voir si tu réagis de la bonne façon, d’autre pour s’amuser ou d’autres pour te tromper et t’embêter, beaucoup de prétextes sont possible.
-Il y a des gens qui veulent t’hypnotiser et t’influence pour faire de mauvaises choses.
-On m’a fait une caméra caché, on t’aura la prochaine fois parce que j’ai dit que je savais que je rêvais. 
-Ils peuvent tourner comme des scènes de film, il y en a un qui faisait semblant d’être mort, je lui ai pris sa belle cape décorée à capuche et il a demandé à la récupérer.
-Ecouter des phrases en boucle en s’endormant peut peut-être programmer un rêve ou te téléporter dans un endroit similaire ou avec certaines personnes ou hologrammes.
-Attention à ne pas faire de mauvaises choses dans ses rêves pour ne pas avoir peut-être un procès ou des ennemis après sa mort.
-Je pense qu’il y a aussi des doubles des personnes sur Terre sauf quand c’est un imposteur.
-J’ai demandé à rencontrer mon double de l’astral (en ayant un double, c’est que je suis le fragment d’une âme) avec le double d’un ami dans un rêve, il avait les cheveux longs alors que les miens sont courts, je me suis présenter, il a dit que la planète Terre s’appelle Tarsèk quand j’ai demandé, cela fait 3 personnes différentes qui me disent ce nom.
-Le double d’une personne sur Terre a mis du goudron dans le garage tandis que l’autre du ciment, idée similaire à la même période, preuve de la dimension parallèle.
+Hologrammes  
+Il y a des purs hologrammes créés plus ou moins consciemment par soi, des hologrammes que les gens se mettent devant eux en illusion pour te faire croire qu’ils sont quelqu’un d’autre, technologie de projection holographique, les hologrammes durcis, une simulation entière d’hologrammes durcis.  
+Il y avait un groupe qui semblait être des hologrammes, j’ai touché où il ne fallait pas et quelqu’un derrière m’a dit : « tu vas arrêter, j’ai dit : c’est un hologramme et il ma répondu : oui c’est vrai.  
+J’ai vu un hologramme de dessin-animé, j’ai voulu le toucher et il était durci au moins sur sa couche externe.  
 
-On m’a dit une fois que j’étais dans l’astral moyen inférieur et que peu de personnes savent voler.
-Une fois en 13ème dimension, on m’a dit que tout le monde sait voler.
-J’ai vu différents vaisseaux spatiaux, extraterrestres, humains à cornes, humanoïdes proche de têtes de renards, animaux inexistant sur Terre comme un insecte dont j’ai oublié le nom là-haut.
-J’ai aperçu un avien bleu à tête d’oiseau, et un autre extraterrestre gris clair devant moi avec des yeux de taille normale en amandes, un nez très écrasé en longueur, sans cheveux avec une tête de taille moyenne, j’ai touché son ventre quelques dizaines de secondes qui est pleins de bandes verticales arrondies, on n’a pas parlé.
-J’ai aussi vu une fille genre 15 ou 18 ans au visage bleu.
-J’ai vu vite fait des vrais livres contrairement à un rêve de bas niveau holographique de soi où tu essaye de lire et c’est flou contrairement aux vraies choses de l’autre dimension. J’ai vu des gens habillés bellement en moyen-âge à l’intérieur d’une grande salle et tout a changé dans une transition rapide pour un décor technologique et vêtements modernes. J’ai demandé à une femme de changer d’apparence mais à chaque fois c’était moyen (elle doit revoir son catalogue). J’ai dit que si j’étais blessé, je me régénérais car mon corps est en train de dormir, cet enfoiré ma balancé de l’acide sur ma cuisse, attention à la magie noire.
+Vies antérieures  
+J’ai rêvé que je dessinais une aigrette, j’ai retrouvé mon dessin, impossible de confondre avec d’autres dessins d’oiseaux.  
+J’en ai fait plus d’une dizaine de vies antérieures avant de trouver les faits historiques.  
+J’ai déjà lu un texte en entier en rêve.  
+
+Rêves prémonitoires  
+J’ai fait des rêves prémonitoires (souvent quelques semaines ou mois à l’avance), une fille m’a dit que je suis un trésor, et m’a dit la même chose exactement à la même place de la bibliothèque, j’ai rêvé d’une douche dans un couloir, je l’ai vu en vrai. J’ai rêvé que j’avais des douleurs horribles dans un lit de chez mes parents et c’est arrivé alors que j’étais seulement venu pour les vacances, encore d’autres…  
+
+Anecdotes et autres…  
+Je suis régulièrement conscient pendant le rêve que je suis dans un rêve (rêve lucide).  
+Certains te testent pour enseigner des leçons ou voir si tu réagis de la bonne façon, d’autre pour s’amuser ou d’autres pour te tromper et t’embêter, beaucoup de prétextes sont possible.  
+Il y a des gens qui veulent t’hypnotiser et t’influence pour faire de mauvaises choses.  
+On m’a fait une caméra caché, on t’aura la prochaine fois parce que j’ai dit que je savais que je rêvais.  
+Ils peuvent tourner comme des scènes de film, il y en a un qui faisait semblant d’être mort, je lui ai pris sa belle cape décorée à capuche et il a demandé à la récupérer.  
+Écouter des phrases en boucle en s’endormant peut peut-être programmer un rêve ou te téléporter dans un endroit similaire ou avec certaines personnes ou hologrammes.  
+Attention à ne pas faire de mauvaises choses dans ses rêves pour ne pas avoir peut-être un procès ou des ennemis après sa mort.  
+Je pense qu’il y a aussi des doubles des personnes sur Terre sauf quand c’est un imposteur.  
+J’ai demandé à rencontrer mon double de l’astral (en ayant un double, c’est que je suis le fragment d’une âme) avec le double d’un ami dans un rêve, il avait les cheveux longs alors que les miens sont courts, je me suis présenter, il a dit que la planète Terre s’appelle Tarsèk quand j’ai demandé, cela fait 3 personnes différentes qui me disent ce nom.  
+Le double d’une personne sur Terre a mis du goudron dans le garage tandis que l’autre du ciment, idée similaire à la même période, preuve de la dimension parallèle.  
+
+On m’a dit une fois que j’étais dans l’astral moyen inférieur et que peu de personnes savent voler.  
+Une fois en 13ème dimension, on m’a dit que tout le monde sait voler.  
+J’ai vu différents vaisseaux spatiaux, extraterrestres, humains à cornes, humanoïdes proche de têtes de renards, animaux inexistant sur Terre comme un insecte dont j’ai oublié le nom là-haut.  
+J’ai aperçu un avien bleu à tête d’oiseau, et un autre extraterrestre gris clair devant moi avec des yeux de taille normale en amandes, un nez très écrasé en longueur, sans cheveux avec une tête de taille moyenne, j’ai touché son ventre quelques dizaines de secondes qui est pleins de bandes verticales arrondies, on n’a pas parlé.  
+J’ai aussi vu une fille genre 15 ou 18 ans au visage bleu.  
+J’ai vu vite fait des vrais livres contrairement à un rêve de bas niveau holographique de soi où tu essaye de lire et c’est flou contrairement aux vraies choses de l’autre dimension. J’ai vu des gens habillés bellement en moyen-âge à l’intérieur d’une grande salle et tout a changé dans une transition rapide pour un décor technologique et vêtements modernes. J’ai demandé à une femme de changer d’apparence mais à chaque fois c’était moyen (elle doit revoir son catalogue). J’ai dit que si j’étais blessé, je me régénérais car mon corps est en train de dormir, cet enfoiré ma balancé de l’acide sur ma cuisse, attention à la magie noire.  
 Une personne s’est retrouvé avec un bout de peau fusionné avec la mienne pour me retenir, je ne sais pas ce qu’il voulait ce mécontent.
-Il y a des vrais chats qui parlent français. 
-J’ai vu une femme qui n’avait rien entre les jambes, c’est la catégorie ange.
-Peut-être qu’il est possible de faire un enfant dans son rêve et que l’on peut rencontrer après sa mort. Un médium a reçu comme message que c’est possible, comme ce que je pensais.
-Les rêves peuvent se dérouler dans la dimension de l’astral ou peut-être ailleurs.
-Il y a aussi des suites de rêves, j’ai pris en photo une femme une fois, elle me l’a rappelé plusieurs mois après, aussi d’autres suites mais cela est négatif donc je ne cite pas.
-Dans l’astral, ils font de temps en temps des commentaires sur ma vie sur Terre.
-J’ai vu aussi des hologrammes bugger : pixels de carré, image sauté devient noir et blanc. 
-Ce n’est pas parce qu’on peut créer des hologrammes dans son rêve qu’il n’y a pas d’autres personnes et des hologrammes extérieurs à nous. Et quand on reçoit un vrai message télépathique, on peut aussi créer une image.
-On peut se retrouver à l’intérieur d’un jeu vidéo genre PlayStation 1 ou ultra réaliste.
-On peut voir et ressentir son passé, voir un futur probable ou futur qui va arriver, une métaphore d’un futur (mise en scène fausse mais information vrai), ou alors un événement qui est proche mais dans une dimension parallèle.
+Il y a des vrais chats qui parlent français.  
+J’ai vu une femme qui n’avait rien entre les jambes, c’est la catégorie ange.  
+Peut-être qu’il est possible de faire un enfant dans son rêve et que l’on peut rencontrer après sa mort. Un médium a reçu comme message que c’est possible, comme ce que je pensais.  
+Les rêves peuvent se dérouler dans la dimension de l’astral ou peut-être ailleurs.  
+Il y a aussi des suites de rêves, j’ai pris en photo une femme une fois, elle me l’a rappelé plusieurs mois après, aussi d’autres suites mais cela est négatif donc je ne cite pas.  
+Dans l’astral, ils font de temps en temps des commentaires sur ma vie sur Terre.  
+J’ai vu aussi des hologrammes bugger : pixels de carré, image sauté devient noir et blanc.  
+Ce n’est pas parce qu’on peut créer des hologrammes dans son rêve qu’il n’y a pas d’autres personnes et des hologrammes extérieurs à nous. Et quand on reçoit un vrai message télépathique, on peut aussi créer une image.  
+On peut se retrouver à l’intérieur d’un jeu vidéo genre PlayStation 1 ou ultra réaliste.  
+On peut voir et ressentir son passé, voir un futur probable ou futur qui va arriver, une métaphore d’un futur (mise en scène fausse mais information vrai), ou alors un événement qui est proche mais dans une dimension parallèle.  
 Dans la colline de Hanoï, il y avait un grand temple accroché à la montagne non présent dans notre réalité, dites-le si vous avez vu la même chose.
-Je me suis endormi plusieurs fois avec l’écouteur de radio et je l’entends encore de l’autre côté dans l’astral, une personne a dit : on écoute le cours (radio intructive), la radio peut passer dans l’astral de cette façon.
-J’écoutais la radio en dormant, un reportage sur Ubisoft (société de jeux vidéo), je me suis retrouvé avec des gens de Ubisoft, l’un m’a dit sa colère que il travaillait toute une journée et que tout ce qu’il avait fait était annulé, certains avaient envie de se suicider, rien à voir avec ce qui était dit dans la radio en 3d, écouter la radio peut nour faire arriver dans des endroits correspondant ou hologrammes quand c’est peu réaliste, ça ne veux pas dire que c’est obligatoirement à l’intérieur de notre cerveau.
-Se frotter les deux yeux dans son rêve peut permettre de se sortir d’une situation.
-J’ai vu un stade gigantesque, peut-être plus de 3 fois plus grand que le stade de France, j’étais sur le toit.
-J’étais dans une grande rue en forme de cylindre très éclairée, j’ai continué quand j’ai compris que j’étais tout en haut d’une tour, une ville gigantesque de gratte-ciels d’où je ne voyais pas le fond, immense.
-On peut sentir l’odeur, le parfum qu’une femme a mis sur ses mains pour un massage sentait très fortement bon, l’ignorant dit qu’on ne peut pas sentir d’odeur dans les rêves. 
-On peut aussi goûter à des saveurs inédites de nourriture dont j’ai plusieurs fois fait l’expérience.
-On peut tout faire comme en vrai dans les rêves même lire un bout de livre sauf une projection d’une conscience qui crée un faux livre.
+Je me suis endormi plusieurs fois avec l’écouteur de radio et je l’entends encore de l’autre côté dans l’astral, une personne a dit : on écoute le cours (radio instructive), la radio peut passer dans l’astral de cette façon.  
+J’écoutais la radio en dormant, un reportage sur Ubisoft (société de jeux vidéo), je me suis retrouvé avec des gens de Ubisoft, l’un m’a dit sa colère que il travaillait toute une journée et que tout ce qu’il avait fait était annulé, certains avaient envie de se suicider, rien à voir avec ce qui était dit dans la radio en 3d, écouter la radio peut nous faire arriver dans des endroits correspondant ou hologrammes quand c’est peu réaliste, ça ne veux pas dire que c’est obligatoirement à l’intérieur de notre cerveau.  
+Se frotter les deux yeux dans son rêve peut permettre de se sortir d’une situation.  
+J’ai vu un stade gigantesque, peut-être plus de 3 fois plus grand que le stade de France, j’étais sur le toit.  
+J’étais dans une grande rue en forme de cylindre très éclairée, j’ai continué quand j’ai compris que j’étais tout en haut d’une tour, une ville gigantesque de gratte-ciels d’où je ne voyais pas le fond, immense.  
+On peut sentir l’odeur, le parfum qu’une femme a mis sur ses mains pour un massage sentait très fortement bon, l’ignorant dit qu’on ne peut pas sentir d’odeur dans les rêves.  
+On peut aussi goûter à des saveurs inédites de nourriture dont j’ai plusieurs fois fait l’expérience.  
+On peut tout faire comme en vrai dans les rêves même lire un bout de livre sauf une projection d’une conscience qui crée un faux livre.  
 Une fois, j’avais le bras droit ouvert et j’avais 2 tendons verts, le bras avait l’air d’avoir moins de matière, je ne sais pas quel dimension en étant humain. 
-La vitesse des coups de poings peut être bien plus rapide que sur Terre parfois. 
-J’ai demandé si on pouvait se connecter à l’internet de la Terre 3d, il m’a dit que quelqu’un avait essayé sans réussir.
-J’ai voulu passer ma main à travers un petit miroir genre comme un portail, et elle a traverser devant deux femmes, illusion ou possibilité ?
-J’ai vu une grande ville d’eau où toutes les rues étaient de l’eau, à la limite de la ville il y avait une barrière qui semblait être une barrière électromagnétique, zone artificielle dans l’espace ou une planète, je ne sais pas, il semblait ne rien y avoir de concret. J’ai cassé une vitre d’un très grand bateau, pardon, je volais très vite, je n’ai pas bien vu le décor qui arrivait, après ils m’ont tirés des rayons lasers rouges, ils tirent avant de comprendre et de me demander ces méchants.
-Un homme m’a dit qu’il avait 387 ans sans paraître plus de 50 ans.
-Tomber dans un état de coma sur Terre plusieurs années et avoir une vraie vie pendant plusieurs années avec des vrais gens et même faire un enfant est possible, dire que c’est l’imagination n’est pas une preuve que c’est faux.
+La vitesse des coups de poings peut être bien plus rapide que sur Terre parfois.  
+J’ai demandé si on pouvait se connecter à l’internet de la Terre 3d, il m’a dit que quelqu’un avait essayé sans réussir.  
+J’ai voulu passer ma main à travers un petit miroir genre comme un portail, et elle a traverser devant deux femmes, illusion ou possibilité ?  
+J’ai vu une grande ville d’eau où toutes les rues étaient de l’eau, à la limite de la ville il y avait une barrière qui semblait être une barrière électromagnétique, zone artificielle dans l’espace ou une planète, je ne sais pas, il semblait ne rien y avoir de concret. J’ai cassé une vitre d’un très grand bateau, pardon, je volais très vite, je n’ai pas bien vu le décor qui arrivait, après ils m’ont tirés des rayons lasers rouges, ils tirent avant de comprendre et de me demander ces méchants.  
+Un homme m’a dit qu’il avait 387 ans sans paraître plus de 50 ans.  
+Tomber dans un état de coma sur Terre plusieurs années et avoir une vraie vie pendant plusieurs années avec des vrais gens et même faire un enfant est possible, dire que c’est l’imagination n’est pas une preuve que c’est faux.  
 
-Réponses de mon antériorité
-On m’a dit que je pouvais poser des questions et de bien retenir.
-La première fois que j’ai été créé : 250 millions d’années, 120 000 que je suis sur Terre, jamais été un animal ni une femme.
+Réponses de mon antériorité  
+On m’a dit que je pouvais poser des questions et de bien retenir.  
+La première fois que j’ai été créé : 250 millions d’années, 120 000 que je suis sur Terre, jamais été un animal ni une femme.  
 
-(Je viens d’un autre univers, hors contexte du rêve : médium).
+(Je viens d’un autre univers, hors contexte du rêve : médium).  
 
-Voyage temporel : 
-1. J’ai discuté avec une personne, je lui ai dit mon nom et prénom, que j’étais en 2023 (je me suis trompé c’était 2025), il fut prit d’un étonnement et me dit qu’il était de 2300 et quelques années (oublié la date précise), je lui ai parlé de mon chêne bonsaï de mon livre qui représente l’univers, je lui ait parlé de 2 espèces d’extraterrestres (klingon et …), quand j’ai dit le nom d’une, il m’a fait un signe (doigt horizontal au niveau du coup, je ne dit pas l’espèce pour ne pas poser de problème diplomatique futur, à très grandes oreilles), je lui ai demandé de me dire un nom d’une autre sorte d’extraterrestre mais trop compliqué et j’ai oublié.
-Attention si vous êtes un O’brien du 24ème siècle ou fin 23ème, ne lisez pas ce qui suit en 2, cela pourrait changer le futur.
-2. J’ai encore rencontré une personne du 24ème siècle, je me suis dit d’abord en voyant cet inconnu aux cheveux bruns très courts, je vais essayer de deviner son prénom, Mickael (musicien violoncelle), il me répond oui et me dit que c’est le père de miles O’Brien (vérifier internet, c’est vrai) dans star trek et que je vais me réincarner dans sa lignée, peut-être dans ses ancêtres je crois genre grand-père ou arrière grand père, j’ai oublié, je dis que je ne suis pas d’accord, dit que je suis obligé, il me dit aussi que je me réincarnerais plus dans ma famille actuelle, je me suis énervé car je déteste qu’on me donne des ordres… 
-C’est dangereux si quelqu’un fait une série sur le futur avec des vrais faits d’un voyageur temporel, possible, restons prudent si c’est vrai ou non.
+Voyage temporel :  
+1. J’ai discuté avec une personne, je lui ai dit mon nom et prénom, que j’étais en 2023 (je me suis trompé c’était 2025), il fut prit d’un étonnement et me dit qu’il était de 2300 et quelques années (oublié la date précise), je lui ai parlé de mon chêne bonsaï de mon livre qui représente l’univers, je lui ait parlé de 2 espèces d’extraterrestres (klingon et …), quand j’ai dit le nom d’une, il m’a fait un signe (doigt horizontal au niveau du coup, je ne dit pas l’espèce pour ne pas poser de problème diplomatique futur, à très grandes oreilles), je lui ai demandé de me dire un nom d’une autre sorte d’extraterrestre mais trop compliqué et j’ai oublié.  
+Attention si vous êtes un O’brien du 24ème siècle ou fin 23ème, ne lisez pas ce qui suit en 2, cela pourrait changer le futur.  
+2. J’ai encore rencontré une personne du 24ème siècle, je me suis dit d’abord en voyant cet inconnu aux cheveux bruns très courts, je vais essayer de deviner son prénom, Mickael (musicien violoncelle), il me répond oui et me dit que c’est le père de miles O’Brien (vérifier internet, c’est vrai) dans star trek et que je vais me réincarner dans sa lignée, peut-être dans ses ancêtres je crois genre grand-père ou arrière grand père, j’ai oublié, je dis que je ne suis pas d’accord, dit que je suis obligé, il me dit aussi que je me réincarnerais plus dans ma famille actuelle, je me suis énervé car je déteste qu’on me donne des ordres…  
+C’est dangereux si quelqu’un fait une série sur le futur avec des vrais faits d’un voyageur temporel, possible, restons prudent si c’est vrai ou non.  
 
-La même personne (différents individus)
-Une personne peut être :
-1. Son double d’une autre dimension
-2. Un métamorphe
-3. Un clone
-4. La vraie personne rejoint dans un rêve (rêves partagés)
-5. Un hologramme en projection technologique ou mental, ou un hologramme durci par manifestation de matérialisation de conscience ou par une technologie (ex : holodeck).
+La même personne (différents individus)  
+Une personne peut être :  
+1. Son double d’une autre dimension  
+2. Un métamorphe  
+3. Un clone  
+4. La vraie personne rejoint dans un rêve (rêves partagés)  
+5. Un hologramme en projection technologique ou mental, ou un hologramme durci par manifestation de matérialisation de conscience ou par une technologie (ex : holodeck).  
 
-Les rêves sont une autre réalité
-Plus que des rêves.
-J’ai demandé si il y’ avait des dormeurs, plusieurs ont levé la main. J’ai déjà ressenti des grosses douleurs dans mes rêves mais aussi des balles de pistolet qui ne m’ont pas fait mal.
-On m’a dit que je devenais chauve dans un rêve, c’est comme cela que je l’ai découvert pour la première fois mais mes cheveux ont repoussé après (les mougeons m’avaient trop énervé et fait perdre quelques cheveux).
-Une fois, je volais vers le haut puis mon pouvoir s’est interrompu et je suis tombé brusquement, au lieu de me réveiller normalement, je me suis senti ensuite réintégré brusquement mon corps réel de l’extérieur vers l’intérieur, preuve que l’on peut quitter son corps la nuit.
-Il est possible de se trouver avec une autre personne de la planète Terre dans un rêve (rêves partagés), deux personnes de la réalité qui décrivent avoir fait exactement le même rêve.
-Une personne m’a montré l’acteur de la série Urgences, j’ai entendu son nom acrane, j’ai vérifié dans la réalité, il s’appelle McCrane, j’avais mal entendu, c’était bien la même tête alors que ne connaissais pas son nom et n’avais pas regardé la série depuis presque 20 ans environ.
-Quand une fille me fait un long poème sur moi, je ne peux pas l’inventer, la paire de chaussettes blanches à lumières multicolores paraît très difficile à inventé dans la réalité avec un tissu aussi fin. 
-Je ne sais pas combien de preuves il vous faut pour savoir que ce que l’on voit dans nos nos rêves ne sont pas toujours la création de notre cerveau mais que c’est très diversifié.
+Les rêves sont une autre réalité  
+Plus que des rêves.  
+J’ai demandé si il y’ avait des dormeurs, plusieurs ont levé la main. J’ai déjà ressenti des grosses douleurs dans mes rêves mais aussi des balles de pistolet qui ne m’ont pas fait mal.  
+On m’a dit que je devenais chauve dans un rêve, c’est comme cela que je l’ai découvert pour la première fois mais mes cheveux ont repoussé après (les mougeons m’avaient trop énervé et fait perdre quelques cheveux).  
+Une fois, je volais vers le haut puis mon pouvoir s’est interrompu et je suis tombé brusquement, au lieu de me réveiller normalement, je me suis senti ensuite réintégré brusquement mon corps réel de l’extérieur vers l’intérieur, preuve que l’on peut quitter son corps la nuit.  
+Il est possible de se trouver avec une autre personne de la planète Terre dans un rêve (rêves partagés), deux personnes de la réalité qui décrivent avoir fait exactement le même rêve.  
+Une personne m’a montré l’acteur de la série Urgences, j’ai entendu son nom acrane, j’ai vérifié dans la réalité, il s’appelle McCrane, j’avais mal entendu, c’était bien la même tête alors que ne connaissais pas son nom et n’avais pas regardé la série depuis presque 20 ans environ.  
+Quand une fille me fait un long poème sur moi, je ne peux pas l’inventer, la paire de chaussettes blanches à lumières multicolores paraît très difficile à inventé dans la réalité avec un tissu aussi fin.  
+Je ne sais pas combien de preuves il vous faut pour savoir que ce que l’on voit dans nos nos rêves ne sont pas toujours la création de notre cerveau mais que c’est très diversifié.  
 
-917
-On apprécie mieux le repas le corps bien propre et les fluides évacués. 
-918
-Il vaut mieux boire dans de l’eau en bouteille de verre que du plastique qui laisse échapper des nanoparticules de plastique qui se répandent dans le corps et la nature et le plastique détériore le goût de l’eau.
-919
-Les gens de peu n’arrivent pas à se passer d’alcool pour faire la fête et cela baisse la conscience pendant la consommation et aussi la sagesse générale après remise en état de sobriété.
-920
-Véhicule ou voiture
-Avoir une voiture au début du 21ème siècle, c’est le prix d’un appartement minimum ou d’une maison au cour d’une vie : achat, réparation obligatoire, payer l’assurance chaque année, essence. Autant prendre un vélo avec une remorque si l’on n’a pas des besoins trop éloignés et ainsi gagner en qualité de vie dans d’autres domaines plutôt qu’entretenir sa pauvreté pour certains.
-Garder ses distances avec les véhicules, toujours vérifier 2 fois avant de traverser à pieds ou en voiture même avec le feu vert, toujours regarder derrière quand quelqu’un dépasse en voiture ou en vélo.
+917  
+On apprécie mieux le repas le corps bien propre et les fluides évacués.  
+918  
+Il vaut mieux boire dans de l’eau en bouteille de verre que du plastique qui laisse échapper des nanoparticules de plastique qui se répandent dans le corps et la nature et le plastique détériore le goût de l’eau.  
+919  
+Les gens de peu n’arrivent pas à se passer d’alcool pour faire la fête et cela baisse la conscience pendant la consommation et aussi la sagesse générale après remise en état de sobriété.  
+920  
+Véhicule ou voiture  
+Avoir une voiture au début du 21ème siècle, c’est le prix d’un appartement minimum ou d’une maison au cour d’une vie : achat, réparation obligatoire, payer l’assurance chaque année, essence. Autant prendre un vélo avec une remorque si l’on n’a pas des besoins trop éloignés et ainsi gagner en qualité de vie dans d’autres domaines plutôt qu’entretenir sa pauvreté pour certains.  
+Garder ses distances avec les véhicules, toujours vérifier 2 fois avant de traverser à pieds ou en voiture même avec le feu vert, toujours regarder derrière quand quelqu’un dépasse en voiture ou en vélo.  
 Avoir un hammerdex pour casser une vitre très solide quand on reste coincé dans une voiture ou un véhicule.
 Avoir un marteau ou une masse pour casser la vitre ou désemboiter la tête du siège pour casser la vitre quand on a rien d’autres mais les vitres peuvent être trop solides comparé aux premières voitures d’il y a longtemps si on reste coincé dans un véhicule dans un accident ou qu’il prend feu comme les véhicules à batterie électrique trop dangereux. La boucle de ceinture peut être utile pour casse la vitre ou pousser une voiture en panne.
 
