@@ -1572,110 +1572,110 @@ Il vaut mieux compiler tout dans un seul livre de proverbes et poèmes à chaque
 Il ne peut pas être le meilleur livre si il y a que 1/3 du contenu. Le livre ultime est la meilleure version.  
 Il faut numériser un maximum de livres en conservant toujours sa version physique et recopier les textes à l’aide de l’IA ou d’un robot pour gagner du temps car elle lit et recopie les textes sinon il y a trop de destruction à cause d’incendies ou autres facteurs de pertes.   
 350  
-Facile de se croire juste et sage quand on n’est pas confronté à des événements de circonstance qui pourraient nous faire faire des bêtises.
-351
-Avoir des défauts n’empêche pas de donner des conseils quand on est sûr d’avoir raison.
-352
-Quand on a des messages à faire passer, il vaut mieux ne pas parler d’autres sujets difficiles à convaincre car ses propres messages seraient boycottés par un manque de crédibilité ressentis par les gens, il faut donc laisser certains sujets à d’autres spécialistes.
-353
-On a tous des talents, mais aussi des talents en construction et des talents cachés ou que l’on ne connaît pas.
-A celui qui dit qu’il n’a pas de talent ou se dévalorise, lui répondre : tu as un talent mais tu l'a pas encore trouver.
-Je ne me moque pas de ceux qui n’on pas de talent, seuleument de ceux qui m’attaquent en me sous-estimant ou m’accusant de ce que je ne suis pas, et j’ai très souvent plus d’arguments que ceux qui m’attaquent en débordant sur ma vie plutôt que sur le sujet, tu auras 0 impact sur la société dit le moujonc, t’as pas de couilles pour dire t’as pas de courage, ridicule d’utiliser ce mot d’anatomie pour dire pleins de phrases différentes : vas t’apprendre à parler bien, le menteur manichéen qui m’accuse.
-354
-S’il n’y avait pas de zones interdites à la construction, l’humain aurait détruit la nature encore plus.
-355
-Pas besoin de fixer quelqu’un dans les yeux continuellement pour lui parler, donc de manière non extrêmement fixatif ou fuyant.
-356
-C’est quand on emmène quelqu’un dans ses retranchements psychiques que l’on voit à quel point il est con.
-357
-On ne doit pas imposer aux enfants de faire des bisous s’ils n’en ont pas envie.
-358
-Si l’on est contre la torture, c’est que l’on aime un peu tout le monde.
-359
-Les choses qui nous appartiennent et qui sont taxées ne sont donc pas complètement à nous.
-360
-Pour avoir plein « d’amis (faux)» ne dit pas tout ce que tu penses.
-361
-Le joyau doit trouver sa flamme pour briller. S’il brille déjà c’est bien, s’il s’éteint, aies la patience de le rallumer car c’est parfois ce qui brille le moins qui brillera le plus à l’avenir.
-362
-On peut laisser l’autre faire son travail à notre place mais si on le fait, on accorde le mérite à soi-même et on gagne notre fierté, donc autant appliquer son idée soi-même.
-363
-On peut marquer l’histoire sans qu’aucune personne ne le sache localement.
-364
-Parler plus fort ou gueuler ne fait pas mieux changer d’avis ou comprendre mais peut dissuader.
-365
-Vivre dans la nature de longues années ne veut pas dire la connaître.
-366
-Si quelqu’un s’énerve après t’avoir demandé quelque chose et que tu aies dit non, c’est qu’il est con. Attention il va te traiter d’égoïste, quand quelqu’un est égoïste, il suffit de le convaincre gentiment, et là il aurait peut-être dit oui si l’autre ne s’était pas énervé.
-367
-On ne doit jamais dire à quelqu’un qu’il est vieux.
-368
-Ce que tu n’aimes pas peut avoir le mérite d’exister.
-369
-Le poli peut être beaucoup plus méchant que quelqu’un de malpoli qui ferait des bonnes actions, le poli fait le mal à côté mais le malpoli insulte les méchants.
-370
-La drague excessive des hommes développe le narcissisme égocentrique des femmes. Elles justifient ainsi leurs privilèges qui ne sont pas justifiables. Il faut promouvoir l’égalité de la drague.
-100 fois plus facile pour une femme très belle que pour un homme très beau, c’est évident, la quasi-totalité qui ont prêté leur corps (prostituées) dans l’histoire contre de l’argent sont des femmes parce que les hommes même en proposant gratuitement ont pleins de refus. Elles ont pleins de clients en se faisant payer, la preuve que c’est cent fois plus facile.
-A beauté égal sur internet au 21ème siècle, une femme très belle a 100 fois plus de chances qu’un homme, elle attend et ils viennent, nous on attend très longtemps, beaucoup plus d’hommes sur internet que de femmes.
-C’est les hommes qui font largement le plus d’effort.
-Y a des femmes qui disent que ce n’est pas plus facile pour un homme que pour une femme, ignorant à ce point là, c’est grave.
-Elle trouve une excuse de vibration ou de loi d’attraction des pensées, t’a oublié les circonstances sociétales qui sont la plus grande partie.
-371
-Dire quelque chose quand on est énervé ne veut pas obligatoirement dire le vouloir.
-372
-La vraie religion est la vérité et le bien.
-On ne doit pas croire par le statut supérieur d’autorité et par le nombre de partisants, on doit croire par la logique et les arguments.
-Celui qui t’empêche de critiquer est un mauvais comportement.
-Imposer une doctrine sous menace de la torture ou la mort est un comportement de démon.
-Les démons peuvent aussi avoir des pouvoirs magiques par exemple grâce à l’énergie envoyée par les fidèles qui prient ou d’autres manières comme la technologie.
-373
-Comment reconnaître un con : si on l’insulte, il va frapper directement, on doit répondre par des mots et non par de la violence physique.
-374
-Être courageux c’est faire face à la souffrance dans l’effort.
-375
-Une famille c’est une collaboration d’esprits à différents stades de développement.
-376
-Ne pas dire à n’importe qui les bonnes actions que tu vas faire car il pourrait s’en mêler et mettre à mal ta mission.
-377
-Dieu ne contrôle pas tout mais s’informe de tout..
-378
-La sagesse est de pouvoir se confronter à la connerie des autres sans en être affecté.
-379
- Les humains doivent se taire la nuit surtout après minuit, par exemple dans les couloirs des immeubles pour ne pas empêcher de dormir les gens ou pour ne pas les réveiller.
-380
-Le but de la vie, ce n’est pas d’être parfait mais de s’en rapprocher suffisamment.
-381
-L’équilibre c’est assez de services aux autres et de services à soi.
-382
-Le jardin impérial
-Les informations sur la réalisation du jardin idéal sont dans le poème suivant ainsi qu’en complétant avec d’autres poèmes sur la nature et numéros : 294, 327, 872…
-Quelques informations en plus : 
-Proverbe :Dans la nature ou au jardin, il faut s’imaginer à la place des animaux et des enfants pour mettre ou garder les éléments de nature dans lesquelles ils s’amusent, intéragissent ou sont en admiration. 
-Pour avoir le plus beau jardin du monde, il faut l’installer au creux de montagnes déjà existantes, le jardin doit paraître naturel et sauvage. 
-Il faut au moins 5 étages de hauteurs différentes de pics de montagnes pour que le paysage soit très grandiose.
+Facile de se croire juste et sage quand on n’est pas confronté à des événements de circonstance qui pourraient nous faire faire des bêtises.  
+351  
+Avoir des défauts n’empêche pas de donner des conseils quand on est sûr d’avoir raison.  
+352  
+Quand on a des messages à faire passer, il vaut mieux ne pas parler d’autres sujets difficiles à convaincre car ses propres messages seraient boycottés par un manque de crédibilité ressentis par les gens, il faut donc laisser certains sujets à d’autres spécialistes.  
+353  
+On a tous des talents, mais aussi des talents en construction et des talents cachés ou que l’on ne connaît pas.  
+A celui qui dit qu’il n’a pas de talent ou se dévalorise, lui répondre : tu as un talent mais tu l'a pas encore trouver.  
+Je ne me moque pas de ceux qui n’ont pas de talent, seulement de ceux qui m’attaquent en me sous-estimant ou m’accusant de ce que je ne suis pas, et j’ai très souvent plus d’arguments que ceux qui m’attaquent en débordant sur ma vie plutôt que sur le sujet, tu auras 0 impact sur la société dit le moujonc, t’as pas de couilles pour dire t’as pas de courage, ridicule d’utiliser ce mot d’anatomie pour dire pleins de phrases différentes : vas t’apprendre à parler bien, le menteur manichéen qui m’accuse.  
+354  
+S’il n’y avait pas de zones interdites à la construction, l’humain aurait détruit la nature encore plus.  
+355  
+Pas besoin de fixer quelqu’un dans les yeux continuellement pour lui parler, donc de manière non extrêmement fixatif ou fuyant.  
+356  
+C’est quand on emmène quelqu’un dans ses retranchements psychiques que l’on voit à quel point il est con.  
+357  
+On ne doit pas imposer aux enfants de faire des bisous s’ils n’en ont pas envie.  
+358  
+Si l’on est contre la torture, c’est que l’on aime un peu tout le monde.  
+359  
+Les choses qui nous appartiennent et qui sont taxées ne sont donc pas complètement à nous.  
+360  
+Pour avoir plein « d’amis (faux)» ne dit pas tout ce que tu penses.  
+361  
+Le joyau doit trouver sa flamme pour briller. S’il brille déjà c’est bien, s’il s’éteint, aies la patience de le rallumer car c’est parfois ce qui brille le moins qui brillera le plus à l’avenir.  
+362  
+On peut laisser l’autre faire son travail à notre place mais si on le fait, on accorde le mérite à soi-même et on gagne notre fierté, donc autant appliquer son idée soi-même.  
+363  
+On peut marquer l’histoire sans qu’aucune personne ne le sache localement.  
+364  
+Parler plus fort ou gueuler ne fait pas mieux changer d’avis ou comprendre mais peut dissuader.  
+365  
+Vivre dans la nature de longues années ne veut pas dire la connaître.  
+366  
+Si quelqu’un s’énerve après t’avoir demandé quelque chose et que tu aies dit non, c’est qu’il est con. Attention il va te traiter d’égoïste, quand quelqu’un est égoïste, il suffit de le convaincre gentiment, et là il aurait peut-être dit oui si l’autre ne s’était pas énervé.  
+367  
+On ne doit jamais dire à quelqu’un qu’il est vieux.  
+368  
+Ce que tu n’aimes pas peut avoir le mérite d’exister.  
+369  
+Le poli peut être beaucoup plus méchant que quelqu’un de malpoli qui ferait des bonnes actions, le poli fait le mal à côté mais le malpoli insulte les méchants.  
+370  
+La drague excessive des hommes développe le narcissisme égocentrique des femmes. Elles justifient ainsi leurs privilèges qui ne sont pas justifiables. Il faut promouvoir l’égalité de la drague.  
+100 fois plus facile pour une femme très belle que pour un homme très beau, c’est évident, la quasi-totalité qui ont prêté leur corps (prostituées) dans l’histoire contre de l’argent sont des femmes parce que les hommes même en proposant gratuitement ont pleins de refus. Elles ont pleins de clients en se faisant payer, la preuve que c’est cent fois plus facile.  
+A beauté égal sur internet au 21ème siècle, une femme très belle a 100 fois plus de chances qu’un homme, elle attend et ils viennent, nous on attend très longtemps, beaucoup plus d’hommes sur internet que de femmes.  
+C’est les hommes qui font largement le plus d’effort.  
+Y a des femmes qui disent que ce n’est pas plus facile pour un homme que pour une femme, ignorant à ce point là, c’est grave.  
+Elle trouve une excuse de vibration ou de loi d’attraction des pensées, t’a oublié les circonstances sociétales qui sont la plus grande partie.  
+371  
+Dire quelque chose quand on est énervé ne veut pas obligatoirement dire le vouloir.  
+372  
+La vraie religion est la vérité et le bien.  
+On ne doit pas croire par le statut supérieur d’autorité et par le nombre de partisans, on doit croire par la logique et les arguments.  
+Celui qui t’empêche de critiquer est un mauvais comportement.  
+Imposer une doctrine sous menace de la torture ou la mort est un comportement de démon.  
+Les démons peuvent aussi avoir des pouvoirs magiques par exemple grâce à l’énergie envoyée par les fidèles qui prient ou d’autres manières comme la technologie.  
+373  
+Comment reconnaître un con : si on l’insulte, il va frapper directement, on doit répondre par des mots et non par de la violence physique.  
+374  
+Être courageux c’est faire face à la souffrance dans l’effort.  
+375  
+Une famille c’est une collaboration d’esprits à différents stades de développement.  
+376  
+Ne pas dire à n’importe qui les bonnes actions que tu vas faire car il pourrait s’en mêler et mettre à mal ta mission.  
+377  
+Dieu ne contrôle pas tout mais s’informe de tout.  
+378  
+La sagesse est de pouvoir se confronter à la connerie des autres sans en être affecté.  
+379  
+Les humains doivent se taire la nuit surtout après minuit, par exemple dans les couloirs des immeubles pour ne pas empêcher de dormir les gens ou pour ne pas les réveiller.  
+380  
+Le but de la vie, ce n’est pas d’être parfait mais de s’en rapprocher suffisamment.  
+381  
+L’équilibre c’est assez de services aux autres et de services à soi.  
+382  
+Le jardin impérial  
+Les informations sur la réalisation du jardin idéal sont dans le poème suivant ainsi qu’en complétant avec d’autres poèmes sur la nature et numéros : 294, 327, 872…  
+Quelques informations en plus :  
+Proverbe :Dans la nature ou au jardin, il faut s’imaginer à la place des animaux et des enfants pour mettre ou garder les éléments de nature dans lesquelles ils s’amusent, interagissent ou sont en admiration.  
+Pour avoir le plus beau jardin du monde, il faut l’installer au creux de montagnes déjà existantes, le jardin doit paraître naturel et sauvage.   
+Il faut au moins 5 étages de hauteurs différentes de pics de montagnes pour que le paysage soit très grandiose.  
 
-Les nénuphars blanc ne doivent pas dépasser 1/8 de la surface de l’étang sinon c’est disharmonieux, le groupe vers le milieu et quelques petits proches contre la berge. Pas de lotus.
-Un étang remplit d’un fond à base de cailloux ou un peu de roche est l’idéal.
-Il y a des berges plus ou moins hautes par rapport à l’eau, en joncs, fleurs des près, plantes de berges aquatiques et d’aures un peu les pieds dans l’eau, des gros cailloux dépassant dans la berge. Une île maquette de montagne près ou au milieu, un fond marin avec des zones profondes et peu profondes avec différentes tailles de cailloux. Un arbre comme un pin sylvestre le tronc proche de l’eau est possible si l’étang a une assez grande surface, eviter les arbres feuillus car les feuilles qui tombent créent de la vase.
-Il faut laisser des branches horizontales à hauteur de main pour s’amuser à grimper dessus, se balancer ou faire du sport avec.
-Laisser des branches toucher le sol pour se cacher derrière ou d’une averse passagère ou pour une certaine ambiance.
+Les nénuphars blanc ne doivent pas dépasser 1/8 de la surface de l’étang sinon c’est disharmonieux, le groupe vers le milieu et quelques petits proches contre la berge. Pas de lotus.  
+Un étang remplit d’un fond à base de cailloux ou un peu de roche est l’idéal.  
+Il y a des berges plus ou moins hautes par rapport à l’eau, en joncs, fleurs des près, plantes de berges aquatiques et d’autres un peu les pieds dans l’eau, des gros cailloux dépassant dans la berge. Une île maquette de montagne près ou au milieu, un fond marin avec des zones profondes et peu profondes avec différentes tailles de cailloux. Un arbre comme un pin sylvestre le tronc proche de l’eau est possible si l’étang a une assez grande surface, éviter les arbres feuillus car les feuilles qui tombent créent de la vase.  
+Il faut laisser des branches horizontales à hauteur de main pour s’amuser à grimper dessus, se balancer ou faire du sport avec.  
+Laisser des branches toucher le sol pour se cacher derrière ou d’une averse passagère ou pour une certaine ambiance.  
 
-Il doit y avoir un maximum d’originalité.
-(Faire un jardin idéal où il y a des montagnes évite de déplacer des montagnes comme le jardin Genyue ou sinon creuse et crée des monts avec le remblai).
+Il doit y avoir un maximum d’originalité.  
+(Faire un jardin idéal où il y a des montagnes évite de déplacer des montagnes comme le jardin Genyue ou sinon creuse et crée des monts avec le remblai).  
 
-2 œuvres ultimes
-Le jardin parfait ne peut se séparer de sa montagne.
-Un numéro correspond à un proverbe (383) qui donne un poème s’insérant au-dessus d’une peinture ou un dessin décoré dans un cadre sculpté de 8 dragons chinois, dont les 2 dragons bleus du ciel tenant le poème représentant le jardin parfait : (6 versions : printemps, été, automne, hiver, neige et à partir de sous l’eau). 
-Les dragons peuvent être de la même couleur en changeant seulement la couleur des yeux.
-On peut aussi intégrer une boite à musique automate en bas du cadre ou créer une vraie chanson qui se met en hologramme avec un clip musicale en appuyant sur un bouton, le livre est derrière le poème dans une boite.
-Le quintuple jardin
-Il représente le paysage vue à partir de sous l’eau.
-Des montagnes miniatures aquatiques jusqu’aux vraies montagnes.
-On voit le jardin aquatique, le jardin miniature de l’île, le jardin principal et les jardins dans la montagne (2 ou plus).
+2 œuvres ultimes  
+Le jardin parfait ne peut se séparer de sa montagne.  
+Un numéro correspond à un proverbe (383) qui donne un poème s’insérant au-dessus d’une peinture ou un dessin décoré dans un cadre sculpté de 8 dragons chinois, dont les 2 dragons bleus du ciel tenant le poème représentant le jardin parfait : (6 versions : printemps, été, automne, hiver, neige et à partir de sous l’eau).  
+Les dragons peuvent être de la même couleur en changeant seulement la couleur des yeux.  
+On peut aussi intégrer une boite à musique automate en bas du cadre ou créer une vraie chanson qui se met en hologramme avec un clip musicale en appuyant sur un bouton, le livre est derrière le poème dans une boite.  
+Le quintuple jardin  
+Il représente le paysage vue à partir de sous l’eau.  
+Des montagnes miniatures aquatiques jusqu’aux vraies montagnes.  
+On voit le jardin aquatique, le jardin miniature de l’île, le jardin principal et les jardins dans la montagne (2 ou plus).  
 
-L’ensemble ultime des 5 jardins superposés ou plus sont un ensemble de jardins avec différents étages et vallées.
+L’ensemble ultime des 5 jardins superposés ou plus sont un ensemble de jardins avec différents étages et vallées.  
 
-Les plus belles montagnes sont en Chine.
+Les plus belles montagnes sont en Chine.  
 
 383
 Le jardin parfait ne peut se séparer de sa montagne
