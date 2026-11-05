@@ -1234,42 +1234,42 @@ Une forêt sans ancêtres n’est pas une véritable forêt.
 
 Forêt impériale  
 
-Forêt d’ombres et clairsemée,
-qui laisse les lumières venir et s'en aller.
-De toutes les formes,
-des mignonnes aux plus énormes.
-De toutes les couleurs changeantes,
-et de toutes les fleurs éclatantes.
-Toutes sortes de plantes parfumées,
-accompagnent notre ballade enchantée.
-Du solitaire,
-au bouquet dans l'air.
-Une véritable forêt avec des ancêtres,
-ce sont les plus beaux êtres.
-Avec leurs racines s'étalant,
-ils sont encore plus impressionnants.
-L'épicéa aux branches tombantes au sol et piquant vers le ciel,
-le meilleur arbre à grimper nous fait gravir sa beauté exceptionnelle.
-Parfois un arbre s'accrochant à la falaise en l'épousant, 
-serpentant de sa racine jusqu'à sa tête de dragon dormant.
-Parfois laissant un gros pont au-dessus du ruisseau,
-rendant le cours d'eau argenté encore plus beau.
-Un divin petit arbre comme un bonsaï,
-pousse au milieu de la rocaille.
-Les plus beaux tortueux,
-paraissent vertueux.
-Comme une transe,
-dans leurs danses.
-Certains sont tombés,
-et continuent à pousser.
-Ils deviennent de plus en plus fabuleux,
-et remplissent un monde de plus en plus joyeux.
-D’énormes troncs sans vie,
-continuent de faire vivre leurs beautés avant de finir en confettis.
-L’ancien au fond de sa grotte arborée,
-nous laisse en son cœur entrer.
+Forêt d’ombres et clairsemée,  
+qui laisse les lumières venir et s'en aller.  
+De toutes les formes,  
+des mignonnes aux plus énormes.  
+De toutes les couleurs changeantes,  
+et de toutes les fleurs éclatantes.  
+Toutes sortes de plantes parfumées,  
+accompagnent notre ballade enchantée.  
+Du solitaire,  
+au bouquet dans l'air.  
+Une véritable forêt avec des ancêtres,  
+ce sont les plus beaux êtres.  
+Avec leurs racines s'étalant,  
+ils sont encore plus impressionnants.  
+L'épicéa aux branches tombantes au sol et piquant vers le ciel,  
+le meilleur arbre à grimper nous fait gravir sa beauté exceptionnelle.  
+Parfois un arbre s'accrochant à la falaise en l'épousant,  
+serpentant de sa racine jusqu'à sa tête de dragon dormant.  
+Parfois laissant un gros pont au-dessus du ruisseau,  
+rendant le cours d'eau argenté encore plus beau.  
+Un divin petit arbre comme un bonsaï,  
+pousse au milieu de la rocaille.  
+Les plus beaux tortueux,  
+paraissent vertueux.  
+Comme une transe,  
+dans leurs danses.  
+Certains sont tombés,  
+et continuent à pousser.  
+Ils deviennent de plus en plus fabuleux,  
+et remplissent un monde de plus en plus joyeux.  
+D’énormes troncs sans vie,  
+continuent de faire vivre leurs beautés avant de finir en confettis.  
+L’ancien au fond de sa grotte arborée,  
+nous laisse en son cœur entrer.  
 
-Sylvain Meili (2020 : n°6)
+Sylvain Meili (2020 : n°6)  
 
 251
 Celui qui veut faire du mal à autrui se fait mal à lui-même, et celui qui fait du bien aux autres se fait du bien.
