@@ -4511,767 +4511,767 @@ L’amour des gros, c’est un excès d’appétit.
 1004  
 Les gens écologistes, ce n’est pas plus de deux enfants en moyenne pour l’amour de leur planète si elle trop peuplée.  
 1005  
-Le meilleur amour est contre les capricieux égocentriques.
-1006
-L’amour de la pétasse se lasse facilement.
-1007
-L’amour de son prochain est toujours le prochain pour les salops.
-1008
-L’amour intelligent est une éponge à dissoudre la connerie. 
-1009
-S’embrasser en publique, ce n’est pas de l’amour pour les vierges.
-1010
-Les femmes sont plus tatouées car c’est plus facile pour elles de ne pas se prendre un vent.
-1011
-Mettre un vent parce qu’on ne parle pas beaucoup en oubliant toutes les qualités que n’a pas forcément le moulin à paroles.
-1012
-Une bombe anatomique explose de beauté pour enfumer les autres.
-1013
-Montrer qu’on aime en se tatouant est ridicule.
-1014 
-L’amour de l’imbécile préfère la richesse de l’argent et de la popularité que la réunion de la beauté et de la sagesse.
-1015
-Chercher l’amour en allant parler et répondre à tout le monde en mettant que des vents, c’est perdre du temps à ceux qui sont vraiment intéressés. A la fin on prévient l’autre que c’est finit au lieu de faire son lâche et le sourd (méthode du moujonc), on explique ou on s’excuse.
-1016
-La réunion brun aux yeux verts et blonde aux yeux bleus, c’est la terre et la forêt qui plonge dans l’océan au soleil.
-1017
-L’amour commence par soi-même pour mieux servir aux autres.
-1018
-Trop d’amour à donner au mäle, c’est risquer de bien se faire avoir.
+Le meilleur amour est contre les capricieux égocentriques.  
+1006  
+L’amour de la pétasse se lasse facilement.  
+1007  
+L’amour de son prochain est toujours le prochain pour les salops.  
+1008  
+L’amour intelligent est une éponge à dissoudre la connerie.  
+1009  
+S’embrasser en publique, ce n’est pas de l’amour pour les vierges.  
+1010  
+Les femmes sont plus tatouées car c’est plus facile pour elles de ne pas se prendre un vent.  
+1011  
+Mettre un vent parce qu’on ne parle pas beaucoup en oubliant toutes les qualités que n’a pas forcément le moulin à paroles.  
+1012  
+Une bombe anatomique explose de beauté pour enfumer les autres.  
+1013  
+Montrer qu’on aime en se tatouant est ridicule.  
+1014  
+L’amour de l’imbécile préfère la richesse de l’argent et de la popularité que la réunion de la beauté et de la sagesse.  
+1015  
+Chercher l’amour en allant parler et répondre à tout le monde en mettant que des vents, c’est perdre du temps à ceux qui sont vraiment intéressés. A la fin on prévient l’autre que c’est finit au lieu de faire son lâche et le sourd (méthode du moujonc), on explique ou on s’excuse.  
+1016  
+La réunion brun aux yeux verts et blonde aux yeux bleus, c’est la terre et la forêt qui plonge dans l’océan au soleil.  
+1017  
+L’amour commence par soi-même pour mieux servir aux autres.  
+1018  
+Trop d’amour à donner au mäle, c’est risquer de bien se faire avoir.  
 1019
-L’affreux qui aime l’humanité laissera ses gênes à la poubelle.
-1020
-Trouver quelqu’un avant son travail motive pour trouver du travail et ne pas avoir de travail démotive l’autre.
-1021
-Les Shaolins sont des chats qui ont la ligne (pas en surpoids).
-1022
-Au Kung-fu, on donne des coups de fous.
-1023
-Quand quelqu’un drague par un jour de chaleur et se prend un vent, au moins ça le rafraîchit.
-1024
-Le roi des cons ne reste jamais au pouvoir car si c'est le plus con, un bouffon va prendre sa place.
-1025
-L'imbécile te réveille la nuit vu qu'il n'est pas dans la lumière.
-1026
-L’infini tout seul a crée un autre infini pour faire éclore la fleur de l’amour.
-1027
-L’amour n’est jamais trop tard dans l’infini.
-1028
-L’amour jeune commence dans la soie et l’amour vieux fini en torchon.
-1029
-Il vaut mieux être mal accompagné pendant un temps que finir vierge.
-1030
-Au 21ème siècle : belle femme : un de perdu, 100 prétendants, bel homme : une de perdue, plus de 100 vents. (surtout sur internet, on oblige les hommes à faire 99% des efforts de drague, c’est injuste).
-1031
-L’amour est comme un nénuphar : pure blancheur à la lumière mais quand l’eau ne circule plus, ça finit dans la boue.
-1032
-L’amour intelligent ne se plaint pas de te laisser des jours de tranquillité pour toi sans l’autre de temps en temps.
-1033
-Si tu dois toujours être en compétition ou en stress de faire ton quota de paroles pour garder quelqu’un, tu es avec un con.
-1034
-L’amour n’est pas un concours, c’est un bien-être.
-1035
-Une femme qu’on aime qui nous trompe, il n y a pas pire bêtise que de lui donner.
-1036
-Aimer quelqu’un, c’est accepter de l’aider sans contreparties.
-1037
-Le vrai amour sait se contenter de la routine et faire des efforts.
-1038
-Moins de moches et d’imbéciles, plus d’amours.
-1039
-Né de l’amour de deux mochetés contraires, la beauté parfaite peut émerger, comme avec des européens trop montagneux et des asiatiques avec une trop grosse tête plate bridée.
-1040
-La montagne veille sur le jardin parfait de l’amour.
-1041
-En amour, il vaut mieux ne pas vieillir ensemble trop longtemps dans la laideur et rejoindre l’au-delà.
-1042
-Trop d’amour pour son enfant pourri gâté capricieux est un amour corrompu.
-1043
-Se faire narguer par l’amour des autres rend fou d’injustice.
-1044
-L’amour doit s’arrêter aux limites de l’exhibition non consentie.
-1045
-L’amour est une fleur à 5 pétales : voir, entendre, toucher, goûter, émotions.
-1046
-Ne pas refuser l’amour pour un complexe d’infériorité.
-1047
-Aimer quelqu’un ne doit pas devenir l’idolâtrie qui enchaîne notre esprit.
-1048
-Le mensonge du début est pardonnable s’il est avoué ensuite et que c’est grâce à ce mensonge que cela dure longtemps.
-1049
-Ne dis pas tout sur ta vie car si tu dévoiles trop de défauts ou de problèmes, tu risques de perdre ta chance.
-1050
-La galanterie seulement envers les femmes est une invention ridicule car on est censé être égaux.
-1051
-Le jardin de l’amour se cultive et s’entretient.
-1052
-L’amour n’est pas tout prêt, il se construit, il faut donc avoir la patience de connaître l’autre.
-1053
-Trop draguer les femmes peut les rendre pourries gâtées, capricieuses, égocentriques.
-1054
-Ne mets pas trop d’argent dans le mariage, gardes-en pour la durée.
-1055
-Une personne bonne au démarrage peut s’avérer moins bonne que quelqu’un de mauvais au démarrage mais bien sur la durée.
-1056
-Trop de verres de rouge (vin) et conduire c’est le feu vert vers l’accident écrasé comme un ver rouge de sang.
-1057
-Il faut remuer la merde de l’injustice pour qu’elle sèche mieux.
-1058
-La fleur de l’amour déploie ses pétales infinis.
-1059
-On doit traiter sa femme comme une princesse mais sans se ruiner.
-1060
-C’est un luxe d’avoir quelqu’un alors ne te plains pas de la routine mais propose de faire mieux.
-1061
-On aime plus quelqu’un qui nous aime, c’est l’effet miroir.
+L’affreux qui aime l’humanité laissera ses gênes à la poubelle.  
+1020  
+Trouver quelqu’un avant son travail motive pour trouver du travail et ne pas avoir de travail démotive l’autre.  
+1021  
+Les Shaolins sont des chats qui ont la ligne (pas en surpoids).  
+1022  
+Au Kung-fu, on donne des coups de fous.  
+1023  
+Quand quelqu’un drague par un jour de chaleur et se prend un vent, au moins ça le rafraîchit.  
+1024  
+Le roi des cons ne reste jamais au pouvoir car si c'est le plus con, un bouffon va prendre sa place.  
+1025  
+L'imbécile te réveille la nuit vu qu'il n'est pas dans la lumière.  
+1026  
+L’infini tout seul a crée un autre infini pour faire éclore la fleur de l’amour.  
+1027  
+L’amour n’est jamais trop tard dans l’infini.  
+1028  
+L’amour jeune commence dans la soie et l’amour vieux fini en torchon.  
+1029  
+Il vaut mieux être mal accompagné pendant un temps que finir vierge.  
+1030  
+Au 21ème siècle : belle femme : un de perdu, 100 prétendants, bel homme : une de perdue, plus de 100 vents. (surtout sur internet, on oblige les hommes à faire 99% des efforts de drague, c’est injuste).  
+1031  
+L’amour est comme un nénuphar : pure blancheur à la lumière mais quand l’eau ne circule plus, ça finit dans la boue.  
+1032  
+L’amour intelligent ne se plaint pas de te laisser des jours de tranquillité pour toi sans l’autre de temps en temps.  
+1033  
+Si tu dois toujours être en compétition ou en stress de faire ton quota de paroles pour garder quelqu’un, tu es avec un con.  
+1034  
+L’amour n’est pas un concours, c’est un bien-être.  
+1035  
+Une femme qu’on aime qui nous trompe, il n y a pas pire bêtise que de lui donner.  
+1036  
+Aimer quelqu’un, c’est accepter de l’aider sans contreparties.  
+1037  
+Le vrai amour sait se contenter de la routine et faire des efforts.  
+1038  
+Moins de moches et d’imbéciles, plus d’amours.  
+1039  
+Né de l’amour de deux mochetés contraires, la beauté parfaite peut émerger, comme avec des européens trop montagneux et des asiatiques avec une trop grosse tête plate bridée.  
+1040  
+La montagne veille sur le jardin parfait de l’amour.  
+1041  
+En amour, il vaut mieux ne pas vieillir ensemble trop longtemps dans la laideur et rejoindre l’au-delà.  
+1042  
+Trop d’amour pour son enfant pourri gâté capricieux est un amour corrompu.  
+1043  
+Se faire narguer par l’amour des autres rend fou d’injustice.  
+1044  
+L’amour doit s’arrêter aux limites de l’exhibition non consentie.  
+1045  
+L’amour est une fleur à 5 pétales : voir, entendre, toucher, goûter, émotions.  
+1046  
+Ne pas refuser l’amour pour un complexe d’infériorité.  
+1047  
+Aimer quelqu’un ne doit pas devenir l’idolâtrie qui enchaîne notre esprit.  
+1048  
+Le mensonge du début est pardonnable s’il est avoué ensuite et que c’est grâce à ce mensonge que cela dure longtemps.  
+1049  
+Ne dis pas tout sur ta vie car si tu dévoiles trop de défauts ou de problèmes, tu risques de perdre ta chance.  
+1050  
+La galanterie seulement envers les femmes est une invention ridicule car on est censé être égaux.  
+1051  
+Le jardin de l’amour se cultive et s’entretient.  
+1052  
+L’amour n’est pas tout prêt, il se construit, il faut donc avoir la patience de connaître l’autre.  
+1053  
+Trop draguer les femmes peut les rendre pourries gâtées, capricieuses, égocentriques.  
+1054  
+Ne mets pas trop d’argent dans le mariage, gardes-en pour la durée.  
+1055  
+Une personne bonne au démarrage peut s’avérer moins bonne que quelqu’un de mauvais au démarrage mais bien sur la durée.  
+1056  
+Trop de verres de rouge (vin) et conduire c’est le feu vert vers l’accident écrasé comme un ver rouge de sang.  
+1057  
+Il faut remuer la merde de l’injustice pour qu’elle sèche mieux.  
+1058  
+La fleur de l’amour déploie ses pétales infinis.  
+1059  
+On doit traiter sa femme comme une princesse mais sans se ruiner.  
+1060  
+C’est un luxe d’avoir quelqu’un alors ne te plains pas de la routine mais propose de faire mieux.  
+1061  
+On aime plus quelqu’un qui nous aime, c’est l’effet miroir.  
 1062
-Le vrai amour est une richesse gratuite.
-1063
-L’imbécile passe plus de temps avec ses animaux qu’avec sa moitié sauf si c’est son métier.
-1064
-L’amour n’a pas besoin d’explications, il se vit.
-1065
-Les capricieux ont toujours besoin qu’on parle souvent, l’amour des sages n’est pas gêné par des longs silences. (On doit pouvoir ne rien dire pendant une semaine même en aimant quelqu’un qui habite encore loin sans que la personne se plaigne).
-1066
-Rien à faire (pas obliger) d’avoir des cadeaux, le cadeau est d’être avec toi.
-1067
-Les compliments, c’est la touche en plus qui transcende le gâteau.
-1068
-Il n’y a pas de justice dans l’amour sur terre car des plus cons et moches que toi prennent ta place alors qu’ils en ont eu plusieurs et d’autres rien.
-1069
-La drague n’est pas réservée aux hommes sauf dans la tête des arriérés.
-1070
-Se prendre des centaines de vents rend fou, le destin a intérêt à avoir une bonne excuse.
-1071
-Si tu es trop moche, drague une aveugle.
-1072
-On te critique car tu vas trop vite ou pour un autre trop lentement, seul compte la fondation, pas la vitesse.
-1073
-Quand tu aimes quelqu’un, n’en fais pas trop devant les autres, ça suffit les aveugles.
-1074
-En amour on contrôle ses émotions négatives et on ouvre son éventail arc en ciel pour viser le bonheur infini.
-1075
-C’est parfois tellement chochotte que ça ne se dit pas, ça se lit.
-1076
-Il vaut mieux être aimé pour ce que l’on n’est pas que ne jamais être aimé.
-1077
-L’espoir de l’amour s’envole quand il est réalisé.
-1078
-L’amour, c’est une amitié plus profonde.
-1079
-A quoi ça sert d’être riche si c’est pour passer moins de temps ensemble.
+Le vrai amour est une richesse gratuite.  
+1063  
+L’imbécile passe plus de temps avec ses animaux qu’avec sa moitié sauf si c’est son métier.  
+1064  
+L’amour n’a pas besoin d’explications, il se vit.  
+1065  
+Les capricieux ont toujours besoin qu’on parle souvent, l’amour des sages n’est pas gêné par des longs silences. (On doit pouvoir ne rien dire pendant une semaine même en aimant quelqu’un qui habite encore loin sans que la personne se plaigne).  
+1066  
+Rien à faire (pas obliger) d’avoir des cadeaux, le cadeau est d’être avec toi.  
+1067  
+Les compliments, c’est la touche en plus qui transcende le gâteau.  
+1068  
+Il n’y a pas de justice dans l’amour sur terre car des plus cons et moches que toi prennent ta place alors qu’ils en ont eu plusieurs et d’autres rien.  
+1069  
+La drague n’est pas réservée aux hommes sauf dans la tête des arriérés.  
+1070  
+Se prendre des centaines de vents rend fou, le destin a intérêt à avoir une bonne excuse.  
+1071  
+Si tu es trop moche, drague une aveugle.  
+1072  
+On te critique car tu vas trop vite ou pour un autre trop lentement, seul compte la fondation, pas la vitesse.  
+1073  
+Quand tu aimes quelqu’un, n’en fais pas trop devant les autres, ça suffit les aveugles.  
+1074  
+En amour on contrôle ses émotions négatives et on ouvre son éventail arc en ciel pour viser le bonheur infini.  
+1075  
+C’est parfois tellement chochotte que ça ne se dit pas, ça se lit.  
+1076  
+Il vaut mieux être aimé pour ce que l’on n’est pas que ne jamais être aimé.  
+1077  
+L’espoir de l’amour s’envole quand il est réalisé.  
+1078  
+L’amour, c’est une amitié plus profonde.  
+1079  
+A quoi ça sert d’être riche si c’est pour passer moins de temps ensemble.  
 1080
-S’aimer n’empêche pas d’avoir son propre lit.
-1081
-Un amour finit bien quand l’au-delà ouvre ses portes pour une paire.
-1082
-Un vrai amour n’a pas besoin de flatterie mais c’est toujours plus agréable.
-1083
-Ne dis pas que tu vas l’aimer autant toute ta vie, son esprit oui mais pas son corps.
-1084
-Les hommes ne sont pas naturellement pires que les femmes, ce sont les circonstances qui les rendent pires.
-1085
-Ne raisonne pas un pervers narcissique, fuis!
-1086
-C’est incroyable comme les femmes font perdre du temps aux hommes qui cherchent pour rien.
-1087
-Avec ses amis, on peut dire plein de conneries mais avec sa moitié on se retient.
-1088
-Toujours plus facile d’aimer les gens quand on ne voit pas leurs conneries.
-1089
-Tu aimes ta planète alors ne prends pas de cercueil pour ta mort car tu tues des arbres pour rien.
-1090
-Aimes d’abord plus toi-même que les autres.
-1091
-On n’aime pas les cons mais ils ont l’avantage de nous faire se sentir meilleur.
-1092
-Attention si trop de monde l’aime en venant le voir, ça sera moins de temps de tranquillité pour toi.
-1093
-Lors d’un premier rendez-vous, ne demandez pas si on se revoit, il y a tellement d’hypocrites.
-1094
-Dans une guerre d’amours, qui gagne ? 
-Celui qui garde la raison.
-1095
-La route de l’amour nous déroute pour nous remettre sur le droit chemin et avoir le temps de mieux voir.
-1096
-J’aime la vie, sans les cons mais il faut l’aimer avec les cons.
+S’aimer n’empêche pas d’avoir son propre lit.  
+1081  
+Un amour finit bien quand l’au-delà ouvre ses portes pour une paire.  
+1082  
+Un vrai amour n’a pas besoin de flatterie mais c’est toujours plus agréable.  
+1083  
+Ne dis pas que tu vas l’aimer autant toute ta vie, son esprit oui mais pas son corps.  
+1084  
+Les hommes ne sont pas naturellement pires que les femmes, ce sont les circonstances qui les rendent pires.  
+1085  
+Ne raisonne pas un pervers narcissique, fuis!  
+1086  
+C’est incroyable comme les femmes font perdre du temps aux hommes qui cherchent pour rien.  
+1087  
+Avec ses amis, on peut dire plein de conneries mais avec sa moitié on se retient.  
+1088  
+Toujours plus facile d’aimer les gens quand on ne voit pas leurs conneries.  
+1089  
+Tu aimes ta planète alors ne prends pas de cercueil pour ta mort car tu tues des arbres pour rien.  
+1090  
+Aimes d’abord plus toi-même que les autres.  
+1091  
+On n’aime pas les cons mais ils ont l’avantage de nous faire se sentir meilleur.  
+1092  
+Attention si trop de monde l’aime en venant le voir, ça sera moins de temps de tranquillité pour toi.  
+1093  
+Lors d’un premier rendez-vous, ne demandez pas si on se revoit, il y a tellement d’hypocrites.  
+1094  
+Dans une guerre d’amours, qui gagne ?  
+Celui qui garde la raison.  
+1095  
+La route de l’amour nous déroute pour nous remettre sur le droit chemin et avoir le temps de mieux voir.  
+1096  
+J’aime la vie, sans les cons mais il faut l’aimer avec les cons.  
 1097
-L’amour passe par la connaissance sinon il se trompe.
+L’amour passe par la connaissance sinon il se trompe.  
 1098
-L’argent rend heureux en amour quand on en fait bon usage.
+L’argent rend heureux en amour quand on en fait bon usage.  
 1099
-Célibataire: mimine a cinq doigts, avec une conjointe: mimine a les seins droits.
-1100
-Chaque jour une nuance d’amour.
-1101
-Le mariage n’est pas une raison pour perdre trop d’argent.
-1102
-L’amour descend bien bas pour aller encore plus haut.
-1103
-Dépasse l’amour de toi pour attirer l’amour des autres.
-1104
-L’amour n’a pas besoin d’ailes pour flotter dans les airs.
-1105
-L’amour n’est pas lourd ni sourd, il est léger et écoute toujours.
-1106
-Plus de mérite d’être dans l’amour à celui qui en a manqué plus que les autres.
-1107
-L’amour invisible est visible par le cœur.
-1108
-L’échelle de l’amour est difficile à grimper dans la tempête.
-1109
-L’amour est venu transcender la matière.
-1110
-Plus d’amour, c’est  plus d’énergie pour la planète.
-1111
-Après l’amour planétaire, l’amour amical extraterrestre.
-1112
-Je ne suis pas la plus haute montagne, je suis une montagne jamais gravie avant.
+Célibataire: mimine a cinq doigts, avec une conjointe: mimine a les seins droits.  
+1100  
+Chaque jour une nuance d’amour.  
+1101  
+Le mariage n’est pas une raison pour perdre trop d’argent.  
+1102  
+L’amour descend bien bas pour aller encore plus haut.  
+1103  
+Dépasse l’amour de toi pour attirer l’amour des autres.  
+1104  
+L’amour n’a pas besoin d’ailes pour flotter dans les airs.  
+1105  
+L’amour n’est pas lourd ni sourd, il est léger et écoute toujours.  
+1106  
+Plus de mérite d’être dans l’amour à celui qui en a manqué plus que les autres.  
+1107  
+L’amour invisible est visible par le cœur.  
+1108  
+L’échelle de l’amour est difficile à grimper dans la tempête.  
+1109  
+L’amour est venu transcender la matière.  
+1110  
+Plus d’amour, c’est  plus d’énergie pour la planète.  
+1111  
+Après l’amour planétaire, l’amour amical extraterrestre.  
+1112  
+Je ne suis pas la plus haute montagne, je suis une montagne jamais gravie avant.  
 
 
-Quiz
-100 proverbes Français, Chinois et du monde
+Quiz  
+100 proverbes Français, Chinois et du monde  
 
-Proverbes du monde : 1 à 30
-Proverbes Chinois : 31 à 40
-Citations Françaises : 41 à 60
-Proverbes Confucius (Chinois) : 61 à 80
-Proverbes Sylvain Meili (Français/Chinois) : 81 à 100
+Proverbes du monde : 1 à 30  
+Proverbes Chinois : 31 à 40  
+Citations Françaises : 41 à 60  
+Proverbes Confucius (Chinois) : 61 à 80  
+Proverbes Sylvain Meili (Français/Chinois) : 81 à 100  
 
-Réponses après les 100 proverbes.
-Liste des personnages avec mini description.
+Réponses après les 100 proverbes.  
+Liste des personnages avec mini description.  
 
-Proverbes du monde
+Proverbes du monde  
 
-1/ Confucius : Où que vous alliez, allez-y avec 
-(a) envie, (b) tout votre cœur, (c) des amis, (d) bonheur 
+1/ Confucius : Où que vous alliez, allez-y avec  
+(a) envie, (b) tout votre cœur, (c) des amis, (d) bonheur  
 
-2/ Bouddha : La patience est la plus grande des
-(a) qualités, (b) prières, (c) vertus, (d) fainéantises 
+2/ Bouddha : La patience est la plus grande des  
+(a) qualités, (b) prières, (c) vertus, (d) fainéantises  
 
-3/ Platon : La vie est, en quelque sorte un
-(a) combat, (b) chemin, (c) apprentissage, (d) pèlerinage 
+3/ Platon : La vie est, en quelque sorte un  
+(a) combat, (b) chemin, (c) apprentissage, (d) pèlerinage  
 
-4/ Aristote : L'ignorant affirme, le savant doute, le sage
-(a) réfléchit, (b) enseigne, (c) cherche, (d) sait 
+4/ Aristote : L'ignorant affirme, le savant doute, le sage  
+(a) réfléchit, (b) enseigne, (c) cherche, (d) sait  
 
-5/ Bruce Lee : Il faut vider son esprit, être informe, sans contours, comme 
-(a) de l'eau, (b) de l'énergie, (c) le ciel, (d) de la lumière 
+5/ Bruce Lee : Il faut vider son esprit, être informe, sans contours, comme  
+(a) de l'eau, (b) de l'énergie, (c) le ciel, (d) de la lumière  
 
-6/ Gandhi : Vous devez être le changement que vous voulez voir dans
-(a) ce pays, (b) cette vie, (c) ce monde, (d) cet univers 
+6/ Gandhi : Vous devez être le changement que vous voulez voir dans  
+(a) ce pays, (b) cette vie, (c) ce monde, (d) cet univers  
 
-7/ Lao Tseu : Gouverne le mieux qui gouverne
-(a) le monde, (b) le plus, (c) avec sa richesse, (d) le moins 
+7/ Lao Tseu : Gouverne le mieux qui gouverne  
+(a) le monde, (b) le plus, (c) avec sa richesse, (d) le moins  
 
-8/ Martin Luther King : La race humaine doit sortir des conflits en rejetant la vengeance, l'agression et l'esprit de revanche. Le moyen d'en sortir est
-(a) le pardon, (b) l'amour, (c) le bien, (d) la sagesse 
+8/ Martin Luther King : La race humaine doit sortir des conflits en rejetant la vengeance, l'agression et l'esprit de revanche. Le moyen d'en sortir est  
+(a) le pardon, (b) l'amour, (c) le bien, (d) la sagesse  
 
-9/ Léonard De Vinci : Toute connaissance commence par
-(a) dieu, (b) les sentiments, (c) la vie, (d) chercher
+9/ Léonard De Vinci : Toute connaissance commence par  
+(a) dieu, (b) les sentiments, (c) la vie, (d) chercher  
 
-10/ Socrate : Ceux qui désirent le moins de choses sont les plus près
-(a) des dieux, (b) de la sagesse, (c) de s'ennuyer, (d) de l'ignorance 
+10/ Socrate : Ceux qui désirent le moins de choses sont les plus près  
+(a) des dieux, (b) de la sagesse, (c) de s'ennuyer, (d) de l'ignorance  
 
-11/ Victor Hugo : La vie est une fleur, l'amour
-(a) est infini, (b) en est le miel, (c) un fruit, (d) pour les chanceux 
+11/ Victor Hugo : La vie est une fleur, l'amour  
+(a) est infini, (b) en est le miel, (c) un fruit, (d) pour les chanceux  
 
-12/ Friedrich Nietzsche : Plus nous nous élevons et plus nous paraissons petits à ceux qui ne savent pas
-(a) voler, (b) réfléchir, (c) comprendre, (d) voir 
+12/ Friedrich Nietzsche : Plus nous nous élevons et plus nous paraissons petits à ceux qui ne savent pas  
+(a) voler, (b) réfléchir, (c) comprendre, (d) voir  
 
-13/ Nelson Mandela : J'ai appris que le courage n'est pas l'absence de peur, mais la capacité de la
-(a) surmonter, (b) vaincre, (c) stopper, (d) détruire 
+13/ Nelson Mandela : J'ai appris que le courage n'est pas l'absence de peur, mais la capacité de la  
+(a) surmonter, (b) vaincre, (c) stopper, (d) détruire  
 
-14/ Jean Jaurès : Quand les hommes ne peuvent changer les choses, ils changent
-(a) les mots, (b) les faits, (c) l'histoire, (d) les actions 
+14/ Jean Jaurès : Quand les hommes ne peuvent changer les choses, ils changent  
+(a) les mots, (b) les faits, (c) l'histoire, (d) les actions  
 
-15/ Voltaire : Le travail éloigne de nous trois grands maux : l'ennui, le vice et
-(a) la pauvreté, (b) le malheur, (c) la faiblesse, (d) le besoin 
+15/ Voltaire : Le travail éloigne de nous trois grands maux : l'ennui, le vice et  
+(a) la pauvreté, (b) le malheur, (c) la faiblesse, (d) le besoin  
 
-16/ Karl Marx : La religion est
-(a) la racine du mal, (b) l'esclavage, (c) le fruit de l'ignorance,
-(d) l'opium du peuple 
+16/ Karl Marx : La religion est  
+(a) la racine du mal, (b) l'esclavage, (c) le fruit de l'ignorance,  
+(d) l'opium du peuple  
 
-17/ Sénèque : Celui qui cherche la sagesse est un sage, celui qui croit l’avoir trouvée
-(a) même dieu ne le sait, (b) est un ignorant (c), c'est son égo, 
-(d) est un fou 
+17/ Sénèque : Celui qui cherche la sagesse est un sage, celui qui croit l’avoir trouvée  
+(a) même dieu ne le sait, (b) est un ignorant (c), c'est son égo,  
+(d) est un fou  
 
-18/ Albert Einstein : L’imagination est plus importante
-(a) que le savoir, (b) dans le futur, (c) dans l'infini, (d) après la réalité 
+18/ Albert Einstein : L’imagination est plus importante  
+(a) que le savoir, (b) dans le futur, (c) dans l'infini, (d) après la réalité  
 
-19/ Thomas Edison : La valeur d’une idée dépend de
-(a) son utilisation, (b) l'endroit, (c) sa sagesse, (d) la personne 
+19/ Thomas Edison : La valeur d’une idée dépend de  
+(a) son utilisation, (b) l'endroit, (c) sa sagesse, (d) la personne  
 
-20/ Marguerite Yourcenar : Il ne faut pas pleurer pour ce qui n’est plus, mais être heureux pour ce
-(a) que tu as, (b) qui est, (c) qui a été, (d) qui sera 
+20/ Marguerite Yourcenar : Il ne faut pas pleurer pour ce qui n’est plus, mais être heureux pour ce  
+(a) que tu as, (b) qui est, (c) qui a été, (d) qui sera  
 
-21/ Jiddu Krishnamurti : Ce que je vous demande, ..., non de croire.
-(a) trouver dieu, (b) chercher la vérité, (c) c'est d'ouvrir votre esprit (d) sortir de la religion 
+21/ Jiddu Krishnamurti : Ce que je vous demande, ..., non de croire.  
+(a) trouver dieu, (b) chercher la vérité, (c) c'est d'ouvrir votre esprit (d) sortir de la religion  
 
-22/ Sigmund Freud : La conscience est la conséquence du renoncement
-(a) à un programme, (b) au mal, (c) aux pulsions, (d) à l'ignorance 
+22/ Sigmund Freud : La conscience est la conséquence du renoncement  
+(a) à un programme, (b) au mal, (c) aux pulsions, (d) à l'ignorance  
 	
-23/ Montesquieu : La tristesse vient
-(a) de la pauvreté, (b) de l'injustice, (c) du manque d'amour, 
-(d) de la solitude du coeur 
+23/ Montesquieu : La tristesse vient  
+(a) de la pauvreté, (b) de l'injustice, (c) du manque d'amour,  
+(d) de la solitude du coeur  
 
-24/ Denis Diderot : Aucun homme n'a reçu de la nature le droit de commander
-(a) les animaux, (b) les femmes, (c) la planète, (d) aux autres 
+24/ Denis Diderot : Aucun homme n'a reçu de la nature le droit de commander  
+(a) les animaux, (b) les femmes, (c) la planète, (d) aux autres  
 
-25/ Cicéron : Le lit d'un célibataire est le plus
-(a) silencieux, (b) tranquille, (c) confortable, (d) propre 
+25/ Cicéron : Le lit d'un célibataire est le plus  
+(a) silencieux, (b) tranquille, (c) confortable, (d) propre  
 
-26/ Honoré de Balzac : L'avarice commence
-(a) où la pauvreté cesse, (b) quand on a le pouvoir, 
-(c) quand on est trop gâté, (d) avec la popularité 
+26/ Honoré de Balzac : L'avarice commence  
+(a) où la pauvreté cesse, (b) quand on a le pouvoir,  
+(c) quand on est trop gâté, (d) avec la popularité  
 
-27/ Michel de Montaigne : Il faut se prêter à autrui et ne se donner
-(a) qu'à l'amour, (b) qu'à dieu, (c) qu'à soi-même, (d) que pour le bien 
+27/ Michel de Montaigne : Il faut se prêter à autrui et ne se donner  
+(a) qu'à l'amour, (b) qu'à dieu, (c) qu'à soi-même, (d) que pour le bien  
 
-28/ René Descartes : Je pense donc
-(a) j'aime, (b) je vis, (c) je suis, (d) j'invente 
+28/ René Descartes : Je pense donc  
+(a) j'aime, (b) je vis, (c) je suis, (d) j'invente  
 
-29/ Emile Zola : Je crois que l'avenir de l'humanité est dans le progrès de la raison
-(a) par la science, (b) se rapprochant de dieu, 
-(c) vers les dimensions supérieures, (d) vers la sagesse 
+29/ Emile Zola : Je crois que l'avenir de l'humanité est dans le progrès de la raison  
+(a) par la science, (b) se rapprochant de dieu,  
+(c) vers les dimensions supérieures, (d) vers la sagesse  
 
-30/ François Rabelais : Science sans conscience n'est que ruine
-(a) de l'âme, (b) des autres, (c) du vivant, (d) du monde 
+30/ François Rabelais : Science sans conscience n'est que ruine  
+(a) de l'âme, (b) des autres, (c) du vivant, (d) du monde  
 
-Proverbes Chinois
+Proverbes Chinois  
 
-31/ Confucius : Celui qui sait obéir
-(a) désobéit en secret, (b) saura ensuite commander
-(c) est un esclave, (d) le fait pour le bien 
+31/ Confucius : Celui qui sait obéir  
+(a) désobéit en secret, (b) saura ensuite commander  
+(c) est un esclave, (d) le fait pour le bien  
 
-32/ Mencius : L'homme peut être amené à faire le mal, mais alors sa nature subit
-(a) le mal être, (b) le karma, (c) violence, (d) la malchance 
+32/ Mencius : L'homme peut être amené à faire le mal, mais alors sa nature subit  
+(a) le mal être, (b) le karma, (c) violence, (d) la malchance  
 
-33/ Si tous les hommes savaient le plaisir de donner, il n'y aurait pas...Proverbes chinois recueillis et mis en ordre (1869)
-(a) de pauvres, (b) de révoltes, (c) de riches, (d) de guerres 
+33/ Si tous les hommes savaient le plaisir de donner, il n'y aurait pas...Proverbes chinois recueillis et mis en ordre (1869)  
+(a) de pauvres, (b) de révoltes, (c) de riches, (d) de guerres  
 
-34/ Plus on réunit d'Hommes, plus il y a de...Proverbes chinois recueillis et mis en ordre (1869)
-(a) jugements, (b) problèmes, (c) médisances, (d) complots 
+34/ Plus on réunit d'Hommes, plus il y a de...Proverbes chinois recueillis et mis en ordre (1869)  
+(a) jugements, (b) problèmes, (c) médisances, (d) complots  
 
-35/ Le sage vit dans le présent sans lui sacrifier...Proverbes chinois recueillis et mis en ordre (1869)
-(a) l'avenir, (b) son argent, (c) son temps, (d) son utilité 
+35/ Le sage vit dans le présent sans lui sacrifier...Proverbes chinois recueillis et mis en ordre (1869)  
+(a) l'avenir, (b) son argent, (c) son temps, (d) son utilité  
 
-36/ Plus on a de connaissance...Proverbes et sentences chinoises (1876)
-(a) plus on a de la compassion, (b) plus on peut philosopher, 
-(c) plus les gens paraissent idiots, (d) moins on connaît de gens 
+36/ Plus on a de connaissance...Proverbes et sentences chinoises (1876)  
+(a) plus on a de la compassion, (b) plus on peut philosopher,  
+(c) plus les gens paraissent idiots, (d) moins on connaît de gens  
 
-37/ En causant, durant une nuit, avec un sage, on profite plus qu'en étudiant durant...Proverbes chinois recueillis et mis en ordre (1869)
-(a) 20 ans, (b) 100 ans, (c) 10 ans, (d) 30 ans 
+37/ En causant, durant une nuit, avec un sage, on profite plus qu'en étudiant durant...Proverbes chinois recueillis et mis en ordre (1869)  
+(a) 20 ans, (b) 100 ans, (c) 10 ans, (d) 30 ans  
 
-38/ Une langue va plus vite...Proverbes et sentences chinoises (1873)
-(a) que sa pensée, (b) à juger qu'à aider, (c) que la raison, 
-(d) que deux pieds 
+38/ Une langue va plus vite...Proverbes et sentences chinoises (1873)  
+(a) que sa pensée, (b) à juger qu'à aider, (c) que la raison,  
+(d) que deux pieds  
 
-39/ L'imbécile dort toute sa vie, il ne se réveille que le jour...Proverbes et sentences chinoises (1873)
-(a) où la vérité éclate dans sa face, (b) où il ne s'entoure que de sages (c) où c'est le dernier imbécile, (d) de sa mort 
+39/ L'imbécile dort toute sa vie, il ne se réveille que le jour...Proverbes et sentences chinoises (1873)  
+(a) où la vérité éclate dans sa face, (b) où il ne s'entoure que de sages (c) où c'est le dernier imbécile, (d) de sa mort  
 
-40/ Lao Tseu : Le chemin du sage consiste à agir mais pas dans l’esprit
-(a) de gagner, (b) de rivaliser, (c) d’avoir le pouvoir, 
-(d) de se montrer supérieur 
+40/ Lao Tseu : Le chemin du sage consiste à agir mais pas dans l’esprit  
+(a) de gagner, (b) de rivaliser, (c) d’avoir le pouvoir,  
+(d) de se montrer supérieur  
 
 Citations Françaises
 
-41/ Sacha Guitry : A l'égard de celui qui vous prend votre femme, il n'est de pire...que de la lui laisser.
-(a) humiliation, (b) défaite, (c) vengeance, (d) bêtise 
+41/ Sacha Guitry : A l'égard de celui qui vous prend votre femme, il n'est de pire...que de la lui laisser.  
+(a) humiliation, (b) défaite, (c) vengeance, (d) bêtise  
 
-42/ Jules Renard : Je me moque de savoir beaucoup de choses : je veux savoir des choses
-(a) utiles, (b) intéressantes, (c) que j'aime, (d) importantes 
+42/ Jules Renard : Je me moque de savoir beaucoup de choses : je veux savoir des choses  
+(a) utiles, (b) intéressantes, (c) que j'aime, (d) importantes  
 
-43/ Montesquieu : L'éducation consiste à nous donner..., et la bonne éducation à les mettre en proportion.
-(a) des connaissances, (b) des compétences, (c) des idées, 
-(d) des règles 
+43/ Montesquieu : L'éducation consiste à nous donner..., et la bonne éducation à les mettre en proportion.  
+(a) des connaissances, (b) des compétences, (c) des idées,  
+(d) des règles  
 
-44/ Victor Hugo : Ma vie se résume en deux mots :
-(a) m'aimer, aimer, (b) solitaire, solidaire, (c) apprendre, enseigner, (d) naître, mourir 
+44/ Victor Hugo : Ma vie se résume en deux mots :  
+(a) m'aimer, aimer, (b) solitaire, solidaire, (c) apprendre, enseigner, (d) naître, mourir  
 
-45/ Alfred de Musset : On est souvent trompé..., souvent blessé et souvent malheureux; mais on aime.
-(a) dans la vie, (b) en amour, (c) par les autres, (d) par le monde 
+45/ Alfred de Musset : On est souvent trompé..., souvent blessé et souvent malheureux; mais on aime.  
+(a) dans la vie, (b) en amour, (c) par les autres, (d) par le monde  
 
-46/ Alphonse de Lamartine : On n'a pas deux coeurs, un pour...et un pour les humains. On a un coeur ou on n'en a pas.
-(a) la faune, (b) la nature, (c) la vie sauvage, (d) les animaux 
+46/ Alphonse de Lamartine : On n'a pas deux coeurs, un pour...et un pour les humains. On a un coeur ou on n'en a pas.  
+(a) la faune, (b) la nature, (c) la vie sauvage, (d) les animaux  
 
-47/ Jean-Jacques Rousseau : Toute méchanceté vient de faiblesse; l'enfant est méchant que parce qu'il est faible; rendez-le fort, il sera
-(a) gentil, (b) meilleur, (c) plus utile, (d) bon 
+47/ Jean-Jacques Rousseau : Toute méchanceté vient de faiblesse; l'enfant est méchant que parce qu'il est faible; rendez-le fort, il sera  
+(a) gentil, (b) meilleur, (c) plus utile, (d) bon  
 
-48/ Voltaire : Le meilleur gouvernement est celui où il y a
-(a) moins de riches, (b) le moins d'hommes inutiles, (c) le peuple, 
-(d) la méritocratie 
+48/ Voltaire : Le meilleur gouvernement est celui où il y a  
+(a) moins de riches, (b) le moins d'hommes inutiles, (c) le peuple,  
+(d) la méritocratie  
 
-49/ Albert Camus : C'est cela..., tout donner, tout sacrifier sans espoir de retour.
-(a) la générosité, (b) le bien, (c) la gentillesse, (d) l'amour 
+49/ Albert Camus : C'est cela..., tout donner, tout sacrifier sans espoir de retour.  
+(a) la générosité, (b) le bien, (c) la gentillesse, (d) l'amour  
 
-50/ Georges Sand : La critique est plus facile
-(a) que l'action, (b) que la politique, (c) quand on a raison, 
-(d) que la pratique 
+50/ Georges Sand : La critique est plus facile  
+(a) que l'action, (b) que la politique, (c) quand on a raison,  
+(d) que la pratique  
 
-51/ François De La Rochefoucauld : La vengeance procède toujours de la faiblesse de l'âme, qui n'est pas capable
-(a) de supporter les injures, (b) de lui faire la morale, 
-(c) de le punir légitimement, (d) de contrôler son égo 
+51/ François De La Rochefoucauld : La vengeance procède toujours de la faiblesse de l'âme, qui n'est pas capable  
+(a) de supporter les injures, (b) de lui faire la morale,  
+(c) de le punir légitimement, (d) de contrôler son égo  
 
-52/ Napoléon Bonaparte : La vérité historique est souvent
-(a) une fable convenue, (b) un peu fausse, (c) éloigné de la vérité, 
-(d) arrangé par les vainqueurs 
+52/ Napoléon Bonaparte : La vérité historique est souvent  
+(a) une fable convenue, (b) un peu fausse, (c) éloigné de la vérité,   
+(d) arrangé par les vainqueurs  
 
-53/ Voltaire : J'ai décidé d'être heureux parce que
-(a) ça éloigne la malchance, (b) c'est bon pour la santé, 
-(c) ça plaît aux autres, (d) ça rend plus intelligent 
+53/ Voltaire : J'ai décidé d'être heureux parce que  
+(a) ça éloigne la malchance, (b) c'est bon pour la santé,  
+(c) ça plaît aux autres, (d) ça rend plus intelligent  
 
-54/ Victor Hugo : Les maîtres d'école sont des jardiniers
-(a) de la connaissance, (b) en intelligences humaines, (c) du futur, 
-(d) des prochaines générations 
+54/ Victor Hugo : Les maîtres d'école sont des jardiniers  
+(a) de la connaissance, (b) en intelligences humaines, (c) du futur,   
+(d) des prochaines générations  
 
-55/ René Descartes : C'est proprement avoir les yeux fermés sans tâcher jamais de les ouvrir que de vivre
-(a) égoïstement, (b) sans philosopher, (c) sans amour, 
-(d) sans chercher la vérité 
+55/ René Descartes : C'est proprement avoir les yeux fermés sans tâcher jamais de les ouvrir que de vivre  
+(a) égoïstement, (b) sans philosopher, (c) sans amour,  
+(d) sans chercher la vérité  
 
-56/ Alphonse de Lamartine : Je suis...de ceux qu'on persécute.
-(a) aux côtés, (b) le défenseur, (c) de la couleur, (d) le dénonceur 
+56/ Alphonse de Lamartine : Je suis...de ceux qu'on persécute.  
+(a) aux côtés, (b) le défenseur, (c) de la couleur, (d) le dénonceur  
 
-57/ Albert Camus : Aimer un être, c'est accepter
-(a) de vieillir avec lui, (b) de l'aider sans contrepartie, 
-(c) de pardonner ses erreurs, (d) quelques défauts 
+57/ Albert Camus : Aimer un être, c'est accepter  
+(a) de vieillir avec lui, (b) de l'aider sans contrepartie,  
+(c) de pardonner ses erreurs, (d) quelques défauts  
 
-58/ Alphonse Daudet : La gourmandise commence quand
-(a) on n'a plus faim, (b) la nourriture est bonne, (c) on est gros, 
-(d) on mange à toutes heures 
+58/ Alphonse Daudet : La gourmandise commence quand  
+(a) on n'a plus faim, (b) la nourriture est bonne, (c) on est gros,  
+(d) on mange à toutes heures  
 
-59/ Jules Renard : Le danger du succès,
-(a) c'est de laisser trop parler son égo, (b) c'est qu'il nous fait oublier l'effroyable injustice du monde (c) c'est les mauvaises rencontres 
-(d) c'est perdre la tranquillité de l'anonymat 
-60/ Honoré de Balzac : L'amour désire jusqu'à l'impossible, et sait
-(a) pardonner, (b) rester pour un caprice non satisfait, 
-(c) supporter la routine, (d) se contenter de peu 
+59/ Jules Renard : Le danger du succès,  
+(a) c'est de laisser trop parler son égo, (b) c'est qu'il nous fait oublier l'effroyable injustice du monde (c) c'est les mauvaises rencontres  
+(d) c'est perdre la tranquillité de l'anonymat  
+60/ Honoré de Balzac : L'amour désire jusqu'à l'impossible, et sait  
+(a) pardonner, (b) rester pour un caprice non satisfait,  
+(c) supporter la routine, (d) se contenter de peu  
 
-Proverbes Confucius
+Proverbes Confucius  
 
-61/ Celui qui parle trop 
-(a) sèmera le trouble, (b) agira difficilement, 
-(c) réfléchira moins, (d) se fera plus d’amis 
+61/ Celui qui parle trop  
+(a) sèmera le trouble, (b) agira difficilement,  
+(c) réfléchira moins, (d) se fera plus d’amis  
 
-62/ Celui dont la pensée ne va pas loin
-(a) tournera en rond, (b) restera en bas, (c) sèmera le trouble, 
-(d) verra les ennuis de près 
+62/ Celui dont la pensée ne va pas loin  
+(a) tournera en rond, (b) restera en bas, (c) sèmera le trouble,  
+(d) verra les ennuis de près  
 
-63/ Dans la colère
-(a) le sage pense à ses suites, (b) l’imbécile lance son programme, 
-(c) la raison s’atrophie, (d) tu t’affaiblis
+63/ Dans la colère  
+(a) le sage pense à ses suites, (b) l’imbécile lance son programme,   
+(c) la raison s’atrophie, (d) tu t’affaiblis  
 
-64/ En cherchant à hâter les choses, 
-(a) on va plus vite, (b) on fait des dégâts, (c) on fait moins beau, 
-(d) on manque le but 
+64/ En cherchant à hâter les choses,  
+(a) on va plus vite, (b) on fait des dégâts, (c) on fait moins beau,  
+(d) on manque le but  
 
-65/ L’Homme parfait	
-(a) a peu d’amis, (b) parle peu, (c) parle à tout le monde, (d) travaille 
+65/ L’Homme parfait  
+(a) a peu d’amis, (b) parle peu, (c) parle à tout le monde, (d) travaille  
 
-66/ L’objet de l’Homme supérieur est
-(a) le paradis, (b) d’être heureux, (c) la vérité, (d) le plaisir 
+66/ L’objet de l’Homme supérieur est  
+(a) le paradis, (b) d’être heureux, (c) la vérité, (d) le plaisir  
 
-67/ La vraie connaissance 
-(a) est de rechercher dans son cœur, (b) est de connaître l’étendue de son ignorance, (c) seul dieu la connaît, (d) est dans son troisième œil
+67/ La vraie connaissance  
+(a) est de rechercher dans son cœur, (b) est de connaître l’étendue de son ignorance, (c) seul dieu la connaît, (d) est dans son troisième œil  
 
-68/ L’arrogance est pire que
-(a) l’ignorance, (b) l’avarice, (c) l’addiction, 
-(d) la pauvreté
+68/ L’arrogance est pire que  
+(a) l’ignorance, (b) l’avarice, (c) l’addiction,  
+(d) la pauvreté  
 
-69/ Le plus grand voyageur est celui qui
-(a) partage ses découvertes, (b) fait le tour du monde, 
-(c) remplit sa tête, (d) a su faire une fois le tour de lui-même
+69/ Le plus grand voyageur est celui qui  
+(a) partage ses découvertes, (b) fait le tour du monde,  
+(c) remplit sa tête, (d) a su faire une fois le tour de lui-même  
 
-70/ Le silence est le seul ami
-(a) qui nous ennuis, (b) qui dort, (c) qui ne nous trahit jamais, 
-(d) invisible
+70/ Le silence est le seul ami  
+(a) qui nous ennuis, (b) qui dort, (c) qui ne nous trahit jamais,  
+(d) invisible  
 
-71/ L’Homme peut être amené à faire le mal, mais alors
-(a) sa nature subit violence, (b) le boomerang du destin revient, 
-(c) il est parfois obligé, (d) qu’il ne le fasse pas exprès
+71/ L’Homme peut être amené à faire le mal, mais alors  
+(a) sa nature subit violence, (b) le boomerang du destin revient,  
+(c) il est parfois obligé, (d) qu’il ne le fasse pas exprès  
 
-72/ L’Homme supérieur cherche ce qui est …, l’Homme inférieur, ce qui est profitable.
-(a) la vérité, (b) honorable, (c) respectable, (d) juste
+72/ L’Homme supérieur cherche ce qui est …, l’Homme inférieur, ce qui est profitable.  
+(a) la vérité, (b) honorable, (c) respectable, (d) juste  
 
-73/ Ne vous souciez pas d’être sans emploi, souciez-vous plutôt
-(a) d’être utile, (b) d’être digne d’un emploi, 
-(c) de s’affranchir du karma, (d) de faire le bien
+73/ Ne vous souciez pas d’être sans emploi, souciez-vous plutôt  
+(a) d’être utile, (b) d’être digne d’un emploi,  
+(c) de s’affranchir du karma, (d) de faire le bien  
 
-74/ On ne peut bien gouverner sa famille
-(a) qu’en étant calme, (b) qu’en travaillant, 
-(c) qu’en donnant l’exemple, (d) avec un seul parent
+74/ On ne peut bien gouverner sa famille  
+(a) qu’en étant calme, (b) qu’en travaillant,  
+(c) qu’en donnant l’exemple, (d) avec un seul parent  
 
-75/ Pour bien gouverner un état, il faut éloigner …, ils sont dangereux.
-(a) les gens trop riches, (b) les beaux parleurs, 
-(c) les gens sans expériences, (d) la famille
+75/ Pour bien gouverner un état, il faut éloigner …, ils sont dangereux.  
+(a) les gens trop riches, (b) les beaux parleurs,  
+(c) les gens sans expériences, (d) la famille  
 
-76/ Rappelle-toi que ton fils n’est pas ton fils, mais
-(a) un esprit dans son corps, (b) qu’il ne t’appartient pas, 
-(c) pas pour élever ton égo, (d) le fils de son temps
+76/ Rappelle-toi que ton fils n’est pas ton fils, mais  
+(a) un esprit dans son corps, (b) qu’il ne t’appartient pas,  
+(c) pas pour élever ton égo, (d) le fils de son temps  
 
-77/ Rendez le bien pour le bien et …, pour le mal.
-(a) la justice, (b) la vengeance, (c) la rééducation, (d) la punition
+77/ Rendez le bien pour le bien et …, pour le mal.  
+(a) la justice, (b) la vengeance, (c) la rééducation, (d) la punition  
 
-78/ Si la foule déteste quelqu’un,
-(a) c’est qu’elle a raison, (b) le sage n’en fait pas parti, 
-(c) examinez avant de juger, (d) un nuage sombre se forme au-dessus d’eux
+78/ Si la foule déteste quelqu’un,  
+(a) c’est qu’elle a raison, (b) le sage n’en fait pas parti,  
+(c) examinez avant de juger, (d) un nuage sombre se forme au-dessus d’eux  
 
-79/ Si tu empruntes le chemin de la vengeance,
-(a) tu fais mal à plus de 2 personnes, (b) prépare 2 cercueils, 
-(c) tu perds ton temps, (d) honte à toi
+79/ Si tu empruntes le chemin de la vengeance,  
+(a) tu fais mal à plus de 2 personnes, (b) prépare 2 cercueils,  
+(c) tu perds ton temps, (d) honte à toi  
 
-80/ Un homme heureux est un homme
-(a) qui se contente de peu, (b) qui s’intéresse à toutes les couleurs de la vie, (c) goûte à tous les plaisirs, (d) avec sa femme
+80/ Un homme heureux est un homme  
+(a) qui se contente de peu, (b) qui s’intéresse à toutes les couleurs de la vie, (c) goûte à tous les plaisirs, (d) avec sa femme  
 
-Proverbes Sylvain Meili
+Proverbes Sylvain Meili  
 
-81/ L’amour est une fleur 
-(a) de toutes les couleurs, (b) aux pétales infinis, 
-(c) qui ne fane jamais, (d) qui sent bon
+81/ L’amour est une fleur  
+(a) de toutes les couleurs, (b) aux pétales infinis,  
+(c) qui ne fane jamais, (d) qui sent bon  
 
-82/ Le mal nous apprend 
-(a) à faire la guerre, (b) à s’endurcir, 
-(c) à ne pas recommencer, (d) ce que ça fait d’être con
+82/ Le mal nous apprend  
+(a) à faire la guerre, (b) à s’endurcir,  
+(c) à ne pas recommencer, (d) ce que ça fait d’être con  
 
-83/ L’intelligence est le moteur et la sagesse 
-(a) est la roue, (b) est son compagnon, (c) est le guide, (d) est la règle
+83/ L’intelligence est le moteur et la sagesse  
+(a) est la roue, (b) est son compagnon, (c) est le guide, (d) est la règle  
 
-84/ La plus grande victoire contre le mal est 
-(a) qu’il rejoigne la lumière, (b) de l’anéantir, (c) la philosophie, 
-(d) l’éducation
+84/ La plus grande victoire contre le mal est  
+(a) qu’il rejoigne la lumière, (b) de l’anéantir, (c) la philosophie,  
+(d) l’éducation  
 
-85/ La chute d’eau tombe 
-(a) en chantant, (b) mais s’élève en beauté, (c) pour respirer, 
-(d) pour briller
+85/ La chute d’eau tombe  
+(a) en chantant, (b) mais s’élève en beauté, (c) pour respirer,  
+(d) pour briller  
 
-86/ Il faut garder l’esprit d’enfant 
-(a) et l’envie de jouer, (b) et le sens de la découverte, 
-(c) pour rester jeune, (d) tout en ayant la sagesse des anciens
+86/ Il faut garder l’esprit d’enfant  
+(a) et l’envie de jouer, (b) et le sens de la découverte,  
+(c) pour rester jeune, (d) tout en ayant la sagesse des anciens  
 
-87/ Intéresse-toi à toutes les couleurs de la vie 
-(a) pour voir clair, (b) pour l’arc en ciel du bonheur, 
+87/ Intéresse-toi à toutes les couleurs de la vie  
+(a) pour voir clair, (b) pour l’arc en ciel du bonheur,  
 (c) pour atteindre la lumière, (d) pour évoluer
 
-88/ Le jardin parfait ne peut se séparer 
-(a) de l’Humanité, (b) de sa montagne, (c) de son dragon, 
-(d) qu’avec des imbéciles
+88/ Le jardin parfait ne peut se séparer  
+(a) de l’Humanité, (b) de sa montagne, (c) de son dragon,  
+(d) qu’avec des imbéciles  
 
-89/ Pour avoir plein « d’amis »
-(a) ne dis pas tout ce que tu penses, (b) fais-leur des cadeaux, 
-(c) joue de la musique, (d) fait de l’humour
+89/ Pour avoir plein « d’amis »  
+(a) ne dis pas tout ce que tu penses, (b) fais-leur des cadeaux,  
+(c) joue de la musique, (d) fait de l’humour  
 
-90/ La vraie religion est 
-(a) celle de tes parents, (b) inconnu, (c) la vérité et le bien, (d) dieu
+90/ La vraie religion est  
+(a) celle de tes parents, (b) inconnu, (c) la vérité et le bien, (d) dieu  
 
-91/ C’est en creusant la vérité enfouie 
-(a) que le mal disparait, (b) que l’on remue la merde, 
-(c) que l’on atteint des sommets, (d) que l’on trouve la vraie histoire
+91/ C’est en creusant la vérité enfouie  
+(a) que le mal disparait, (b) que l’on remue la merde,  
+(c) que l’on atteint des sommets, (d) que l’on trouve la vraie histoire  
 
-92/ L’humour se nourrit
-(a) des imperfections, (b) des imbéciles, 
-(c) du mal, (d) d’une victime
+92/ L’humour se nourrit  
+(a) des imperfections, (b) des imbéciles,  
+(c) du mal, (d) d’une victime  
 
-93/ Il y a l’énervé méchant, l’énervé idiot et l’énervé 
-(a) de la poisse, (b) gentil, (c) pour de faux, (d) de l’injustice
+93/ Il y a l’énervé méchant, l’énervé idiot et l’énervé  
+(a) de la poisse, (b) gentil, (c) pour de faux, (d) de l’injustice  
 
-94/ A chaque chute d’eau 
-(a) un toboggan, (b) sa mélodie, (c) une douche, (d) son rocher
+94/ A chaque chute d’eau  
+(a) un toboggan, (b) sa mélodie, (c) une douche, (d) son rocher  
 
-95/ Fait honneur
-(a) à tes parents, (b) à la vie, (c) à ton mérite, (d) d’être le meilleur
+95/ Fait honneur  
+(a) à tes parents, (b) à la vie, (c) à ton mérite, (d) d’être le meilleur  
 
-96/ Le pouvoir doit appartenir
-(a) aux sages, (b) au peuple, (c) aux pauvres, (d) aux riches
+96/ Le pouvoir doit appartenir  
+(a) aux sages, (b) au peuple, (c) aux pauvres, (d) aux riches  
 
-97/ La colère 
-(a) rend plus fort, (b) affaiblie la raison, (c) rend moins timide, 
-(d) fait rire les méchants
+97/ La colère  
+(a) rend plus fort, (b) affaiblie la raison, (c) rend moins timide,  
+(d) fait rire les méchants  
 
-98/ La vie est faite pour 
-(a) évoluer, (b) mourir, (c) le plaisir, (d) être partagée
+98/ La vie est faite pour  
+(a) évoluer, (b) mourir, (c) le plaisir, (d) être partagée  
 
-99/ Si tu es trop moche,
-(a) devient riche, (b) attends ta prochaine vie, 
-(c) drague une aveugle, (d) soit intelligent
+99/ Si tu es trop moche,  
+(a) devient riche, (b) attends ta prochaine vie,  
+(c) drague une aveugle, (d) soit intelligent  
 
-100/ Le vrai amour
-(a) n’est pas pour les cons, (b) est une richesse gratuite, 
-(c) s’arrête un jour, (d) est spirituel
+100/ Le vrai amour  
+(a) n’est pas pour les cons, (b) est une richesse gratuite,  
+(c) s’arrête un jour, (d) est spirituel  
 
-Réponses :
+Réponses :  
 
-1 à 10 : b, b, d, a, a, c, d, b, b, a
-11 à 20 : b, a, b, a, d, d, d, a, a, c
-21 à 30 : c, c, d, d, c, a, c, c, a, a
-31 à 40 : b, c, c, c, a, d, c, d, d, b 
-41 à 50 : c, c, c, b, b, d, d, b, d, d
-51 à 60 : a, a, b, b, b, c, a, a, b, d
-61 à 70 : b, d, a, d, b, c, b, b, d, c
-71 à 80 : a, d, b, c, b, d, a, c, b, a
-81 à 90 : b, d, c, a, b, d, c, b, a, c
-91 à 100 : c, a, d, b, c, a, b, d, c, b
+1 à 10 : b, b, d, a, a, c, d, b, b, a  
+11 à 20 : b, a, b, a, d, d, d, a, a, c  
+21 à 30 : c, c, d, d, c, a, c, c, a, a  
+31 à 40 : b, c, c, c, a, d, c, d, d, b  
+41 à 50 : c, c, c, b, b, d, d, b, d, d  
+51 à 60 : a, a, b, b, b, c, a, a, b, d  
+61 à 70 : b, d, a, d, b, c, b, b, d, c  
+71 à 80 : a, d, b, c, b, d, a, c, b, a  
+81 à 90 : b, d, c, a, b, d, c, b, a, c  
+91 à 100 : c, a, d, b, c, a, b, d, c, b  
 
-1b : tout votre coeur, 2b : prières, 3d : pèlerinage, 4a : réfléchit, 5a : de l’eau, 6c : ce monde,  7d : le moins, 8b : l’amour, 9b : les sentiments, 10a : des dieux
+1b : tout votre coeur, 2b : prières, 3d : pèlerinage, 4a : réfléchit, 5a : de l’eau, 6c : ce monde,  7d : le moins, 8b : l’amour, 9b : les sentiments, 10a : des dieux  
 
-11b : en est le miel, 12a : voler, 13b : vaincre, 14a : les mots, 15d : le besoin, 16d : l’opium du peuple, 17d : est un fou, 18a : que le savoir, 19a : son utilisation, 20c : qui a été
+11b : en est le miel, 12a : voler, 13b : vaincre, 14a : les mots, 15d : le besoin, 16d : l’opium du peuple, 17d : est un fou, 18a : que le savoir, 19a : son utilisation, 20c : qui a été  
 
-21c : c’est d’ouvrir votre esprit, 22c : aux pulsions, 23d : de la solitude de cœur, 24d : aux autres, 25c : confortable, 26a : où la pauvreté cesse, 27c : qu’à soi-même, 28c : je suis, 29a : par la science, 30a : de l’âme
+21c : c’est d’ouvrir votre esprit, 22c : aux pulsions, 23d : de la solitude de cœur, 24d : aux autres, 25c : confortable, 26a : où la pauvreté cesse, 27c : qu’à soi-même, 28c : je suis, 29a : par la science, 30a : de l’âme  
 
-31b : saura ensuite commander, 32c : violence, 33c : de riches, 34c : médisances, 35a : l’avenir, 36d : moins on connaît de gens, 37c : 10 ans, 38d : que deux pieds, 39d : de sa mort, 40b : de rivaliser
+31b : saura ensuite commander, 32c : violence, 33c : de riches, 34c : médisances, 35a : l’avenir, 36d : moins on connaît de gens, 37c : 10 ans, 38d : que deux pieds, 39d : de sa mort, 40b : de rivaliser  
 
-41c : vengeance, 42c : que j’aime, 43c : des idées, 44b : solitaire, solidaire, 45b : en amour, 46d : les animaux, 47d : bon, 48b : le moins d’hommes inutiles, 49d : l’amour, 50d : que la pratique
+41c : vengeance, 42c : que j’aime, 43c : des idées, 44b : solitaire, solidaire, 45b : en amour, 46d : les animaux, 47d : bon, 48b : le moins d’hommes inutiles, 49d : l’amour, 50d : que la pratique  
 
-51a : de supporter les injures, 52a : une fable convenue, 53b : c’est bon pour la santé, 54b : en intelligences humaines, 55b : sans philosopher, 56c : de la couleur, 57a : de vieillir avec lui, 58a : on n’a plus faim, 59b : c’est qu’il nous fait oublier l’effroyable injustice du monde, 60d : se contenter de peu
+51a : de supporter les injures, 52a : une fable convenue, 53b : c’est bon pour la santé, 54b : en intelligences humaines, 55b : sans philosopher, 56c : de la couleur, 57a : de vieillir avec lui, 58a : on n’a plus faim, 59b : c’est qu’il nous fait oublier l’effroyable injustice du monde, 60d : se contenter de peu  
 
-61b : agira difficilement, 62d : verra les ennuis de près, 63a : le sage pense à ses suites, 64d : on manque le but, 65b : parle peu, 66c : est la vérité, 67b : est de connaître l’étendue de son ignorance, 68b : l’avarice, 69d : a su faire une fois le tour de lui-même, 70c : qui ne nous trahit jamais
+61b : agira difficilement, 62d : verra les ennuis de près, 63a : le sage pense à ses suites, 64d : on manque le but, 65b : parle peu, 66c : est la vérité, 67b : est de connaître l’étendue de son ignorance, 68b : l’avarice, 69d : a su faire une fois le tour de lui-même, 70c : qui ne nous trahit jamais  
 
-71a : sa nature subit violence, 72d : juste, 73b : d’être digne d’un emploi, 74c : qu’en donnant l’exemple, 75b : les beaux parleurs, 76d : le fils de son temps, 77a : la justice, 78c : examinez avant de juger, 79b : prépare deux cercueils, 80a : qui se contente de peu
+71a : sa nature subit violence, 72d : juste, 73b : d’être digne d’un emploi, 74c : qu’en donnant l’exemple, 75b : les beaux parleurs, 76d : le fils de son temps, 77a : la justice, 78c : examinez avant de juger, 79b : prépare deux cercueils, 80a : qui se contente de peu  
 
-81b : aux pétales infinis, 82d : ce que ça fait d’être con, 83c : est le guide, 84a : qu’il rejoigne la lumière, 85b : mais s’élève en beauté, 86d : tout en ayant la sagesse des anciens, 87c : pour atteindre la lumière, 88b : de sa montagne, 89a : ne dis pas tout ce que tu penses, 90c : la vérité et le bien
+81b : aux pétales infinis, 82d : ce que ça fait d’être con, 83c : est le guide, 84a : qu’il rejoigne la lumière, 85b : mais s’élève en beauté, 86d : tout en ayant la sagesse des anciens, 87c : pour atteindre la lumière, 88b : de sa montagne, 89a : ne dis pas tout ce que tu penses, 90c : la vérité et le bien  
 
-91c : que l’on atteint des sommets, 92a : des imperfections, 93d : de l’injustice, 94b : sa mélodie, 95c : a ton mérite, 96a : aux sages, 97b : affaiblie la raison, 98d : être partagée, 99c : drague une aveugle, 100b : est une richesse gratuite
+91c : que l’on atteint des sommets, 92a : des imperfections, 93d : de l’injustice, 94b : sa mélodie, 95c : a ton mérite, 96a : aux sages, 97b : affaiblie la raison, 98d : être partagée, 99c : drague une aveugle, 100b : est une richesse gratuite  
 
-Personnages
-10 pays avec 42 personnages dont 2 femmes.
-Albert Einstein : 18, (1879 à 1955), Allemagne, physicien théoricien.
-Albert Camus : 49, 57, (1913 à 1960), France, écrivain, philosophe, romancier.
-Alfred de Musset : 45, (1810 à 1857), France, écrivain.
-Alphonse Daudet : 58, (1840 à 1897), France, écrivain, romancier.
-Alphonse de Lamartine : 46, 56, (1790 à 1869), France, écrivain, poète, romancier, dramaturge.
-Aristote : 4, (-384 à -322), Grèce, philosophe.
-Bouddha (Siddhārtha Gautama) : 2, (-624 à -544), Inde, philosophe.
-Bruce Lee : 5, (1940 à 1973), Chine, philosophe, acteurs de films d’arts martiaux.
+Personnages  
+10 pays avec 42 personnages dont 2 femmes.  
+Albert Einstein : 18, (1879 à 1955), Allemagne, physicien théoricien.  
+Albert Camus : 49, 57, (1913 à 1960), France, écrivain, philosophe, romancier.  
+Alfred de Musset : 45, (1810 à 1857), France, écrivain.  
+Alphonse Daudet : 58, (1840 à 1897), France, écrivain, romancier.  
+Alphonse de Lamartine : 46, 56, (1790 à 1869), France, écrivain, poète, romancier, dramaturge.  
+Aristote : 4, (-384 à -322), Grèce, philosophe.  
+Bouddha (Siddhārtha Gautama) : 2, (-624 à -544), Inde, philosophe.  
+Bruce Lee : 5, (1940 à 1973), Chine, philosophe, acteurs de films d’arts martiaux.  
 Cicéron : 25, (-106 à -43), Italie, homme politique, philosophe.
-Confucius (appelé Kǒngzǐ (孔子) ou Kǒng Fūzǐ (孔夫子), vrai prénom : Qiū (丘) : 1, 31, 61 à 80, (-551 à -479), Chine, philosophe.
-Denis Diderot : 24 (1713 à 1784), France, écrivain philosophe.
-Emile Zola : 29, (1840 à 1902), France, écrivain, romancier.
-François de la Rochefoucauld : 51, (1613 à 1680), France, écrivain moraliste et mémorialiste.
-François Rabelais : 30, (1483 à 1553), France, écrivain.                          
-Friedrich Nietzsche : 12, (1844 à 1900), Allemagne, écrivain philosophe.
-Gandhi : 6, (1869 à 1948), Inde, homme politique, philosophe révolutionnaire.
-Georges Sand : 50, (1804 à 1876), France, écrivaine, romancière.
-Honoré de Balzac : 26,60, (1799 à 1850), France, écrivain.      
-Jean-Jacques Rousseau : 47, (1712 à 1778), France, écrivain philosophe.
-Jean Jaurès : 14, (1859 à 1914), France, homme politique, socialiste.
-Jiddu Krishnamurti : 21, (1895 à 1986), Inde, philosophe.
-Jules Renard : 42, 59, (1864 à 1910), France, écrivain.
-Karl Marx : 16, (1818 à 1883), Allemagne, écrivain, homme politique communiste socialiste, philosophe, journaliste. 
-Lao Tseu : 7, 40, (-590 à -531), Chine, philosophe.
-Léonard De Vinci : 9, (1452 à 1519), Italie, architecte, ingénieur, peintre, philosophe, sculpteur, scientifique.
-Marguerite Yourcenar : 20, (1903 à 1987), France, Etats-Unis, écrivaine, romancière, poétesse.
-Martin Luther King : 8, (1929 à 1968), Etats-Unis, homme politique, pasteur religieux.
-Mencius : 32, (-380 à -289), Chine, philosophe.
-Michel de Montaigne : 27, (1533 à 1592), France, écrivain, homme politique.
-Montesquieu : 23, 43, (1689 à 1755), France, écrivain, philosophe.
-Napoléon Bonaparte : 52, (1769 à 1821), France, empereur, général, homme d’état, militaire.
-Nelson Mandela : 13, (1918 à 2013), Afrique du Sud, homme d’état, président.
-Platon : 3, (-427 à -348), Grèce, philosophe.
-René Descartes : 28,55, (1596 à 1650), France, mathématicien, philosophe, physicien, scientifique.
-Sacha Guitry : 41, (1885 à 1957), France, acteur, cinéaste, scénariste.
-Sénèque : 17, (-4 à 65), Espagne, homme d’état, philosophe, dramaturge.
-Sigmund Freud : 22, (1856 à 1939), Autriche, médecin, psychanalyste, psychiatre, scientifique.
-Socrate : 10, (-469 à -399), Grèce, philosophe.
-Sylvain Meili : 81 à 100, France/Chine, 20/21ème siècle, écrivain, philosophe, poète, photographe : champion du monde de photos de paréidolies dans deux catégories (18 à la suite et 60 en nombre), paysagiste jardin (loisir), naturaliste, ornithologue, arts martiaux du bâton…
-Thomas Edison : 19, (1847 à 1931), Etats-Unis, homme d’état, inventeur.
-Victor Hugo : 11, 44, 54 (1802 à 1885), France, écrivain, poète, romancier. 
-Voltaire : 15, 48, 53, (1694 à 1778), France, philosophe, conte, dramaturge, poète.
+Confucius (appelé Kǒngzǐ (孔子) ou Kǒng Fūzǐ (孔夫子), vrai prénom : Qiū (丘) : 1, 31, 61 à 80, (-551 à -479), Chine, philosophe.  
+Denis Diderot : 24 (1713 à 1784), France, écrivain philosophe.  
+Emile Zola : 29, (1840 à 1902), France, écrivain, romancier.  
+François de la Rochefoucauld : 51, (1613 à 1680), France, écrivain moraliste et mémorialiste.  
+François Rabelais : 30, (1483 à 1553), France, écrivain.  
+Friedrich Nietzsche : 12, (1844 à 1900), Allemagne, écrivain philosophe.  
+Gandhi : 6, (1869 à 1948), Inde, homme politique, philosophe révolutionnaire.  
+Georges Sand : 50, (1804 à 1876), France, écrivaine, romancière.  
+Honoré de Balzac : 26,60, (1799 à 1850), France, écrivain.  
+Jean-Jacques Rousseau : 47, (1712 à 1778), France, écrivain philosophe.  
+Jean Jaurès : 14, (1859 à 1914), France, homme politique, socialiste.  
+Jiddu Krishnamurti : 21, (1895 à 1986), Inde, philosophe.  
+Jules Renard : 42, 59, (1864 à 1910), France, écrivain.  
+Karl Marx : 16, (1818 à 1883), Allemagne, écrivain, homme politique communiste socialiste, philosophe, journaliste.  
+Lao Tseu : 7, 40, (-590 à -531), Chine, philosophe.  
+Léonard De Vinci : 9, (1452 à 1519), Italie, architecte, ingénieur, peintre, philosophe, sculpteur, scientifique.  
+Marguerite Yourcenar : 20, (1903 à 1987), France, Etats-Unis, écrivaine, romancière, poétesse.  
+Martin Luther King : 8, (1929 à 1968), Etats-Unis, homme politique, pasteur religieux.  
+Mencius : 32, (-380 à -289), Chine, philosophe.  
+Michel de Montaigne : 27, (1533 à 1592), France, écrivain, homme politique.  
+Montesquieu : 23, 43, (1689 à 1755), France, écrivain, philosophe.  
+Napoléon Bonaparte : 52, (1769 à 1821), France, empereur, général, homme d’état, militaire.  
+Nelson Mandela : 13, (1918 à 2013), Afrique du Sud, homme d’état, président.  
+Platon : 3, (-427 à -348), Grèce, philosophe.  
+René Descartes : 28,55, (1596 à 1650), France, mathématicien, philosophe, physicien, scientifique.  
+Sacha Guitry : 41, (1885 à 1957), France, acteur, cinéaste, scénariste.  
+Sénèque : 17, (-4 à 65), Espagne, homme d’état, philosophe, dramaturge.  
+Sigmund Freud : 22, (1856 à 1939), Autriche, médecin, psychanalyste, psychiatre, scientifique.  
+Socrate : 10, (-469 à -399), Grèce, philosophe.  
+Sylvain Meili : 81 à 100, France/Chine, 20/21ème siècle, écrivain, philosophe, poète, photographe : champion du monde de photos de paréidolies dans deux catégories (18 à la suite et 60 en nombre), paysagiste jardin (loisir), naturaliste, ornithologue, arts martiaux du bâton…  
+Thomas Edison : 19, (1847 à 1931), Etats-Unis, homme d’état, inventeur.  
+Victor Hugo : 11, 44, 54 (1802 à 1885), France, écrivain, poète, romancier.  
+Voltaire : 15, 48, 53, (1694 à 1778), France, philosophe, conte, dramaturge, poète.  
 
-Quiz bonus Sylvain Meili
+Quiz bonus Sylvain Meili  
 
-100
-1. Le plus beau poisson 
-a. est multicolore. b. vit dans l’eau la plus pure.
-c. est sportif. d. vit avec la meilleure intelligence.
-125
-2. Le Kung-fu, c’est souplesse, endurance, rapidité, technique, 
-a. force et esthétisme. b. puissance et beaux vêtements. 
-c. robustesse et énergie. d. vigueur et sagesse.
-126
-3. Le Kung-fu et les arts martiaux, c’est faire de son corps 
-a. le but de gagner sur soi-même. b. la combinaison de tous les mouvements.
-c. le centre d’attraction de la victoire. d. le plus beau des jouets.
-150
-4. Le chat est à la truite ce que 
-a. le cochon est à la carpe. b. les poils sont aux écailles. 
-c. l’air est à l’eau. d. la queue est aux nageoires.
-180
-5. Une voix douce comme de la soie, étincelante telle une fleur de nénuphar et mouvante tel 
-a. un papillon multicolore. b. un oiseau dans le ciel. 
-c. un dragon au firmament. d. une toupie d’harmonie.
-182
-6. Le jardin parfait est la réunion 
-a. de toutes les espèces. b. de l’homme et de la femme.
-c. des principales beautés de la nature. d. de l’artificiel et du naturel.
-250
-7. Une forêt sans ancêtres 
-a. est moins dangereuse. b. est plus jeune et donc plus bête.
-c. est le fruit des imbéciles.  d. n’est pas une véritable forêt.
-253
-8. L’homme et la femme ont le même esprit mais celui-ci 
-a. est plus intelligent d’un côté. b. s’est adapté au corps.
-c. a un programme différent. d. il y’en un plus souple.
-258
-9. Être riche n’est pas une raison 
-a. pour être athé. b. pour se marier.
-c. travailler. d. pour gaspiller.
-265
-10. À être trop nationaliste, 
-a. on passe à côté de belles choses. b. on évite les enmerdes.
-c. on s’ennuie plus. d. on répète comme un mouton.
-283
-11. Ne soit pas trop expressif ou 
-a. tu seras attaqué. b. tu auras des manières folles. 
-c. tu vieilliras vite. d. tu auras l’esprit étourdi.
-303
-12. Il n’y a pas d’âge pour 
-a. mettre une tute. b. grimper aux arbres ou faire de la balançoire.
-c. croire au père noël. d. pour mourir.
-347
-13. Il n’y a pas besoin de pousser des cris 
-a. quand on fait des arts martiaux. b. pour chanter.
-c. pour se défouler. d. pour jouer.
-385
-14. Il faut toujours avoir 
-a. un mouchoir dans sa poche. b. du maquillage à disposition. 
-c. beaucoup d’argent dans sa veste. d. un biscuit.
-415
-15. Un beau poème est un 
-a. pétale dans le vent. b. une feuille craquante d’automne.
-c. une fleur flottante sur l’eau cristaline.   
-d. une goutte vibrante dans la pétillante cascade. 
-899
-16. Le Kung-fu est l’art du mouvement et de l’amélioration de tout notre corps avec tout ce que l’on trouve pour agiter 
-a. tous les effets. b. toutes les lumières.
-c. tous les rayons. d. toutes les beautés de l’art du combat.
-911
-17. Où il n’y a pas de montagne, il suffit de creuser, d’entasser puis 
-a. construire. b. de décorer.
-c. croitre. d. de gagner de l’argent.
-929
-18. Quand la vie t’envoie de la merde, 
-a. envoie-là dans la fosse. b. ne t’embourbe pas.
-c. fais-en du terreau. d. plains-toi.
-1040
-19. La montagne veille sur le jardin parfait de 
-a. l’amour.
-b. la beauté. 
-c. du jardinier. 
-d. de l’équilibre.
-1067
-20. Les compliments, c’est la touche en plus qui transcende 
-a. l’argent.
-b. le boulanger.
-c. la mocheté.
-d. le gâteau.
+100  
+1. Le plus beau poisson  
+a. est multicolore. b. vit dans l’eau la plus pure.  
+c. est sportif. d. vit avec la meilleure intelligence.  
+125  
+2. Le Kung-fu, c’est souplesse, endurance, rapidité, technique,  
+a. force et esthétisme. b. puissance et beaux vêtements.  
+c. robustesse et énergie. d. vigueur et sagesse.  
+126  
+3. Le Kung-fu et les arts martiaux, c’est faire de son corps  
+a. le but de gagner sur soi-même. b. la combinaison de tous les mouvements.  
+c. le centre d’attraction de la victoire. d. le plus beau des jouets.  
+150  
+4. Le chat est à la truite ce que  
+a. le cochon est à la carpe. b. les poils sont aux écailles.  
+c. l’air est à l’eau. d. la queue est aux nageoires.  
+180  
+5. Une voix douce comme de la soie, étincelante telle une fleur de nénuphar et mouvante tel  
+a. un papillon multicolore. b. un oiseau dans le ciel.  
+c. un dragon au firmament. d. une toupie d’harmonie.  
+182  
+6. Le jardin parfait est la réunion  
+a. de toutes les espèces. b. de l’homme et de la femme.  
+c. des principales beautés de la nature. d. de l’artificiel et du naturel.  
+250  
+7. Une forêt sans ancêtres  
+a. est moins dangereuse. b. est plus jeune et donc plus bête.  
+c. est le fruit des imbéciles.  d. n’est pas une véritable forêt.  
+253  
+8. L’homme et la femme ont le même esprit mais celui-ci  
+a. est plus intelligent d’un côté. b. s’est adapté au corps.  
+c. a un programme différent. d. il y en un plus souple.  
+258  
+9. Être riche n’est pas une raison  
+a. pour être athé. b. pour se marier.  
+c. travailler. d. pour gaspiller.  
+265  
+10. À être trop nationaliste,  
+a. on passe à côté de belles choses. b. on évite les emmerdes.  
+c. on s’ennuie plus. d. on répète comme un mouton.  
+283  
+11. Ne soit pas trop expressif ou  
+a. tu seras attaqué. b. tu auras des manières folles.  
+c. tu vieilliras vite. d. tu auras l’esprit étourdi.  
+303  
+12. Il n’y a pas d’âge pour  
+a. mettre une tute. b. grimper aux arbres ou faire de la balançoire.  
+c. croire au père noël. d. pour mourir.  
+347  
+13. Il n’y a pas besoin de pousser des cris  
+a. quand on fait des arts martiaux. b. pour chanter.  
+c. pour se défouler. d. pour jouer.  
+385  
+14. Il faut toujours avoir  
+a. un mouchoir dans sa poche. b. du maquillage à disposition.  
+c. beaucoup d’argent dans sa veste. d. un biscuit.  
+415  
+15. Un beau poème est un  
+a. pétale dans le vent. b. une feuille craquante d’automne.  
+c. une fleur flottante sur l’eau cristalline.  
+d. une goutte vibrante dans la pétillante cascade.  
+899  
+16. Le Kung-fu est l’art du mouvement et de l’amélioration de tout notre corps avec tout ce que l’on trouve pour agiter  
+a. tous les effets. b. toutes les lumières.  
+c. tous les rayons. d. toutes les beautés de l’art du combat.  
+911  
+17. Où il n’y a pas de montagne, il suffit de creuser, d’entasser puis  
+a. construire. b. de décorer.  
+c. croitre. d. de gagner de l’argent.  
+929  
+18. Quand la vie t’envoie de la merde,  
+a. envoie-là dans la fosse. b. ne t’embourbe pas.  
+c. fais-en du terreau. d. plains-toi.  
+1040  
+19. La montagne veille sur le jardin parfait de  
+a. l’amour.  
+b. la beauté.  
+c. du jardinier.  
+d. de l’équilibre.  
+1067  
+20. Les compliments, c’est la touche en plus qui transcende  
+a. l’argent.  
+b. le boulanger.  
+c. la mocheté.  
+d. le gâteau.  
 
-Réponses quiz
-1b, 2a, 3d, 4a, 5c, 6c, 7d, 8b, 9d, 10a
-11c, 12b, 13a, 14a, 15a, b, c, d, 16d, 17b, 18c, 19a, 20d
+Réponses quiz  
+1b, 2a, 3d, 4a, 5c, 6c, 7d, 8b, 9d, 10a  
+11c, 12b, 13a, 14a, 15a, b, c, d, 16d, 17b, 18c, 19a, 20d  
 
 
-10 ultimes poèmes 
+10 ultimes poèmes  
 
-L’épicéa impérial dans son pré
+L’épicéa impérial dans son pré  
 
 C’est le meilleur arbre à grimper.
 Il pointe sa beauté triangulaire vers les étoiles.
