@@ -5273,250 +5273,251 @@ Réponses quiz
 
 L’épicéa impérial dans son pré  
 
-C’est le meilleur arbre à grimper.
-Il pointe sa beauté triangulaire vers les étoiles.
-Ses douces épines vertes en éventail éclatant toute l’année sa grandeur dans le ciel bleu.
-Ses branches s’étendent vers l’horizon et caressent le sol.
-Ses branches secondaires plongent en lui donnant sa forme de croissant.
-Ses branches en résine s’étalant de tous les côtés sont souples et très solides, elles permettent souvent d’accrocher un support pour mieux se poser.
-Chaque mètre de hauteur est un endroit pour s’asseoir.
-Si tu glisses en haut, il y a toujours une branche pour te rattraper.
-Ses jolis cônes nourrissent l’écureuil, ils tombent joliment au sol et nous permettent de jouer avec en visant des cibles.
-Il nous abrite de la chaleur et de la pluie.
-En le plantant dans chaque ville et village, il sera un trophée qui apportera beauté, bonheur, point de vue, jeu et nourriture.
-Divin épicéa, comme un sage, il va haut et grandit en regardant dans toutes les directions.
+C’est le meilleur arbre à grimper.  
+Il pointe sa beauté triangulaire vers les étoiles.  
+Ses douces épines vertes en éventail éclatant toute l’année sa grandeur dans le ciel bleu.  
+Ses branches s’étendent vers l’horizon et caressent le sol.  
+Ses branches secondaires plongent en lui donnant sa forme de croissant.  
+Ses branches en résine s’étalant de tous les côtés sont souples et très solides, elles permettent souvent d’accrocher un support pour mieux se poser.  
+Chaque mètre de hauteur est un endroit pour s’asseoir.  
+Si tu glisses en haut, il y a toujours une branche pour te rattraper.  
+Ses jolis cônes nourrissent l’écureuil, ils tombent joliment au sol et nous permettent de jouer avec en visant des cibles.  
+Il nous abrite de la chaleur et de la pluie.  
+En le plantant dans chaque ville et village, il sera un trophée qui apportera beauté, bonheur, point de vue, jeu et nourriture.  
+Divin épicéa, comme un sage, il va haut et grandit en regardant dans toutes les directions.  
 
-Sylvain Meili (9 novembre 2022 : n°24)
+Sylvain Meili (9 novembre 2022 : n°24)  
 
-Noël sous la neige
+Noël sous la neige  
 
-La veille au soir, les beaux flocons de cristal étoilé descendent en brillant près des lampes de la nuit.
+La veille au soir, les beaux flocons de cristal étoilé descendent en brillant près des lampes de la nuit.  
 
-Au réveil, tout est réuni, encore avec ses racines dans son pot, l’épicéa ou le sapin est décoré de guirlandes et de boules multicolores, surmonté de son trophée doré sur sa pointe.
-Il présente aussi des perles, des petites boules de pin sylvestre et de mélèze, des fleurs de papiers pliés et d’autres jolis petits objets.
-L’esprit du Christ et du père Noël est fêté.
-Les cadeaux emballés dans du papier ou du tissu multicolore sont enfin ouverts.
-Le matin, des gros flocons calmes continuent à s’étaler délicatement.
-Sous le grand épicéa décoré du village posant ses branches sur la neige, les habitants déposent des offrandes de nourriture aux oiseaux en grimpant jusqu’aux petites boîtes sculptées.
-A midi, une pizza végétale.
-Au dessert, de délicieuses bûches pâtissières de Noël à la framboise, vanille et chocolat sont partagées par la famille.
-L’après-midi, les arbres nappés scintillent de blanc sous le ciel bleu.
-Le doux son de la neige craque agréablement sous nos pas.
+Au réveil, tout est réuni, encore avec ses racines dans son pot, l’épicéa ou le sapin est décoré de guirlandes et de boules multicolores, surmonté de son trophée doré sur sa pointe.  
+Il présente aussi des perles, des petites boules de pin sylvestre et de mélèze, des fleurs de papiers pliés et d’autres jolis petits objets.  
+L’esprit du Christ et du père Noël est fêté.  
+Les cadeaux emballés dans du papier ou du tissu multicolore sont enfin ouverts.  
+Le matin, des gros flocons calmes continuent à s’étaler délicatement.  
+Sous le grand épicéa décoré du village posant ses branches sur la neige, les habitants déposent des offrandes de nourriture aux oiseaux en grimpant jusqu’aux petites boîtes sculptées.  
+A midi, une pizza végétale.  
+Au dessert, de délicieuses bûches pâtissières de Noël à la framboise, vanille et chocolat sont partagées par la famille.  
+L’après-midi, les arbres nappés scintillent de blanc sous le ciel bleu.  
+Le doux son de la neige craque agréablement sous nos pas.  
 Il est temps de s’amuser, bataille de boule de neige, igloo, bonhomme de neige et sculpture, sautons et glissons dans la neige en luge, en ski ou en planches.
-Retour à la maison qui passe par la porte sous sa couronne de branches ornementées avec ses boules de houx.
-Au goûter de 16h30, dégustation de chocolats noisette, un chocolat surprise en plus se cache derrière la case du calendrier de Noël.
-Au soir, riz ratatouille puis une tarte aux pommes et une bûche glacée à la vanille.
-Encore quelques jeux ou films selon les envies avant de retrouver les douceurs de son lit.
+Retour à la maison qui passe par la porte sous sa couronne de branches ornementées avec ses boules de houx.  
+Au goûter de 16h30, dégustation de chocolats noisette, un chocolat surprise en plus se cache derrière la case du calendrier de Noël.  
+Au soir, riz ratatouille puis une tarte aux pommes et une bûche glacée à la vanille.  
+Encore quelques jeux ou films selon les envies avant de retrouver les douceurs de son lit.  
 
-Sylvain Meili (02/juillet 2023 : n°25)
+Sylvain Meili (02/juillet 2023 : n°25)  
 
-Bambou impérial
+Bambou impérial  
 
-Le bambou, on peut l’assembler en donnant la forme de presque tout et construire beaucoup.
-Avec des bambous, on bouche beaucoup de trous.
-Avec des bambous, on gagne à l’époque des sous.
-Avec des bambous, on construit une maison et son mobilier pour nous.
-Avec un bâton de bambou, on fait du Kung-fu.
-Avec des bambous, du tir à l’arc, de la flûte on joue.
-Avec des lamelles et du papier de bambou, on écrit pour vous.
-Avec une échelle en bambou, on est aussi haut qu’un hibou.
-Avec des barrières en bambou, un petit coin tranquille dans le jardin, les animaux sont protégés des loups.
-Avec des pousses de bambous, on les mange dans des plats en bambous, cela a pour certains bon goût.
-Avec des bambous, tellement d’outils pour finir des choses jusqu’au bout.
-Avec des bambous, des décorations pour un bien-être encore plus doux.
-Le bambou est l’empereur des herbes et a tellement d’atouts.
+Le bambou, on peut l’assembler en donnant la forme de presque tout et construire beaucoup.  
+Avec des bambous, on bouche beaucoup de trous.  
+Avec des bambous, on gagne à l’époque des sous.  
+Avec des bambous, on construit une maison et son mobilier pour nous.  
+Avec un bâton de bambou, on fait du Kung-fu.  
+Avec des bambous, du tir à l’arc, de la flûte on joue.  
+Avec des lamelles et du papier de bambou, on écrit pour vous.  
+Avec une échelle en bambou, on est aussi haut qu’un hibou.  
+Avec des barrières en bambou, un petit coin tranquille dans le jardin, les animaux sont protégés des loups.  
+Avec des pousses de bambous, on les mange dans des plats en bambous, cela a pour certains bon goût.  
+Avec des bambous, tellement d’outils pour finir des choses jusqu’au bout.  
+Avec des bambous, des décorations pour un bien-être encore plus doux.  
+Le bambou est l’empereur des herbes et a tellement d’atouts.  
 
-Sylvain Meili (13 novembre 2022 : n°26)
+Sylvain Meili (13 novembre 2022 : n°26)  
 
-Promenade avec sa divine
+Promenade avec sa divine  
 
-Deux cœurs ravis dans les secrets d’un jardin,
-se promenant dans un doux vent câlin.
-Deux silhouettes bellement habillées en osmose,
-prenant son temps dans ce décor virtuose.
-Un petit tour de chemins,
-dans les plus jolis recoins.
-Petit chant d’une chute d’eau,
-dans ses écumes de cadeaux.
-Assis sur le banc du pavillon devant l’étang,
-le miroir cristallin aux oiseaux chantant.
-Au bord d’un cerisier rose au ciel bleu,
-moment de nirvana qui comble nos vœux.
-Des songes de vie,
-dans les senteurs des fleurs épanouies.
-Sentiers de couleurs,
-aux multitudes saveurs.
-Sous les arbres poétiques,
-du plus grand paysagiste artistique.
-Sur un pont arqué de pierres,
-entouré de montagnes à pics spectaculaires.
-Le duo défile joliment,
-de beaux sentiments. 
+Deux cœurs ravis dans les secrets d’un jardin,  
+se promenant dans un doux vent câlin.  
+Deux silhouettes bellement habillées en osmose,  
+prenant son temps dans ce décor virtuose.  
+Un petit tour de chemins,  
+dans les plus jolis recoins.  
+Petit chant d’une chute d’eau,  
+dans ses écumes de cadeaux.  
+Assis sur le banc du pavillon devant l’étang,  
+le miroir cristallin aux oiseaux chantant.  
+Au bord d’un cerisier rose au ciel bleu,  
+moment de nirvana qui comble nos vœux.  
+Des songes de vie,  
+dans les senteurs des fleurs épanouies.  
+Sentiers de couleurs,  
+aux multitudes saveurs.  
+Sous les arbres poétiques,  
+du plus grand paysagiste artistique.  
+Sur un pont arqué de pierres,  
+entouré de montagnes à pics spectaculaires.  
+Le duo défile joliment,  
+de beaux sentiments.  
 
-Sylvain Meili (17 novembre 2022 : n°27)
+Sylvain Meili (17 novembre 2022 : n°27)  
 
-Partenaires de vie
+Partenaires de vie  
 
-Partenaires de jeux,
-partenaires heureux.
-Jardiniers du cœur,
-jardiniers de fleurs.
-Faisons d’amusants sports, 
-pour rester fort.
-Des massages, 
-pour garder son âge.
-Des jolis délices,
-qui nous nourrissent.
-Ensemble habillé, 
-toujours de beauté.
-Paradant au jardin,
-d’émerveillements enfantins.
-Poète et poétesse,
-aux paroles de caresses.
-Musiques divines, 
-de mélodies qui nous illuminent.
-Une vie de lumière,
-aux élans stellaires.
+Partenaires de jeux,  
+partenaires heureux.  
+Jardiniers du cœur,  
+jardiniers de fleurs.  
+Faisons d’amusants sports,  
+pour rester fort.  
+Des massages,  
+pour garder son âge.  
+Des jolis délices,  
+qui nous nourrissent.  
+Ensemble habillé,  
+toujours de beauté.  
+Paradant au jardin,  
+d’émerveillements enfantins.  
+Poète et poétesse,  
+aux paroles de caresses.  
+Musiques divines,  
+de mélodies qui nous illuminent.  
+Une vie de lumière,  
+aux élans stellaires.  
 
-Sylvain Meili (19 novembre 2022 : n°28)
+Sylvain Meili (19 novembre 2022 : n°28)  
 
-Les jolis oiseaux du village
+Les jolis oiseaux du village  
 
-Le village est remplit d’oiseaux multicolores.
+Le village est remplit d’oiseaux multicolores.  
 
-Au printemps, les hirondelles de fenêtre ont construit leurs nids sous le toit, des petits passereaux habitent les petits trous construits exprès dans les murs de la maison en pierres, l’habitation devient un village à curiosités.
-D’autres oiseaux ont investi la haie dense du jardin.
-On entend le tambourinage du pic qui résonne dans la colline, les chants des différents oiseaux s’entremêlent les uns aux autres.
+Au printemps, les hirondelles de fenêtre ont construit leurs nids sous le toit, des petits passereaux habitent les petits trous construits exprès dans les murs de la maison en pierres, l’habitation devient un village à curiosités.  
+D’autres oiseaux ont investi la haie dense du jardin.  
+On entend le tambourinage du pic qui résonne dans la colline, les chants des différents oiseaux s’entremêlent les uns aux autres.  
 
-En été, trouver quelques plumes vient enrichir la boîte à plumes.
-La haie sauvage nourrit les oiseaux, dans la jungle des branches frémissantes de leurs visites sous l’éclat de leurs couleurs attrayantes.
+En été, trouver quelques plumes vient enrichir la boîte à plumes.  
+La haie sauvage nourrit les oiseaux, dans la jungle des branches frémissantes de leurs visites sous l’éclat de leurs couleurs attrayantes.  
 
-A l’automne, certains oiseaux nous quittent et d’autres nous visitent.
-Les feuilles tombées sont le jeu de fougueux joueurs virevoltant les feuilles sous de craquants sons qui palpitent.
+A l’automne, certains oiseaux nous quittent et d’autres nous visitent.  
+Les feuilles tombées sont le jeu de fougueux joueurs virevoltant les feuilles sous de craquants sons qui palpitent.  
 
-A l’hiver, une petite cabane est accrochée derrière la fenêtre du salon avec de la nourriture, une petite boîte sculptée sur le bord de la fenêtre permet d’observer les oiseaux se nourrir encore de plus près. Les petites pattes dessinent dans la neige la vie qui s’accroche au prochain jubilé du printemps tant attendu. 
+A l’hiver, une petite cabane est accrochée derrière la fenêtre du salon avec de la nourriture, une petite boîte sculptée sur le bord de la fenêtre permet d’observer les oiseaux se nourrir encore de plus près. Les petites pattes dessinent dans la neige la vie qui s’accroche au prochain jubilé du printemps tant attendu.  
 
-Dans le ciel, les oiseaux en troupes sont les nuages changeant, 
-les oiseaux solitaires sont multitudes de petites comètes flamboyant l’espace.
+Dans le ciel, les oiseaux en troupes sont les nuages changeant,  
+les oiseaux solitaires sont multitudes de petites comètes flamboyant l’espace.  
 
-Sylvain Meili (13 juillet 2023 : n°29)
+Sylvain Meili (13 juillet 2023 : n°29)  
 
-La maison en pierres
+La maison en pierres  
 
-Au creux d’une petite montagne, au bord d’un ruisseau et d’un étang vivait un enfant sage.
+Au creux d’une petite montagne, au bord d’un ruisseau et d’un étang vivait un enfant sage.  
 
-Les murs de la maison ont une épaisseur de 50 cm, ce qui permet de s’asseoir sur les fenêtres et de poser divers objets de décoration.
-Les meubles de la maison qui contiennent les livres et les vêtements se ferment à l’abri de l’air libre et des insectes pour ne pas jaunir les livres et les vêtements, de plus les vêtements disposent d’une protection supplémentaire dans une boîte ou dans un sac en tissu.
-Il y a 4 chambres, une pour chacun.
-Le salon dispose d’un canapé lit, d’autres lits supplémentaires sont superposés dans un coin du grenier en cas de besoin.
-Le grenier du 2ème étage contient pleins de petits trésors à découvrir.
-Dans la grande cuisine, une grande table en bois extensible, des réserves de nourriture de plusieurs mois d’avance dans les meubles. 
-Une salle de bain a sa baignoire pour se relaxer.
-La buanderie permet de laver et de laisser sécher le linge.
-Le WC dispose d’un bidet et d’un lavabo.
-Sous la maison, il y a une belle cave voutée en pierres.
-La salle de jeu dispose d’une table de ping pong repliable, d’un babyfoot, de jeu fléchettes et d’une console de jeux vidéo ainsi que quelques autres petits jeux de société.
-Au garage, les vélos sont rangés, il présente un étage sous le toit.
-Un beau chat se repose sur le toit recouvert de mousses de la cabane derrière le garage. 
-A l’intérieur, les outils de jardin, une faux permet de couper une partie de l’herbe sans essence et presque sans bruit contrairement à la tondeuse, une partie est laissé poussée pour pouvoir admirer les fleurs sauvages.
-Au jardin, une multitude d’activités est possible : tir à l’arc, badminton avec un filet déménageable, frisbee, lancer de pommes de pin ou de petites balles sur des boîtes de conserve, un panier de basket, entraînement au Kung-fu, au bâton et nunchaku…
+Les murs de la maison ont une épaisseur de 50 cm, ce qui permet de s’asseoir sur les fenêtres et de poser divers objets de décoration.  
+Les meubles de la maison qui contiennent les livres et les vêtements se ferment à l’abri de l’air libre et des insectes pour ne pas jaunir les livres et les vêtements, de plus les vêtements disposent d’une protection supplémentaire dans une boîte ou dans un sac en tissu.  
+Il y a 4 chambres, une pour chacun.  
+Le salon dispose d’un canapé lit, d’autres lits supplémentaires sont superposés dans un coin du grenier en cas de besoin.  
+Le grenier du 2ème étage contient pleins de petits trésors à découvrir.  
+Dans la grande cuisine, une grande table en bois extensible, des réserves de nourriture de plusieurs mois d’avance dans les meubles.  
+Une salle de bain a sa baignoire pour se relaxer.  
+La buanderie permet de laver et de laisser sécher le linge.  
+Le WC dispose d’un bidet et d’un lavabo.  
+Sous la maison, il y a une belle cave voutée en pierres.  
+La salle de jeu dispose d’une table de ping pong repliable, d’un babyfoot, de jeu fléchettes et d’une console de jeux vidéo ainsi que quelques autres petits jeux de société.  
+Au garage, les vélos sont rangés, il présente un étage sous le toit.  
+Un beau chat se repose sur le toit recouvert de mousses de la cabane derrière le garage.  
+A l’intérieur, les outils de jardin, une faux permet de couper une partie de l’herbe sans essence et presque sans bruit contrairement à la tondeuse, une partie est laissé poussée pour pouvoir admirer les fleurs sauvages.  
+Au jardin, une multitude d’activités est possible : tir à l’arc, badminton avec un filet déménageable, frisbee, lancer de pommes de pin ou de petites balles sur des boîtes de conserve, un panier de basket, entraînement au Kung-fu, au bâton et nunchaku…  
 
-C’était la maison d’un songe.
+C’était la maison d’un songe.  
 
-Sylvain Meili (13 juillet 2023 : n°30)
+Sylvain Meili (13 juillet 2023 : n°30)  
 
-Cueillir la beauté des saisons :
-printemps, été, automne, hiver
+Cueillir la beauté des saisons :  
+printemps, été, automne, hiver  
 
-Au printemps, je cueille les fleurs.
-Les fleurs des prairies, sous les bois, aux bords de chemins, au milieu de l’eau et sur les rives renaissent à la plénitude, leurs senteurs nous séduisent.
-Le cerisier de fleurs roses est le plus bel associé du ciel bleu.
-Les oiseaux chantent et permettent de nous amuser à les trouver.
+Au printemps, je cueille les fleurs.  
+Les fleurs des prairies, sous les bois, aux bords de chemins, au milieu de l’eau et sur les rives renaissent à la plénitude, leurs senteurs nous séduisent.  
+Le cerisier de fleurs roses est le plus bel associé du ciel bleu.  
+Les oiseaux chantent et permettent de nous amuser à les trouver.  
 
-A l’été, je cueille les fruits.
-La densité des feuillages nous permettent de créer des petits coins intimes et agréables. 
-La baignade rafraichit sous les grandes chaleurs, dans la mer bordée d’un doux sable fin ou d’une rivière bordée de roches et de gravières aux couleurs variées.
-Les tendres fruits de délices sont revivifiants.
+A l’été, je cueille les fruits.  
+La densité des feuillages nous permettent de créer des petits coins intimes et agréables.  
+La baignade rafraichit sous les grandes chaleurs, dans la mer bordée d’un doux sable fin ou d’une rivière bordée de roches et de gravières aux couleurs variées.  
+Les tendres fruits de délices sont revivifiants.  
 
-A l’automne, je cueille les feuilles.
-Les arbres multicolores sont le spectacle d’au revoir, les feuilles virevoltent, le peuplier tremble dans son habit d’or se métamorphose et laisse un tapis doré sous nos pieds. 
-Les houx, les conifères comme l’épicéa et le pin sylvestre, les boules de gui et les lierres toujours verts nous consolent à la fin de l’automne.
+A l’automne, je cueille les feuilles.  
+Les arbres multicolores sont le spectacle d’au revoir, les feuilles virevoltent, le peuplier tremble dans son habit d’or se métamorphose et laisse un tapis doré sous nos pieds.  
+Les houx, les conifères comme l’épicéa et le pin sylvestre, les boules de gui et les lierres toujours verts nous consolent à la fin de l’automne.  
 
-A l’hiver, je cueille la neige.
-Les grandes gelées humides figent les arbres des collines devant un grand ciel bleu.
-Les stalactites descendent des rochers, la glace emballe la mousse et les plantes de l’eau qui s’étale sur tout un rocher.
-L’étang glacé a piégé les gaz en petites bulles, disques et nuages de bulles de glaces, les fleurs de glace à la surface sont nées des graines ailées descendues par le vent d’un arbre nommé le charme.
-Les gros flocons de neige scintillent près des lanternes. 
-Dans le jour, ils tapissent tout le décor et sont le terrain des jeux d’hivers.
+A l’hiver, je cueille la neige.  
+Les grandes gelées humides figent les arbres des collines devant un grand ciel bleu.  
+Les stalactites descendent des rochers, la glace emballe la mousse et les plantes de l’eau qui s’étale sur tout un rocher.  
+L’étang glacé a piégé les gaz en petites bulles, disques et nuages de bulles de glaces, les fleurs de glace à la surface sont nées des graines ailées descendues par le vent d’un arbre nommé le charme.  
+Les gros flocons de neige scintillent près des lanternes.  
+Dans le jour, ils tapissent tout le décor et sont le terrain des jeux d’hivers.  
 
-Sylvain Meili (12 juillet 2023 : n°31)
+Sylvain Meili (12 juillet 2023 : n°31)  
 
-L’eau vivante
+L’eau vivante  
 
-L’eau circule en l’air, stagne ou coule.
-L’eau mousine.
-L’eau pleut.
-L’eau grêle.
-L’eau neige. 
-L’eau glace.
-L’eau s’évapore.
-L’eau s’embrume.
-L’eau artiste voyage en nuages. 
-Les arcs-en-ciel colorés nous disent qu’elle fait tourner la vie.
-L’eau chantonne, fait des jolis bruits et nous fait bien nous amuser, elle est douce et délicieuse.
+L’eau circule en l’air, stagne ou coule.  
+L’eau mousine.  
+L’eau pleut.  
+L’eau grêle.  
+L’eau neige.  
+L’eau glace.  
+L’eau s’évapore.  
+L’eau s’embrume.  
+L’eau artiste voyage en nuages.  
+Les arcs-en-ciel colorés nous disent qu’elle fait tourner la vie.  
+L’eau chantonne, fait des jolis bruits et nous fait bien nous amuser, elle est douce et délicieuse.  
 
-Sylvain Meili (16 juillet 2023 : n°32)
+Sylvain Meili (16 juillet 2023 : n°32)  
 
-L’empereur Sylvain
+L’empereur Sylvain  
 
-Sa capacité à trouver les meilleures beautés embellit la vie.
-Y rassemblant la nomination des meilleurs talents de la Terre.
-Le défenseur de la justice.
-Véritable contributeur et rassembleur d’idées.
-Avec de grands rêves de vie d’un paradis.
-Illuminant l’art du monde.
-Neuvième dragon, poète et gardien de la nature, protecteur de la forêt…
+Sa capacité à trouver les meilleures beautés embellit la vie.  
+Y rassemblant la nomination des meilleurs talents de la Terre.  
+Le défenseur de la justice.  
+Véritable contributeur et rassembleur d’idées.  
+Avec de grands rêves de vie d’un paradis.  
+Illuminant l’art du monde.  
+Neuvième dragon, poète et gardien de la nature, protecteur de la forêt…  
 
-(Le but est d’être empereur de soi-même, donc faire le meilleur et le bien, pas empereur des autres. Pas un dictateur ni trop un profiteur pour ceux qui dirigent d’autres personnes mais un bienfaiteur).
+(Le but est d’être empereur de soi-même, donc faire le meilleur et le bien, pas empereur des autres. Pas un dictateur ni trop un profiteur pour ceux qui dirigent d’autres personnes mais un bienfaiteur).  
 
-Sylvain Meili (3 novembre 2022 : n°33)
+Sylvain Meili (3 novembre 2022 : n°33)  
 
-9 pas avant le passage de l’au-delà
+9 pas avant le passage de l’au-delà  
 
-1113
+1113  
 Les proverbes nous font réfléchir et peuvent être plus ou moins des vérités ou non, poétiques, drôles, des jeux de mots.
-Le tout, c’est de choisir les bons.
-1114
-Dans le rêve, il peut y avoir des vraies consciences et des  hologrammes.
-On peut essayer de démasquer tous ceux qui jouent des personnages dans nos rêves, en leur disant qu’on sait qu’il n’est pas lui, qu’il s’est mis un hologramme ou alors c’est un pur hologramme.
-1115
+Le tout, c’est de choisir les bons.  
+1114  
+Dans le rêve, il peut y avoir des vraies consciences et des  hologrammes.  
+On peut essayer de démasquer tous ceux qui jouent des personnages dans nos rêves, en leur disant qu’on sait qu’il n’est pas lui, qu’il s’est mis un hologramme ou alors c’est un pur hologramme.  
+1115  
 Ne pas relâcher ses efforts et ne pas attendre en plus quand on croit faire un rêve qui semble prémonitoire sinon on risque de détruire la ligne de temps.
-1116
-Dans l’un des plans de l’au-delà, fini les barrières de trop travailler et de manquer de temps, d’être trop vieux, d’être trop loin, pas assez riche dans la même dimension d’un monde, sauf les plus bas niveaux des plans pour les plus méchants qui seront entre eux qui ont moins de bonnes options. Il est dit qu’il y a 7 sphères ou plan.
-1117
-La création d’une œuvre peut être une expérience, un amusement, un travail, un challenge.
-1118
-Le chemin parcouru est comme l’ascension du versant d’une montagne.
-1119
-Pour tous ceux qui disent que ça n’arrive qu’aux autres, jusqu’à la mort, plus qu’à attendre la réincarnation ou l’au-delà.
-1120
-Il reste l’au-delà pour combler ce que je n’ai pas réussi à faire ici.
+1116  
+Dans l’un des plans de l’au-delà, fini les barrières de trop travailler et de manquer de temps, d’être trop vieux, d’être trop loin, pas assez riche dans la même dimension d’un monde, sauf les plus bas niveaux des plans pour les plus méchants qui seront entre eux qui ont moins de bonnes options. Il est dit qu’il y a 7 sphères ou plan.  
+1117  
+La création d’une œuvre peut être une expérience, un amusement, un travail, un challenge.  
+1118  
+Le chemin parcouru est comme l’ascension du versant d’une montagne.  
+1119  
+Pour tous ceux qui disent que ça n’arrive qu’aux autres, jusqu’à la mort, plus qu’à attendre la réincarnation ou l’au-delà.  
+1120  
+Il reste l’au-delà pour combler ce que je n’ai pas réussi à faire ici.  
 
-1121
-Mon dragon Chinois est là avec deux sièges sur son dos, une belle asiatique pour moi occupe déjà un siège (fiction et message d’humour).
-Le passage est franchi. 
-Où j’habite ?
-Je veux récupérer ma mémoire, reparler mes langages perdus et retrouver tous mes talents et mes créations antérieures.
-Je veux être la beauté parfaite.
-Où sont mes amis et mes copines des vies antérieures et celles qui veulent venir me voir ?
-Qu’est-ce qu’on peut faire et avoir ici ?
-Je vais créer le jardin le plus parfait dans l’au-delà.
-(Je veux la copie de mon livre au paradis et dans plusieurs dimensions ainsi que la copie de ma musique et d’autres choses…Si vous voulez, les meilleurs philosophes de l’au-delà ou Dieu, faites-moi la correction des erreurs de mon livre si vous pouvez prouver ce qui est faux).
+1121  
+Mon dragon Chinois est là avec deux sièges sur son dos, une belle asiatique pour moi occupe déjà un siège (fiction et message d’humour).  
+Le passage est franchi.  
+Où j’habite ?  
+Je veux récupérer ma mémoire, reparler mes langages perdus et retrouver tous mes talents et mes créations antérieures.  
+Je veux être la beauté parfaite.  
+Où sont mes amis et mes copines des vies antérieures et celles qui veulent venir me voir ?  
+Qu’est-ce qu’on peut faire et avoir ici ?  
+Je vais créer le jardin le plus parfait dans l’au-delà.  
+(Je veux la copie de mon livre au paradis et dans plusieurs dimensions ainsi que la copie de ma musique et d’autres choses…  
+Si vous voulez, les meilleurs philosophes de l’au-delà ou Dieu, faites-moi la correction des erreurs de mon livre si vous pouvez prouver ce qui est faux).  
 
-La montagne de proverbes
+La montagne de proverbes  
 
-Le chemin parcouru est comme l’ascension 
-du versant d’une montagne.
+Le chemin parcouru est comme l’ascension  
+du versant d’une montagne.  
 
    (17 années)
 
@@ -5547,318 +5548,318 @@ et la montagne Meili.
 Je ne suis pas la plus haute montagne, je suis une 
 montagne jamais gravie avant.
 
-Le Meilisme
-Synthèse 1121 proverbes
+Le Meilisme  
+Synthèse 1121 proverbes  
 
-1. Être dans le bien et la vérité. 
-2. Être dans le beau et la diversité.
-3. Œuvrer, créer pour soi et pour les autres.
-4. Partager positivement la richesse de tout ce qui existe, la connaissance et la sagesse.
-5. Utiliser le plus possible des mots positifs.
-6. Être en accord avec ses pensées, ses mots et ses actes. 
-7. Jamais de vengeance, seulement éclairer, arrêter un mal. 
-8. Ne pas faire d’un ou plusieurs cas une généralité (famille, communauté, groupe…) et pas d’une généralité comme étant 100% des cas.
-9 Ne pas croire aveuglément ce qui est dit, réfléchir, douter, penser logique et confirmer quand c’est possible.
-10. Connaître toutes les sortes de pièges et techniques de manipulations pour les éviter.
-11. Transmuter le négatif en positif avec le meilleur comportement.
-12. Savoir se mettre à la place de l’autre en étant conscient mais pas en s’imaginant sa souffrance. 
-13. Sauf pour s’informer ou autres buts, ne pas penser à ce que l’on ne veut pas, penser seulement à ce que l’on veut car la pensée attire et peut augmenter les probabilités. 
-14. Se pardonner à soi et aux autres pour avoir la paix intérieure et le meilleur pouvoir de création. 
-15. Bien se comporter dans ses rêves.
-16. Promouvoir et sauvegarder le maximum et le meilleur, chercher la vérité et être reconnecté à la source.
-17. Laisser vivre ses émotions sans que ça soit pathologique de préférence seul parfois car cela peut faire baisser la vibration des autres inutilement à trop souvent se plaindre. 
-18. Améliorer le bien-être de tout ce qui existe (diminuer le plus possible les souffrances physiques et psychologiques de tout ce qui existe). 
-19. Il faut garder l’esprit d’enfant tout en ayant la sagesse des anciens.
-20. Être en paix et en pleine conscience.
+1. Être dans le bien et la vérité.  
+2. Être dans le beau et la diversité.  
+3. Œuvrer, créer pour soi et pour les autres.  
+4. Partager positivement la richesse de tout ce qui existe, la connaissance et la sagesse.  
+5. Utiliser le plus possible des mots positifs.  
+6. Être en accord avec ses pensées, ses mots et ses actes.  
+7. Jamais de vengeance, seulement éclairer, arrêter un mal.  
+8. Ne pas faire d’un ou plusieurs cas une généralité (famille, communauté, groupe…) et pas d’une généralité comme étant 100% des cas.  
+9 Ne pas croire aveuglément ce qui est dit, réfléchir, douter, penser logique et confirmer quand c’est possible.  
+10. Connaître toutes les sortes de pièges et techniques de manipulations pour les éviter.  
+11. Transmuter le négatif en positif avec le meilleur comportement.  
+12. Savoir se mettre à la place de l’autre en étant conscient mais pas en s’imaginant sa souffrance.  
+13. Sauf pour s’informer ou autres buts, ne pas penser à ce que l’on ne veut pas, penser seulement à ce que l’on veut car la pensée attire et peut augmenter les probabilités.  
+14. Se pardonner à soi et aux autres pour avoir la paix intérieure et le meilleur pouvoir de création.  
+15. Bien se comporter dans ses rêves.  
+16. Promouvoir et sauvegarder le maximum et le meilleur, chercher la vérité et être reconnecté à la source.  
+17. Laisser vivre ses émotions sans que ça soit pathologique de préférence seul parfois car cela peut faire baisser la vibration des autres inutilement à trop souvent se plaindre.  
+18. Améliorer le bien-être de tout ce qui existe (diminuer le plus possible les souffrances physiques et psychologiques de tout ce qui existe).  
+19. Il faut garder l’esprit d’enfant tout en ayant la sagesse des anciens.  
+20. Être en paix et en pleine conscience.  
 
-21. Devise 
-La voie du milieu, de la nuance et de la beauté.
- (21=aimer toi, les 21 grues)
-Logo du Meilisme
-(Symbole, drapeau)
+21. Devise  
+La voie du milieu, de la nuance et de la beauté.  
+ (21=aimer toi, les 21 grues)  
+Logo du Meilisme  
+(Symbole, drapeau)  
 
-Logo de la vie (Univers) ou du Meilisme.
-C’est la 1ère de couverture de mon livre sans les drapeaux.
-C’est le rectangle arrondi avec le chêne bonsaï (Univers) dans une bulle entourée de 4 ying yang avec la lumière vers le haut. Le chêne est dans une pente qui signifie l’ascension ou l’évolution avec une fleur de genêt (lumière) et un tronc mort (ombre) qui sont les 2 petits ronds dans la virgule du ying yang.
+Logo de la vie (Univers) ou du Meilisme.  
+C’est la 1ère de couverture de mon livre sans les drapeaux.  
+C’est le rectangle arrondi avec le chêne bonsaï (Univers) dans une bulle entourée de 4 ying yang avec la lumière vers le haut. Le chêne est dans une pente qui signifie l’ascension ou l’évolution avec une fleur de genêt (lumière) et un tronc mort (ombre) qui sont les 2 petits ronds dans la virgule du ying yang.  
 
-Le chêne a les branches qui remontent sur les côtés comme les toits chinois pour signifier l’esprit fraternel qui va vers la lumière.
-Le genêt (arbuste) ressemble au mot genèse qui est l’origine et le commencement. Il dépasse du sol car c’est la lumière.
-Le tronc mort ne dépasse pas de la pente par rapport à l’angle de vue pour signifier que la lumière qui monte n’est plus atteint par l’ombre.
-Le tronc du chêne qui zigzague signifie le mouvement de la vie.
+Le chêne a les branches qui remontent sur les côtés comme les toits chinois pour signifier l’esprit fraternel qui va vers la lumière.  
+Le genêt (arbuste) ressemble au mot genèse qui est l’origine et le commencement. Il dépasse du sol car c’est la lumière.  
+Le tronc mort ne dépasse pas de la pente par rapport à l’angle de vue pour signifier que la lumière qui monte n’est plus atteint par l’ombre.  
+Le tronc du chêne qui zigzague signifie le mouvement de la vie.  
 
-Je n’ai pas pris en compte le féminin et le masculin du ying yang, seulement le principe ombre et lumière (négatif/positif, mensonge/vérité, bas/haut) parce que je ne mets pas le féminin en dessous du masculin.
+Je n’ai pas pris en compte le féminin et le masculin du ying yang, seulement le principe ombre et lumière (négatif/positif, mensonge/vérité, bas/haut) parce que je ne mets pas le féminin en dessous du masculin.  
 
-Epilogue
+Epilogue  
 
-Soyons tous empereur de nous-mêmes, pas sur les autres mais pour augmenter sa conscience, partager les vérités et pour organiser nos pensées, paroles et actions pour la meilleure harmonie de tous.
+Soyons tous empereur de nous-mêmes, pas sur les autres mais pour augmenter sa conscience, partager les vérités et pour organiser nos pensées, paroles et actions pour la meilleure harmonie de tous.  
 
-La vérité est plus incroyable que ce que l’on croit savoir.
-Vous pouvez douter mais ne rejeter pas sans preuves.
-Vérifier aussi ce qui vous semble improbable.
-Arrêtez de vous faire programmer, chercher et rejoignez les vérités et l’amour.
-La richesse du plus riche qui n’est pas dans l’amour le rendra plus pauvre dans une future vie.
-Le partage positif de la richesse de tout ce qui existe et la gratuité nous rend tous plus riche que tous les plus riches qui ont de l’argent.
+La vérité est plus incroyable que ce que l’on croit savoir.  
+Vous pouvez douter mais ne rejeter pas sans preuves.  
+Vérifier aussi ce qui vous semble improbable.  
+Arrêtez de vous faire programmer, chercher et rejoignez les vérités et l’amour.  
+La richesse du plus riche qui n’est pas dans l’amour le rendra plus pauvre dans une future vie.  
+Le partage positif de la richesse de tout ce qui existe et la gratuité nous rend tous plus riche que tous les plus riches qui ont de l’argent.  
 
-Sauvons notre futur.
-Sauvons notre présent.
-Sauvons notre passé.
+Sauvons notre futur.  
+Sauvons notre présent.  
+Sauvons notre passé.  
 
-Merci à toutes les personnes et à toutes les consciences qui œuvrent pour le bien et pour toutes les beautés qui existent.
-
-
-L’aventure continue
-
-Au Paradis
-
-Le duo des merveilles
-
-Volons au paradis en tournoyant dans les éléments, dans la puissante richesse de la nature.
-Partons au lever du soleil au-dessus des pics voir s’élever la brume,
-où la nature se déshabille pour étaler sa beauté secrète.
-La splendeur sur les chemins brille en arcs en ciel de bonheur de la symphonie de la vie. 
-Princesse suprême, rejoins mon jardin légendaire du dragon céleste, avec moi, ta vie sera au-delà du réel.
-Montons sur les bras de l’épicéa, dans un cocon d’union à la perfection.
-Dans les branches étoilées de l’empereur du jardin, l’éclat de lumière du soleil rebondit dans le miroir de l’eau jusqu’à nos yeux illuminés.
-Entre ciel et terre, la réunion de Kung-fu volant aguichant est séduisante. 
-Ensuite, se rafraichîr dans l’écume de la chute d’eau, sur les cailloux et gravières au milieu de douces mousses et fleurs.
-S’asseoir ensuite en pose détente sous le toit à la chinoise en admirant le divin jardin.
-La nuit, je dors à côté de mon étoile qui scintille dans mon cœur.
-
-Sylvain Meili (28 septembre 2023 : n°34)
-
-L’or impérial
-
-L’or est la lumière dans la dureté.
-
-La sagesse est d’or.
-L’or brille comme l’éternel trésor.
-Il sert à décorer et fabriquer des objets et des machines.
-Malléable comme une feuille fine.
-Si l’or est bien utilisé, 
-il est la grandeur incarnée, 
-sinon c’est l’or qui ment, qui fait choir, 
-une duperie illusoire.
-
-L’ornement est la vérité de l’éminente élévation de l’équilibre.
-C’est l’empereur des métaux.
-
-Sylvain Meili (7 juin 2024 : n°35)
+Merci à toutes les personnes et à toutes les consciences qui œuvrent pour le bien et pour toutes les beautés qui existent.  
 
 
-Le dragon Chinois
+L’aventure continue  
 
-Le grand dragon est la Chine dont chaque personne est une écaille.
-Le rôle de l’empereur est de les faire briller toutes, placées de la façon la plus harmonieuse. 
-Il est symbolisé dans la légendaire muraille de l’empire du milieu.
-L’esprit du dragon Chinois passe à travers les dimensions, il nous fait parfois un signe en paréidolie dans la forme d’un arbre ou d’un nuage.
-Le dragon danse dans les cieux et danse dans l’art déguisé acrobatique des artistes.
-Il vole en cerfs-volants.
-Il est une décoration de divers objets, sur les toits antiques, autour de colonnes, de ponts et le long de chemins montant dans les pics de montagne.
+Au Paradis  
 
-Sylvain Meili (7 juin 2024 : n°36)
+Le duo des merveilles  
 
-Poèmes chansons
+Volons au paradis en tournoyant dans les éléments, dans la puissante richesse de la nature.  
+Partons au lever du soleil au-dessus des pics voir s’élever la brume,  
+où la nature se déshabille pour étaler sa beauté secrète.  
+La splendeur sur les chemins brille en arcs en ciel de bonheur de la symphonie de la vie.  
+Princesse suprême, rejoins mon jardin légendaire du dragon céleste, avec moi, ta vie sera au-delà du réel.  
+Montons sur les bras de l’épicéa, dans un cocon d’union à la perfection.  
+Dans les branches étoilées de l’empereur du jardin, l’éclat de lumière du soleil rebondit dans le miroir de l’eau jusqu’à nos yeux illuminés.  
+Entre ciel et terre, la réunion de Kung-fu volant aguichant est séduisante.  
+Ensuite, se rafraichîr dans l’écume de la chute d’eau, sur les cailloux et gravières au milieu de douces mousses et fleurs.  
+S’asseoir ensuite en pose détente sous le toit à la chinoise en admirant le divin jardin.  
+La nuit, je dors à côté de mon étoile qui scintille dans mon cœur.  
 
-Hymne de la victoire de la Terre
-Libertés d’un monde meilleur
+Sylvain Meili (28 septembre 2023 : n°34)  
 
-C’est les libertés d’un monde meilleur.
-Dans les changements épiques, des gens courageux, des trouveurs de secrets et de miracles ont bravé la pensée générale pour les amener au sommet.
-Pour libérer les inconscients qui tombent et tournent en rond.
-Aidé par nos amis de l’univers.
-Le lourd pouvoir éphémère s’en va, et vient de plus en plus la bienveillance des sages.
-Des inventeurs de nouvelles idées pour les élever tous dans la vraie richesse.
-La diversité partagée de toutes les bonnes choses, les arts, les loisirs, les connaissances, de la sagesse auprès de la nature restaurée.
-La lumière revient.
-Le bien et la vérité est rétablit.
-Revenir vers la douce source.
-Chacun sa place pour l’harmonie.
-Les grands rêves deviennent réalité.
-Reconnaissances et gratitudes pour toutes les belles choses de la vie.
+L’or impérial  
 
-Sylvain Meili (7 juin 2024 : n°37)
+L’or est la lumière dans la dureté.  
 
-Vacances utopiques au jardin
+La sagesse est d’or.  
+L’or brille comme l’éternel trésor.  
+Il sert à décorer et fabriquer des objets et des machines.  
+Malléable comme une feuille fine.  
+Si l’or est bien utilisé,  
+il est la grandeur incarnée,  
+sinon c’est l’or qui ment, qui fait choir,  
+une duperie illusoire.  
 
-Chaque matin, je me lève au jardin des grandeurs,
-où la vie m’englobe, cette vie que j’admire.
-La montagne est magique quand les sages l’habite,
-et que la beauté céleste est à mes côtés.
-L’eau chantonne et déverse ses bulles de bonheur,
-au milieu où se rassemble le meilleur.
-Les éclats du prodige aux talents façonneurs,
-sont le retour célébré de la nature.
-Tous les jours sont la parade d’un monde,
-on n’est pas seul, on est tranquille.
-Des petits coins de douceurs aux diverses saveurs, 
-une pose pour une ambiance. 
-A la fin de la journée,
-l’animation de nuit de la nature continue.
+L’ornement est la vérité de l’éminente élévation de l’équilibre.  
+C’est l’empereur des métaux.  
 
-Sylvain Meili (12 octobre 2024 : n°38)
+Sylvain Meili (7 juin 2024 : n°35)  
 
-Le monde fantastique enchanté
 
-Au-delà de la brume et plus fort que la nuit, 
-s'ouvre la grandeur des secrets pour sublimer le jour. 
-L'appel des coeurs à la symphonie de la vertu, 
-pour traverser les chemins vers le sublime. 
-Au détour du divin qui nous invite à la joie, 
-ce monde éblouissant à la nature de légende.
-Le beau et les belles compagnies,
-sont un défilement porté par l’enchantement.
-On se sent léger, 
-au milieu des belles pensées.
-Plongé dans l’élégance,
-de l’excellence.
-C’est l’harmonie de formes créées,
-par les esprits les plus éclairés.
+Le dragon Chinois  
 
-Sylvain Meili (19 décembre 2024 : n°39)
+Le grand dragon est la Chine dont chaque personne est une écaille.  
+Le rôle de l’empereur est de les faire briller toutes, placées de la façon la plus harmonieuse.  
+Il est symbolisé dans la légendaire muraille de l’empire du milieu.  
+L’esprit du dragon Chinois passe à travers les dimensions, il nous fait parfois un signe en paréidolie dans la forme d’un arbre ou d’un nuage.  
+Le dragon danse dans les cieux et danse dans l’art déguisé acrobatique des artistes.  
+Il vole en cerfs-volants.  
+Il est une décoration de divers objets, sur les toits antiques, autour de colonnes, de ponts et le long de chemins montant dans les pics de montagne.  
 
-La beauté magique
+Sylvain Meili (7 juin 2024 : n°36)  
 
-L’aventure est chatoyance,
-avec ses charmantes lumières de réjouissance.
-C’est l’ascension surnaturelle,
-qui nous plonge dans ses merveilles.
-Ses mystères et ses superbes courbes m’anime,
-me fait sauter du haut des cimes.
-Ses belles profondeurs joliment décorées,
-me fait entrer dans des sensations passionnées.
-Sources cristallines et écumes argentées,
-douceurs, délices et vélocités.
-Elle accompagne ma vie,
-pour me parsemer d’émotions assouvies.
-Ensemble pour élaborer les habits,
-du futur de nos cœurs ébahis.
-Dévoile-moi tous tes beaux secrets,
-et ça sera parfait.
-Elle est si belle et magnifique,
-la montagne magique.
+Poèmes chansons  
 
-Sylvain Meili (3 février 2025 : n°40)
+Hymne de la victoire de la Terre  
+Libertés d’un monde meilleur  
 
-La montagne magique
+C’est les libertés d’un monde meilleur.  
+Dans les changements épiques, des gens courageux, des trouveurs de secrets et de miracles ont bravé la pensée générale pour les amener au sommet.  
+Pour libérer les inconscients qui tombent et tournent en rond.  
+Aidé par nos amis de l’univers.  
+Le lourd pouvoir éphémère s’en va, et vient de plus en plus la bienveillance des sages.  
+Des inventeurs de nouvelles idées pour les élever tous dans la vraie richesse.  
+La diversité partagée de toutes les bonnes choses, les arts, les loisirs, les connaissances, de la sagesse auprès de la nature restaurée.  
+La lumière revient.  
+Le bien et la vérité est rétablit.  
+Revenir vers la douce source.  
+Chacun sa place pour l’harmonie.  
+Les grands rêves deviennent réalité.  
+Reconnaissances et gratitudes pour toutes les belles choses de la vie.  
 
-(Titre de fin : poème à double titre...)
-Je parle dans ce poème de la femme et de la montagne en même temps.
+Sylvain Meili (7 juin 2024 : n°37)  
 
-Nos amis de l’univers
+Vacances utopiques au jardin  
 
-Vers la fraternité des planètes unies.
-L’espoir de voir la nuit qui tombe pour surgir dans la lumière.
-Au carrefour des croyances illusoires qui s’agitent au refus de voir l’évidence.
-A l’espoir qui sommeille pour transcender dans la symphonie des héros.
-Les éclats des combats obligés deviennent les éclats de la fête qui s’agite dans nos cœurs, la basse brume devient des ailes accomplies.
-C’est la victoire avec nos amis de l’univers.
-L’amitié grandit.
+Chaque matin, je me lève au jardin des grandeurs,  
+où la vie m’englobe, cette vie que j’admire.  
+La montagne est magique quand les sages l’habite,  
+et que la beauté céleste est à mes côtés.  
+L’eau chantonne et déverse ses bulles de bonheur,  
+au milieu où se rassemble le meilleur.  
+Les éclats du prodige aux talents façonneurs,  
+sont le retour célébré de la nature.  
+Tous les jours sont la parade d’un monde,  
+on n’est pas seul, on est tranquille.  
+Des petits coins de douceurs aux diverses saveurs,  
+une pose pour une ambiance.  
+A la fin de la journée,  
+l’animation de nuit de la nature continue.  
 
-Sylvain Meili (1 novembre 2025 : n°41)
+Sylvain Meili (12 octobre 2024 : n°38)  
 
-Les facettes de la poésie
+Le monde fantastique enchanté  
+
+Au-delà de la brume et plus fort que la nuit,   
+s'ouvre la grandeur des secrets pour sublimer le jour.  
+L'appel des coeurs à la symphonie de la vertu,  
+pour traverser les chemins vers le sublime.  
+Au détour du divin qui nous invite à la joie,  
+ce monde éblouissant à la nature de légende.  
+Le beau et les belles compagnies,  
+sont un défilement porté par l’enchantement.  
+On se sent léger,   
+au milieu des belles pensées.  
+Plongé dans l’élégance,  
+de l’excellence.  
+C’est l’harmonie de formes créées,  
+par les esprits les plus éclairés.  
+
+Sylvain Meili (19 décembre 2024 : n°39)  
+
+La beauté magique  
+
+L’aventure est chatoyance,  
+avec ses charmantes lumières de réjouissance.  
+C’est l’ascension surnaturelle,  
+qui nous plonge dans ses merveilles.  
+Ses mystères et ses superbes courbes m’anime,  
+me fait sauter du haut des cimes.  
+Ses belles profondeurs joliment décorées,  
+me fait entrer dans des sensations passionnées.  
+Sources cristallines et écumes argentées,  
+douceurs, délices et vélocités.  
+Elle accompagne ma vie,  
+pour me parsemer d’émotions assouvies.  
+Ensemble pour élaborer les habits,  
+du futur de nos cœurs ébahis.  
+Dévoile-moi tous tes beaux secrets,  
+et ça sera parfait.  
+Elle est si belle et magnifique,  
+la montagne magique.  
+
+Sylvain Meili (3 février 2025 : n°40)  
+
+La montagne magique  
+
+(Titre de fin : poème à double titre...)  
+Je parle dans ce poème de la femme et de la montagne en même temps.  
+
+Nos amis de l’univers  
+
+Vers la fraternité des planètes unies.  
+L’espoir de voir la nuit qui tombe pour surgir dans la lumière.  
+Au carrefour des croyances illusoires qui s’agitent au refus de voir l’évidence.  
+A l’espoir qui sommeille pour transcender dans la symphonie des héros.  
+Les éclats des combats obligés deviennent les éclats de la fête qui s’agite dans nos cœurs, la basse brume devient des ailes accomplies.  
+C’est la victoire avec nos amis de l’univers.  
+L’amitié grandit.  
+
+Sylvain Meili (1 novembre 2025 : n°41)  
+
+Les facettes de la poésie  
 	
-Un merveilleux poème est 
-le chemin de l’inspiration sensuelle.
-une goutte vibrante dans la pétillante cascade. 
-une fleur flottante sur l’eau cristalline. 
-un pétale dans le vent.
-un bonsaï de grâces dans ses méandres de vigueur.
-une feuille craquante d’automne. 
-l’unisson des notes lévitant dans l’extase musicale.
-la bougie de l’aspiration cosmique des mondes.
-la touche déguisée jouant dans ses métamorphoses éternelles.
+Un merveilleux poème est  
+le chemin de l’inspiration sensuelle.  
+une goutte vibrante dans la pétillante cascade.  
+une fleur flottante sur l’eau cristalline.  
+un pétale dans le vent.  
+un bonsaï de grâces dans ses méandres de vigueur.  
+une feuille craquante d’automne.  
+l’unisson des notes lévitant dans l’extase musicale.  
+la bougie de l’aspiration cosmique des mondes.  
+la touche déguisée jouant dans ses métamorphoses éternelles.  
 
-Sylvain Meili (1 novembre 2025 : n°42)
+Sylvain Meili (1 novembre 2025 : n°42)  
 
-L’exploration cosmique
+L’exploration cosmique  
 
-La flotte spatiale de la Terre, alliée de la fédération galactique.
-Explorant entre les scintillements des étoiles mystérieuses.
-Echangeant leurs cultures dans l’enrichissement réciproque.
-Le vaisseau saute de planète en planète comme des bulles de pensées d’étonnements et d’admirations.
-Certains mondes sont hostiles à la vie et paraissent vides, d’autres sont attrayants ou remplis de vie encore primaire.
-Armer ses vaisseaux est la touche de sureté dans la découverte vers l’inconnu.
-Des pirates de l’espace peuvent surgir ou d’autres peuvent démarrer les hostilités pour intrusion sur leur espace acquis.
-L’engagement vers le mystère amène aussi à la bienveillance des rencontres avec une nouvelle civilisation.
-Agrandir la fraternité, pas son empire, agrandir l’alliance pour la protection et la richesse mutuelle.
-Archiver les savoirs, les Cultures et les beautés.
-Glisser dans l’espace pour la prospérité du futur.
+La flotte spatiale de la Terre, alliée de la fédération galactique.  
+Explorant entre les scintillements des étoiles mystérieuses.  
+Echangeant leurs cultures dans l’enrichissement réciproque.  
+Le vaisseau saute de planète en planète comme des bulles de pensées d’étonnements et d’admirations.  
+Certains mondes sont hostiles à la vie et paraissent vides, d’autres sont attrayants ou remplis de vie encore primaire.  
+Armer ses vaisseaux est la touche de sureté dans la découverte vers l’inconnu.  
+Des pirates de l’espace peuvent surgir ou d’autres peuvent démarrer les hostilités pour intrusion sur leur espace acquis.  
+L’engagement vers le mystère amène aussi à la bienveillance des rencontres avec une nouvelle civilisation.  
+Agrandir la fraternité, pas son empire, agrandir l’alliance pour la protection et la richesse mutuelle.  
+Archiver les savoirs, les Cultures et les beautés.  
+Glisser dans l’espace pour la prospérité du futur.  
 
-Sylvain Meili (1 novembre 2025 : n°43)
-Pour Starfleet, pour toutes les consciences du multivers.
+Sylvain Meili (1 novembre 2025 : n°43)  
+Pour Starfleet, pour toutes les consciences du multivers.  
 
-L'infini cercle de la vie
+L'infini cercle de la vie  
 
-Je suis :
+Je suis :  
 la lumière dans l'étreinte du silence fulgurant du néant.  
-l'onde du chant, extase divine. 
-le bonsaï, enseignant de la vie. 
-l'indépendant traceur de mon avenir.
-le changement qui transcende la vie chamboulée. 
-le goûteur de mes 5 sens dans le grand mythe. 
-le créateur des richesses infinies.
-le collectionneur de toutes les beautés de l'existence.
+l'onde du chant, extase divine.  
+le bonsaï, enseignant de la vie.  
+l'indépendant traceur de mon avenir.  
+le changement qui transcende la vie chamboulée.  
+le goûteur de mes 5 sens dans le grand mythe.  
+le créateur des richesses infinies.  
+le collectionneur de toutes les beautés de l'existence.  
 
-Les passions, exaltées par les surprises de la vie, tournoient en de nouvelles constellations d'histoires.
+Les passions, exaltées par les surprises de la vie, tournoient en de nouvelles constellations d'histoires.  
 
-Sylvain Meili (8 novembre 2025 : n°44)
+Sylvain Meili (8 novembre 2025 : n°44)  
 
-L’empereur de chine au paradis central
+L’empereur de chine au paradis central  
 
-J’apporte mes idées.
-1121 proverbes intemporels,
-75 poèmes codés et plus pour améliorer le ciel.
-le jardin Genyue de la beauté.
+J’apporte mes idées.  
+1121 proverbes intemporels,  
+75 poèmes codés et plus pour améliorer le ciel.  
+le jardin Genyue de la beauté.  
 
-La toupie éternelle des dragons impériaux asiatiques voyageurs,
-célèbre tous les anciens combats.
-Je contrôle enfin l’ombre comme un ninja.
-Mes pensées lévitant dans la maîtrise de l’esprit intérieur.
+La toupie éternelle des dragons impériaux asiatiques voyageurs,  
+célèbre tous les anciens combats.  
+Je contrôle enfin l’ombre comme un ninja.  
+Mes pensées lévitant dans la maîtrise de l’esprit intérieur.  
 
-Comme un nuage à bulles de pensées,
-je savoure la glace sous les rayons de la lumière.
-A mes côtés, l’impératrice en tenue légère,
-dans ces belles pauses du goûter, les fraîcheurs vanilles et chocolats sont savourées.  
+Comme un nuage à bulles de pensées,  
+je savoure la glace sous les rayons de la lumière.  
+A mes côtés, l’impératrice en tenue légère,  
+dans ces belles pauses du goûter, les fraîcheurs vanilles et chocolats sont savourées.    
 
-Si je suis au paradis local, j’envoie un émissaire.
-Si j’arrive un jour au paradis central, je présente mes sollicitations.
-Un lecteur céleste inspiré de mes idées captera peut-être l’admission.
-Sauver le plus de consciences avant qu’une ne se perde pour l’éternité, c’est ce qu’il faut faire. 
+Si je suis au paradis local, j’envoie un émissaire.  
+Si j’arrive un jour au paradis central, je présente mes sollicitations.  
+Un lecteur céleste inspiré de mes idées captera peut-être l’admission.  
+Sauver le plus de consciences avant qu’une ne se perde pour l’éternité, c’est ce qu’il faut faire.  
 
-La montagne de proverbes, sera-t-elle assez haute pour réformer les univers ?
+La montagne de proverbes, sera-t-elle assez haute pour réformer les univers ?  
 
-Sylvain Meili (9 novembre 2025 : n°45)
+Sylvain Meili (9 novembre 2025 : n°45)  
 
-Le spectacle alchimique impérial
+Le spectacle alchimique impérial  
 
-Je suis : 
+Je suis :  
 
 le tonnerre rouge des sceaux qui saute la haie.  
-le chatouilleur agitant la danse du drôle sautilleur.
+le chatouilleur agitant la danse du drôle sautilleur.  
 le météore du chaînon d'or.  
-le grand empereur des roches de fleurs de pierres. 
-l’extase en bulles de nuages. 
-la brume qui se protège.
-la beauté salvatrice arroseuse, lustrant la pierre.
+le grand empereur des roches de fleurs de pierres.  
+l’extase en bulles de nuages.  
+la brume qui se protège.  
+la beauté salvatrice arroseuse, lustrant la pierre.  
 
-aussi la paréidolie dans le miroir du fou,
-l'illusion qui n'est pas dans son monde.
+aussi la paréidolie dans le miroir du fou,  
+l'illusion qui n'est pas dans son monde.  
 
-Je suis un temps, 
-au-delà des vérités des bornés, coincés en herbes molles.
+Je suis un temps,  
+au-delà des vérités des bornés, coincés en herbes molles.  
 
-Je suis : 
-la revanche, en étincelles de génies.
+Je suis :  
+la revanche, en étincelles de génies.  
 l’artificier du changement cosmique.  
 le découvreur d’écumes magiques.  
 la perle de l’écho frémissant de l’absurde.  
-l'ombre pleine invisible.
+l'ombre pleine invisible.  
 
-Je suis l'alchimiste qui joue avec le petit chat, aguiché par mes agissements, 
-et le monde est jeu de séduction.
+Je suis l'alchimiste qui joue avec le petit chat, aguiché par mes agissements,  
+et le monde est jeu de séduction.  
 
-Sylvain Meili (10 novembre 2025 : n°46)
+Sylvain Meili (10 novembre 2025 : n°46)  
 
 9  poèmes codés
 sous chapitre : la dynastie Song
