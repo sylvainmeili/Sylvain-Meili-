@@ -1677,346 +1677,346 @@ L’ensemble ultime des 5 jardins superposés ou plus sont un ensemble de jardin
 
 Les plus belles montagnes sont en Chine.  
 
-383
-Le jardin parfait ne peut se séparer de sa montagne
+383  
+Le jardin parfait ne peut se séparer de sa montagne  
 
-Les ingrédients sont : 
-l’eau
-la terre
-les minéraux
-les végétaux
-les animaux
+Les ingrédients sont :  
+l’eau  
+la terre  
+les minéraux  
+les végétaux  
+les animaux  
 
-Un homme et une femme qui contemplent.
+Un homme et une femme qui contemplent.  
 
-Aussi quatre saisons.
+Aussi quatre saisons.  
 
-Le jardin nous emmène à son étang d’eau limpide qui reflète la montagne parsemée de falaises, de rochers, de pics et verdoyante d’arbres, puis son ruisselet rejoint le ruisseau aux pierres multicolores. 
-Il est composé de nénuphars blancs, de rochers blancs, des ponts arqués de bois et de pierres au milieu des plans d’eau, un magnifique pin tortueux, un hêtre tortillard. 
-Une île au milieu représentant un minuscule paysage de jardin et de montagnes comme une maquette.
+Le jardin nous emmène à son étang d’eau limpide qui reflète la montagne parsemée de falaises, de rochers, de pics et verdoyante d’arbres, puis son ruisselet rejoint le ruisseau aux pierres multicolores.  
+Il est composé de nénuphars blancs, de rochers blancs, des ponts arqués de bois et de pierres au milieu des plans d’eau, un magnifique pin tortueux, un hêtre tortillard.  
+Une île au milieu représentant un minuscule paysage de jardin et de montagnes comme une maquette.  
 Sous l’eau, un jardin aquatique de petites montagnes est aussi à découvrir avec des rochers, pierres, cailloux et graviers colorés.
 Quelques plantes sont un peu disséminées dans ce décor miniature.  
-A l’hiver, l’étang se pare de fleurs de glace, fils et bulles de glace, disques et palets de glace, des nuages de bulles de glace qui reflètent au-dessus les grandes pierres déposées au fond. 
-La grenouille anime la mare d’un concert.
-La chute d’eau joue de sa douce mélodie.
-Les oiseaux chantent sur le cerisier rose de fleurs.
-Le roseau danse au grès du vent.
-Le plus beau poisson qu’est la truite fario est là dans l’eau cristalline, le héron et le martin pécheur l’admire sur leur perchoir.
-Le tapis de mousse étale sa douceur.
-L’humidité côtoie le sec.
-Les lézards se réchauffent sur les rocailles.
-Un chat tigré se ballade.
-Un gros arbre mort appelle le pic.
-Les trous dans les arbres servent de gîte à une foule d’animaux.
-Les arbres et arbustes passent par toutes les couleurs des saisons et  donnent de la nourriture.
-Les fleurs attirent papillons et apportent gaîté.
-L’arbre multi centenaire ajoute sa force au paysage.
-Les bonsaïs nous offrent la grâce.
-Le saule pleureur déverse l’éclat de ses plongeons.
-Le houx décore l’hiver de ses fruits rouges.
-Le lierre de son vert toujours généreux au cœur de l’hiver.
-Les plantes grimpantes célèbrent leur mariage à l’arbre de leurs fleurs colorées.
-Les parfaits bambous se tiennent aux pieds d’une colline.
-La grotte est ornée de pierres précieuses sous la montagne.
-Un grand épicéa aux branches tombantes au sol permet de monter haut pour admirer la splendeur des lieux.
-Le chemin pavé s’accompagne de rochers dressés comme des fleurs de pierre qui nous promènent vers l’enchantement.
-Chaque pas nous mène à de nouveaux décors.
-Un petit pavillon de quatre colonnes rouges au toit d’or arqué de quatre faces vers le ciel au-dessus d’un long muret blanc décoré de poteaux et fenêtres au bord de l’eau nous permet de nous reposer devant ce festin de beauté.
+A l’hiver, l’étang se pare de fleurs de glace, fils et bulles de glace, disques et palets de glace, des nuages de bulles de glace qui reflètent au-dessus les grandes pierres déposées au fond.  
+La grenouille anime la mare d’un concert.  
+La chute d’eau joue de sa douce mélodie.  
+Les oiseaux chantent sur le cerisier rose de fleurs.  
+Le roseau danse au grès du vent.  
+Le plus beau poisson qu’est la truite fario est là dans l’eau cristalline, le héron et le martin pécheur l’admire sur leur perchoir.  
+Le tapis de mousse étale sa douceur.  
+L’humidité côtoie le sec.  
+Les lézards se réchauffent sur les rocailles.  
+Un chat tigré se ballade.  
+Un gros arbre mort appelle le pic.  
+Les trous dans les arbres servent de gîte à une foule d’animaux.  
+Les arbres et arbustes passent par toutes les couleurs des saisons et donnent de la nourriture.  
+Les fleurs attirent papillons et apportent gaîté.  
+L’arbre multi centenaire ajoute sa force au paysage.  
+Les bonsaïs nous offrent la grâce.  
+Le saule pleureur déverse l’éclat de ses plongeons.  
+Le houx décore l’hiver de ses fruits rouges.  
+Le lierre de son vert toujours généreux au cœur de l’hiver.  
+Les plantes grimpantes célèbrent leur mariage à l’arbre de leurs fleurs colorées.  
+Les parfaits bambous se tiennent aux pieds d’une colline.  
+La grotte est ornée de pierres précieuses sous la montagne.  
+Un grand épicéa aux branches tombantes au sol permet de monter haut pour admirer la splendeur des lieux.  
+Le chemin pavé s’accompagne de rochers dressés comme des fleurs de pierre qui nous promènent vers l’enchantement.  
+Chaque pas nous mène à de nouveaux décors.  
+Un petit pavillon de quatre colonnes rouges au toit d’or arqué de quatre faces vers le ciel au-dessus d’un long muret blanc décoré de poteaux et fenêtres au bord de l’eau nous permet de nous reposer devant ce festin de beauté.  
 
-Sylvain Meili (2014 : n°8)
+Sylvain Meili (2014 : n°8)  
 
-384
-Il est injuste d’empêcher ou de détruire une chose bonne ou positive  à cause de la condamnation du créateur, d’un collègue ou d’une victime.
-Il est injuste de bloquer quelqu’un sans dire pourquoi quand le droit de savoir est légitime, on doir pouvoir citer les autres quand cela est bénéfique pour expliquer et pour les autres.
-385
-Il faut toujours avoir un mouchoir dans sa poche.
-386
-Il y a ceux qui font trop de bruit la nuit et ceux qui se plaignent pour seulement un peu de bruit le jour.
-Pour dire des choses déplaisantes à ses voisins d’immeubles à cause du bruit ; quand on n’ose pas, d’abord envoyer un mot dans la boîte aux lettres ou parler directement au lieu d’appeler la police.
-387
-Dans la vie plusieurs solutions peuvent avoir la même valeur.
-388
-L’amour est le commencement et l’infini, la connaissance est l’outil, l’expérimentation et le plaisir dans le mouvement est le but.
-389
-Si quelqu’un disait toute la vérité que l’on ne sait pas encore à l’humanité, beaucoup le prendrait pour un fou.
-390
-Si on ne dit pas certaines bonnes actions, on ne peut pas montrer l’exemple aux autres pour les convaincre d’améliorer le monde.
-391
-Changer soi-même, c’est déjà changer un peu le monde.
-392
-On peut avoir un visage de bonne humeur mais être énervé de l’intérieur.
-393
-Le mieux n’est pas d’être dans le plus beau des villages mais d’être dans le village dans le plus beau paysage.
-394
-Pour vaincre la timidité de ton enfant, donne-lui une récompense pour motiver ses efforts.
-395
-Pour être moins timide, cherche en toi des qualités à développer pour te sentir plus fort.
-396
-Les proverbes sont comme des perles et les meilleures à enfiler te donneront un collier pour te magnifier.
-397
-Celui qui sert le mal est tôt ou tard trahit par ses semblables.
-398
-Dès que l’idiot n’est pas d’accord, il te traite d’idiot mais ce n’est pas parce que tu ne penses pas pareil que tu es idiot, alors il s’énerve en te disant que tu dis des conneries alors que tu parles calmement et respectueusement.
-Le programmé te rejette la faute alors qu’il fait pareil sur des choses comparables.
-Exemple : quelqu’un mets des critères de taille pour être en couple, l’autre lui dit, et si je mets des critères de poids, la réponse est que tu est grossophobe, une mauvaise personne alors que l’autre fait pareil avec la taille en disant que c’est moins pire, sauf que la taille est fixe mais un gros peut maigrir sauf les extrêmes gros qui peuvent avoir un excès de peau même en ayant perdu toute leur graisses.
-Même en leur expliquant, ils continuent leur hypocrisie ou dissonance cognitive, c’est le syndrome d’une conscience de ruche.
-On a le droit d’avoir des goûts et des préférences, si on ne veut pas d’une certaine catégorie physique, c’est notre liberté.
-399
-Je veux le meilleur de la nature dans mon jardin et la meilleure technologie dans ma maison si elle est recyclable.
-400
-Être trop nombreux, c’est moins d’espace pour chacun et plus de destruction de la nature.
-401
-Le savoir est fait pour être partagé sauf que certaines technologies ne doivent pas être données à des gens dangereux.
-402
-Les proverbes c’est comme la peinture, soit ça ressemble à quelque chose, soit ça ne ressemble à rien comme la peinture abstraite.
-403
-Tu écris sur l’arbre et l’arbre s’écrie de dégoûts.
-404
+384  
+Il est injuste d’empêcher ou de détruire une chose bonne ou positive  à cause de la condamnation du créateur, d’un collègue ou d’une victime.  
+Il est injuste de bloquer quelqu’un sans dire pourquoi quand le droit de savoir est légitime, on doit pouvoir citer les autres quand cela est bénéfique pour expliquer et pour les autres.  
+385  
+Il faut toujours avoir un mouchoir dans sa poche.  
+386  
+Il y a ceux qui font trop de bruit la nuit et ceux qui se plaignent pour seulement un peu de bruit le jour.  
+Pour dire des choses déplaisantes à ses voisins d’immeubles à cause du bruit ; quand on n’ose pas, d’abord envoyer un mot dans la boîte aux lettres ou parler directement au lieu d’appeler la police.  
+387  
+Dans la vie plusieurs solutions peuvent avoir la même valeur.  
+388  
+L’amour est le commencement et l’infini, la connaissance est l’outil, l’expérimentation et le plaisir dans le mouvement est le but.  
+389  
+Si quelqu’un disait toute la vérité que l’on ne sait pas encore à l’humanité, beaucoup le prendrait pour un fou.  
+390  
+Si on ne dit pas certaines bonnes actions, on ne peut pas montrer l’exemple aux autres pour les convaincre d’améliorer le monde.  
+391  
+Changer soi-même, c’est déjà changer un peu le monde.  
+392  
+On peut avoir un visage de bonne humeur mais être énervé de l’intérieur.  
+393  
+Le mieux n’est pas d’être dans le plus beau des villages mais d’être dans le village dans le plus beau paysage.  
+394  
+Pour vaincre la timidité de ton enfant, donne-lui une récompense pour motiver ses efforts.  
+395  
+Pour être moins timide, cherche en toi des qualités à développer pour te sentir plus fort.  
+396  
+Les proverbes sont comme des perles et les meilleures à enfiler te donneront un collier pour te magnifier.  
+397  
+Celui qui sert le mal est tôt ou tard trahit par ses semblables.  
+398  
+Dès que l’idiot n’est pas d’accord, il te traite d’idiot mais ce n’est pas parce que tu ne penses pas pareil que tu es idiot, alors il s’énerve en te disant que tu dis des conneries alors que tu parles calmement et respectueusement.  
+Le programmé te rejette la faute alors qu’il fait pareil sur des choses comparables.  
+Exemple : quelqu’un mets des critères de taille pour être en couple, l’autre lui dit, et si je mets des critères de poids, la réponse est que tu est grossophobe, une mauvaise personne alors que l’autre fait pareil avec la taille en disant que c’est moins pire, sauf que la taille est fixe mais un gros peut maigrir sauf les extrêmes gros qui peuvent avoir un excès de peau même en ayant perdu toute leur graisses.  
+Même en leur expliquant, ils continuent leur hypocrisie ou dissonance cognitive, c’est le syndrome d’une conscience de ruche.  
+On a le droit d’avoir des goûts et des préférences, si on ne veut pas d’une certaine catégorie physique, c’est notre liberté.  
+399  
+Je veux le meilleur de la nature dans mon jardin et la meilleure technologie dans ma maison si elle est recyclable.  
+400  
+Être trop nombreux, c’est moins d’espace pour chacun et plus de destruction de la nature.  
+401  
+Le savoir est fait pour être partagé sauf que certaines technologies ne doivent pas être données à des gens dangereux.  
+402  
+Les proverbes c’est comme la peinture, soit ça ressemble à quelque chose, soit ça ne ressemble à rien comme la peinture abstraite.  
+403  
+Tu écris sur l’arbre et l’arbre s’écrie de dégoûts.  
+404  
 Plante un épicéa au milieu d’un pré, surtout ne touche à rien pendant cent ans et plus, tu auras le plus bel arbre à grimper.
-Plantez-le dans toutes les communes de France.
-Chaque village doit avoir son épicéa à gravir, battez des records et soyez le village avec le plus âgé de ces vénérables d’acension. 
-405
-Le mal t’oblige à te coincer dans le vice pour que quand tu retournes dans le bien tu ne puisses pas le dénoncer sans être menacé par le chantage de tes propres fautes.
-406
-Ne rejette pas comme mensonge la vérité que tu ne veux pas admettre, si tu n’as pas la preuve que ce qu’il dit est faux alors cherche la vérité et un jour elle se révèlera peut-être à toi.
-407
+Plantez-le dans toutes les communes de France.  
+Chaque village doit avoir son épicéa à gravir, battez des records et soyez le village avec le plus âgé de ces vénérables d’ascension. 
+405  
+Le mal t’oblige à te coincer dans le vice pour que quand tu retournes dans le bien tu ne puisses pas le dénoncer sans être menacé par le chantage de tes propres fautes.  
+406  
+Ne rejette pas comme mensonge la vérité que tu ne veux pas admettre, si tu n’as pas la preuve que ce qu’il dit est faux alors cherche la vérité et un jour elle se révèlera peut-être à toi.  
+407  
 La place des morts ne doit pas prendre la place sur la vie, tu dois marquer la vie de tes bons actes et non de la grandeur de ta tombe. Je préfère être une glorieuse personne et ne pas avoir de sépulture car cela prend de la place pour rien sauf si la tombe a un intérêt archéologique et de sauvegarde culturelle.
-Si on veut faire honneur aux morts, il faut mettre sa photo de lui jeune, pas vieux ou alors les deux, car sa vrai apparence est jeune surtout qu’il  va rajeunir dans l’au-delà.
-Mettre une tombe à l’endroit de la mort de la personne défigure, artificialise et mite la nature, il y a des cimetières pour ça.
-408
-Quand tu pries le mort sur sa tombe, sache qu’il n’habite pas ici.
-409
-Je ne veux pas tuer un arbre pour faire vivre le cercueil de la tombe d’un mort. 
-410
-Le plus tranquille c’est d’être connu sans être reconnu.
-411
-Le risque du succès, c’est de dérouler le tapis rouge à son excès d’égo.
-412
-Ecrire sur les arbres, c’est l’égocentrisme, la bêtise et l’irrespect.
-413
-Pour que tes souhaits se réalisent plus facilement, n’utilises-pas la négation et croit à ton intention avec émotion en disant que tu l’as déjà dans le présent en remerciant dieu avec un état d’être dans la paix. Ne jamais dire je veux car vouloir n’est pas avoir ou être.
-Exemple : si tu ne veux pas travailler et avoir la paix avec les autres, il faut préciser en plus de vouloir être en bonne santé car attention si tu penses qu’il faudrait être malade pour ne pas travailler, quand on demande des choses à l’univers il peut passer par des choses détournées et négatives qui amènent à la demande donc il faut sécuriser sa demande avec d’autres souhaits.
+Si on veut faire honneur aux morts, il faut mettre sa photo de lui jeune, pas vieux ou alors les deux, car sa vrai apparence est jeune surtout qu’il  va rajeunir dans l’au-delà.  
+Mettre une tombe à l’endroit de la mort de la personne défigure, artificialise et mite la nature, il y a des cimetières pour ça.  
+408  
+Quand tu pries le mort sur sa tombe, sache qu’il n’habite pas ici.  
+409  
+Je ne veux pas tuer un arbre pour faire vivre le cercueil de la tombe d’un mort.  
+410  
+Le plus tranquille c’est d’être connu sans être reconnu.  
+411  
+Le risque du succès, c’est de dérouler le tapis rouge à son excès d’égo.  
+412  
+Écrire sur les arbres, c’est l’égocentrisme, la bêtise et l’irrespect.  
+413  
+Pour que tes souhaits se réalisent plus facilement, n’utilises-pas la négation et croit à ton intention avec émotion en disant que tu l’as déjà dans le présent en remerciant dieu avec un état d’être dans la paix. Ne jamais dire je veux car vouloir n’est pas avoir ou être.  
+Exemple : si tu ne veux pas travailler et avoir la paix avec les autres, il faut préciser en plus de vouloir être en bonne santé car attention si tu penses qu’il faudrait être malade pour ne pas travailler, quand on demande des choses à l’univers il peut passer par des choses détournées et négatives qui amènent à la demande donc il faut sécuriser sa demande avec d’autres souhaits.  
 Exemple : je veux qu’on s’occupe de moi, demander aussi être en bonne santé car sinon il se peut qu’on attrape une maladie pour qu’on s’occupe de soi.
-Dire je vais de mieux en mieux à chaque moment, chaque jour ou chaque instant pour sa santé.
-Pour prier, on peut le faire partout, ne pas obliger d’aller à l’église, on est libre, et ça marche autant. (Arrêter de détruire les églises parce que trop cher à réparer, car une solution peut venir des dizaines d’années après, il vaut mieux un chef d’œuvre en ruine que une nouvelle église ridicule).
-414
-Ce que tu ne peux pas faire dans la vie, fais-le dans les jeux vidéo sans corrompre ta conscience dans le mal réel.
-415
-Un beau poème est un pétale dans le vent.
-L’avenir dira où l’histoire l’emmènera.
-416
-C’est en creusant la vérité enfouie que l’on atteint des sommets.
-417
-Le chemin n’est pas vivre avec la nature ou avec la technologie, c’est de choisir ce que l’on désire avec le moins possible de conséquences négatives car il suffit de trouver les technologies qui pourront tout recycler mais pour ces deux choses là il faut passer par la paix totale.
-418
-Quand on n’a plus rien à se dire, il faut changer d’activité.
-419
-Lit
-Quand on dort à deux il est meilleur d’avoir deux lits côte à côte plutôt qu’un seul grand lit ensemble.
-Ne pas prendre un sommier à ras du sol car il développera de la moisissure, toujours surélever du sol,  mettre un carton sous le matelas diminuera plus l’humidité et la moisissure.
-420
-Nous devons tous contribuer à la société sauf si l’on vit en totale autarcie.
-421
-La mémoires des lieux ou endroits où des personnes on fait ou dit des choses peuvent influencer le comportement car on peut penser à qelquechose sans savoir que cela vient du lieu. 
-J’ai eu la même réaction une 2ème fois sur le même lieu malgrès que je l’ai dit à pleins d’endroits différents, ce genre de chose est arrivé 3 fois.
-Quand tu tagues un lieu, écris à la craie car ça s’efface à l’eau et écris des choses intelligentes, ça sera plus respectueux.
-422
-L’humour se nourrit des imperfections.
-423
-Le mal se nourrit de l’ignorance pour se répandre.
-424
-On peut être courageux pour certaines tâches et un lâche pour d’autres.
-425
-Pourquoi se maquiller pour un concours de beauté si c’est pour juger une fausse beauté ?
-426
-Il y a l’énervé méchant, l’énervé idiot et l’énervé de l’injustice.
-On peut être énervé à un contexte, pas parce qu’on est moins évolué mais par accumulation d’emmerdements alors que celui qui subit le même contexte reste plus calme mais a subit moins d’accumulations de négativité dans sa vie.
-Dire que l’on est plus évolué n’est pas objectif sans connaître les circonstances.
-Celui qui prouve qu’un système ne marche pas est l’énervé de l’injustice, pas les deux autres, on prouve par évolution pas par manque d’évolution avec des arguments d’ignorants.
-427
-Tu peux provoquer quelqu’un dans sa psychologie pour qu’il te réponde et pour qu’il croit gagner de ses arguments mais ta prochaine attaque le mettra KO maintenant ou dans le futur.
-428
-Il n’est pas imbu de sa personne de vouloir devenir l’égal d’un autre aussi grand soit-il.
-429
-Il faut enseigner les meilleures réflexions, proverbes et devises le plus tôt possible.
-Être enfant n’est pas être innocent car la bêtise commence tôt.
-Dès l’école primaire, on devrait faire des tests avec des questions de philosophie avec des réponses à cocher, plus une ligne ou deux si il a envie de répondre autre chose en plus.
+Dire je vais de mieux en mieux à chaque moment, chaque jour ou chaque instant pour sa santé.  
+Pour prier, on peut le faire partout, ne pas obliger d’aller à l’église, on est libre, et ça marche autant. (Arrêter de détruire les églises parce que trop cher à réparer, car une solution peut venir des dizaines d’années après, il vaut mieux un chef d’œuvre en ruine que une nouvelle église ridicule).  
+414  
+Ce que tu ne peux pas faire dans la vie, fais-le dans les jeux vidéo sans corrompre ta conscience dans le mal réel.  
+415  
+Un beau poème est un pétale dans le vent.  
+L’avenir dira où l’histoire l’emmènera.  
+416  
+C’est en creusant la vérité enfouie que l’on atteint des sommets.  
+417  
+Le chemin n’est pas vivre avec la nature ou avec la technologie, c’est de choisir ce que l’on désire avec le moins possible de conséquences négatives car il suffit de trouver les technologies qui pourront tout recycler mais pour ces deux choses là il faut passer par la paix totale.  
+418  
+Quand on n’a plus rien à se dire, il faut changer d’activité.  
+419  
+Lit  
+Quand on dort à deux il est meilleur d’avoir deux lits côte à côte plutôt qu’un seul grand lit ensemble.  
+Ne pas prendre un sommier à ras du sol car il développera de la moisissure, toujours surélever du sol,  mettre un carton sous le matelas diminuera plus l’humidité et la moisissure.  
+420  
+Nous devons tous contribuer à la société sauf si l’on vit en totale autarcie.  
+421  
+La mémoires des lieux ou endroits où des personnes on fait ou dit des choses peuvent influencer le comportement car on peut penser à quelquechose sans savoir que cela vient du lieu.  
+J’ai eu la même réaction une 2ème fois sur le même lieu malgré que je l’ai dit à pleins d’endroits différents, ce genre de chose est arrivé 3 fois.  
+Quand tu tagues un lieu, écris à la craie car ça s’efface à l’eau et écris des choses intelligentes, ça sera plus respectueux.  
+422  
+L’humour se nourrit des imperfections.  
+423  
+Le mal se nourrit de l’ignorance pour se répandre.  
+424  
+On peut être courageux pour certaines tâches et un lâche pour d’autres.  
+425  
+Pourquoi se maquiller pour un concours de beauté si c’est pour juger une fausse beauté ?  
+426  
+Il y a l’énervé méchant, l’énervé idiot et l’énervé de l’injustice.  
+On peut être énervé à un contexte, pas parce qu’on est moins évolué mais par accumulation d’emmerdements alors que celui qui subit le même contexte reste plus calme mais a subit moins d’accumulations de négativité dans sa vie.  
+Dire que l’on est plus évolué n’est pas objectif sans connaître les circonstances.  
+Celui qui prouve qu’un système ne marche pas est l’énervé de l’injustice, pas les deux autres, on prouve par évolution pas par manque d’évolution avec des arguments d’ignorants.  
+427  
+Tu peux provoquer quelqu’un dans sa psychologie pour qu’il te réponde et pour qu’il croit gagner de ses arguments mais ta prochaine attaque le mettra KO maintenant ou dans le futur.  
+428  
+Il n’est pas imbu de sa personne de vouloir devenir l’égal d’un autre aussi grand soit-il.  
+429  
+Il faut enseigner les meilleures réflexions, proverbes et devises le plus tôt possible.  
+Être enfant n’est pas être innocent car la bêtise commence tôt.  
+Dès l’école primaire, on devrait faire des tests avec des questions de philosophie avec des réponses à cocher, plus une ligne ou deux si il a envie de répondre autre chose en plus.  
 Si face à une situation, quelqu’un est susceptible de se venger en torturant ou blesser physiquement, il faudra faire un cour de moral sur le sujet à la classe.
-Il faut repérer très tôt les mauvaises morales pour les corriger, en argumentant et en donnant les bonnes solutions.
-Plus tard, dés le début du couple, il faut faire un test psychologique.
-Si tu me surprends en revenant chez moi avec un autre amant, quel sera ta réaction, si il veut le punir par de la violence physique, surtout à partir de l’équivalent d’un coup de poing, alors tu es avec un méchant car peut-être que l’amant n’était pas au courant qu’elle avait déjà quelqu’un, et pourquoi punir plus l’amant que la femme alors qu’ils sont fautif à la même équivalence ou plus la femme si elle n’a pas dit sa situation à son amant.
-On peut comprendre d’être énervé et en colère mail il ne faut pas faire d’attaque physique, on peut être déçu, cela n’est pas bien l’hypocrisie mais sachez que le corps appartient à sa conscience donc on fait ce qu’on veut avec, il faut bien mettre au clair les quelques règles de base entre vous pour éviter plus de problèmes.
-Une autre question : si je te quitte, que pourrai tu me faire, savoir à qui on a à faire avant que ça dure plus longtemps.
-Cela peut éviter plus de se faire piéger par une personne dangereuse.
-430
+Il faut repérer très tôt les mauvaises morales pour les corriger, en argumentant et en donnant les bonnes solutions.  
+Plus tard, dés le début du couple, il faut faire un test psychologique.  
+Si tu me surprends en revenant chez moi avec un autre amant, quel sera ta réaction, si il veut le punir par de la violence physique, surtout à partir de l’équivalent d’un coup de poing, alors tu es avec un méchant car peut-être que l’amant n’était pas au courant qu’elle avait déjà quelqu’un, et pourquoi punir plus l’amant que la femme alors qu’ils sont fautif à la même équivalence ou plus la femme si elle n’a pas dit sa situation à son amant.  
+On peut comprendre d’être énervé et en colère mail il ne faut pas faire d’attaque physique, on peut être déçu, cela n’est pas bien l’hypocrisie mais sachez que le corps appartient à sa conscience donc on fait ce qu’on veut avec, il faut bien mettre au clair les quelques règles de base entre vous pour éviter plus de problèmes.  
+Une autre question : si je te quitte, que pourrai tu me faire, savoir à qui on a à faire avant que ça dure plus longtemps.  
+Cela peut éviter plus de se faire piéger par une personne dangereuse.  
+430  
 Battre physiquement quelqu’un qui t’insulte n’est pas être fort mentalement, tu dois lui montrer la morale sans montrer que tu es affecté.
-431
-À l’héritage il en faut un qui hérite de la maison mais il doit partager avec ses frères ou sœurs pour qu’ils profitent aussi, ainsi la maison n’est pas vendue et chacun a sa clef.
-432
-Ne laisse pas un livre ou un jeu à l’air libre ou il finira par jaunir.
-433
-Ne détruis pas les possessions de ton ennemi pour te venger car tu pollues la planète et gaspilles du positif.
-434
-Apprends à bien ranger où tu finiras par abîmer.
-435
-Essaye de te coiffer tout seul avant d’aller payer un coiffeur.
-436
-L’imbécile veut répandre sa doctrine alors qu’il n’a pas vérifié avant tout ce qu’il se dit ailleurs.
-437
-L’humain du troupeau reste dans son enclos. L’homme qui s’éveille creuse, gravit les montagnes et s’élève dan le ciel.
-438
-Il y a des personnes à qui tu dis de ne pas faire une mauvaise chose et elles font exprès d’enfreindre la raison. Il faut donc trouver la meilleure façon de dire les choses pour ne pas donner envie à l’idiot de faire sa bêtise.
-439
-Il y a cinq types de village : au milieu des champs, des prairies, des forêts, des montagnes ou le mélange d’un peu tout ça.
-440
-Un arbre s’embellit en vieillissant, un humain s’enlaidit.
-441
-Quand tu n’as rien, tu t’attaches au peu, quand tu es possessif tu t’attaches trop.
-442
-Aux gens malintentionnés, ne leur apprend rien qu’ils pourraient utiliser contre toi.
-443
-Le mal et le bien sont présent en chacun de nous.
-444
-Il vaut mieux être l’idiot des cons que l’idiot des sages.
-445
-Chaque être contribue à l’évolution car tu peux t’exercer sur son évolution.
-446
-Quand la paix a lieu, on peut rencontrer plus de gens. Quand la paix est planétaire, on peut rencontrer plus d’humanoïdes.
-447
-Contrôler son égo, c’est s’aimer tout en reconnaissant toutes les conneries que l’on peut faire.
-448
-Nous sommes tous responsables un peu de tout car nous avons une influence sur tout à commencer par le simple fait d’y penser, d’être près ou loin.
-449
-À force de vouloir essayer de convaincre, il faut se contenter d’éclairer.
-450
-Le jour où le monde sera juste, c’est quand la drague entre les hommes et les femmes sera équilibrée.
+431  
+À l’héritage il en faut un qui hérite de la maison mais il doit partager avec ses frères ou sœurs pour qu’ils profitent aussi, ainsi la maison n’est pas vendue et chacun a sa clef.  
+432  
+Ne laisse pas un livre ou un jeu à l’air libre ou il finira par jaunir.  
+433  
+Ne détruis pas les possessions de ton ennemi pour te venger car tu pollues la planète et gaspilles du positif.  
+434  
+Apprends à bien ranger où tu finiras par abîmer.  
+435  
+Essaye de te coiffer tout seul avant d’aller payer un coiffeur.  
+436  
+L’imbécile veut répandre sa doctrine alors qu’il n’a pas vérifié avant tout ce qu’il se dit ailleurs.  
+437  
+L’humain du troupeau reste dans son enclos. L’homme qui s’éveille creuse, gravit les montagnes et s’élève dan le ciel.  
+438  
+Il y a des personnes à qui tu dis de ne pas faire une mauvaise chose et elles font exprès d’enfreindre la raison. Il faut donc trouver la meilleure façon de dire les choses pour ne pas donner envie à l’idiot de faire sa bêtise.  
+439  
+Il y a cinq types de village : au milieu des champs, des prairies, des forêts, des montagnes ou le mélange d’un peu tout ça.  
+440  
+Un arbre s’embellit en vieillissant, un humain s’enlaidit.  
+441  
+Quand tu n’as rien, tu t’attaches au peu, quand tu es possessif tu t’attaches trop.  
+442  
+Aux gens malintentionnés, ne leur apprend rien qu’ils pourraient utiliser contre toi.  
+443  
+Le mal et le bien sont présent en chacun de nous.  
+444  
+Il vaut mieux être l’idiot des cons que l’idiot des sages.  
+445  
+Chaque être contribue à l’évolution car tu peux t’exercer sur son évolution.  
+446  
+Quand la paix a lieu, on peut rencontrer plus de gens. Quand la paix est planétaire, on peut rencontrer plus d’humanoïdes.  
+447  
+Contrôler son égo, c’est s’aimer tout en reconnaissant toutes les conneries que l’on peut faire.  
+448  
+Nous sommes tous responsables un peu de tout car nous avons une influence sur tout à commencer par le simple fait d’y penser, d’être près ou loin.  
+449  
+À force de vouloir essayer de convaincre, il faut se contenter d’éclairer.  
+450  
+Le jour où le monde sera juste, c’est quand la drague entre les hommes et les femmes sera équilibrée.  
 
-Empereur pour princesse ?
+Empereur pour princesse ?  
 
-Il faut être similaire,
-ou complémentaire.
-Comme la belle grimpante fleurie,
-qui s’enlace à son pin de nuages d’aiguilles.
-Il faut descendre de sa branche et de ses songes,
-pour que le rêve ne soit pas un mensonge.
-Capter les étoiles,
-et envoyer les lucioles.
-Tant d’années d’efforts, 
-qui laissent attendre le réconfort.
-J’ai la beauté, du talent, et de la gentillesse,
-elles sont aveuglées et à côté passent sans cesse.
-Le nénuphar reste dans sa boue,
-mais fleurit encore à la portée du vent.
-Pourtant généreux en expériences,
-elles laissent passer leurs chances.
-Jugeant trop vite,
-en laissant le trésor qui s’invite.
-Des filles trop gâtées,
-attendent que l’on vienne pêcher.
-Elles font trop les fières,
-pour se laisser plaire.
-Presque toujours le même camp qui avance,
-elles ont de la chance.
-Quand on n’a pas besoin de draguer,
-on peut faire plus de choses à côté.
-Pour quand l’égalité,
-mais quand ça les arrange, elles restent attachées.
-Trouvant des défauts qui n’en sont pas, 
-malgré tous mes pas.
-Certaines faisant un complexe d’infériorité,
-alors que je veux pas être en supériorité mais admiré.
-L’amour n’est pas d’être le meilleur,
-c’est d’être dans le bonheur.
-D’autres sont attirées, 
-mais restent à l’appel coincées.
-Pour un compliment dans le respect,
-elles peuvent croire qu’on les prenne pour un objet.
-À cause de tous les mauvais hommes,
-on croit que je suis un mauvais bonhomme.
-Considéré comme pas sérieux, à paraître  trop beau,
-alors qu’il ferait un bon cadeau.
-Trop de talents affichés sur internet,
-Me prend pour une blague et me rejette.
-Qui ne sert à rien, trop des fantaisies, 
-oui, pour ces abrutis.
-Encore une hypocrite,
-une autre chance qui se délite.
-À cause des mauvais avis des autres clampins,
-se laissant influencer et passant à côté d’un bon chemin.
-Pour les apparences, on fait la difficile,
-même s’il plaît pour ne pas se dire facile.
-Trop occupée à travailler,
-trop loin ou qui va déménager.
-Pas assez riche à son goût, 
-ici ce qui compte surtout, c’est les sous.
-Quand il n’y a pas assez de beauté,
-on reste caché.
-La plus dévouée qui m’aimait en messages est encore une menteuse,
-une briseuse.
-Même quand on a un bon envol,
-Cette fois, ce n’est pas assez de quota de paroles.
-Qui s’en va sans rien dire, sans excuses,
-la lâcheté fuse.
-Un problème informatique,
-fais un jour fuir une asiatique.
-Elles ne font pas attention aux gens,
-et leurs font perdre beaucoup de temps.
-Encore une égocentrique capricieuse qui s’en va, 
-que je n’aurais pas.
-Avec celle-là, elle te trouve trop gentil,
-on ne laisse pas faire ses preuves et l’espoir s’évanoui.
-Toujours une excuse, trop rapide ou trop lent, 
-ça m’est vraiment fatiguant.
-Même en étant premier en talents,
-on fait de moi un absent.
-Ce n’est pas moi le problème, 
-leurs mentalités me fait de la peine.
-On se fait arnaquer,
-encore du mauvais temps passé.
-Avec les mêmes numéros (33 et 69) de téléphone, 
-et pleins de points communs, l’abandon encore sonne.
-Je parle à des programmes,
-à des basses âmes.
-Celle là s’est fait piquer, 
-elle est contaminée.
-Je prends les miettes dans mes rêves, parfois illusion, 
-ou parfois une ou plusieurs vraies femmes d’une autre dimension. 
-Dans l’astral, elles sont plus faciles,
-ici c’est très difficile. 
-Beaucoup de moujoncs,
-qui font stagner le monde en rond.
-Le monde est à l’envers,
-et m’a fait disloquer des nerfs.
-Des mauvaises circonstances de la vie,
-ont fait attendre le nid.
-Apprécié à l’école mais trop loin,
-occasions ratés, crispé, maths bas, moments inopportuns.
-Boutons, rhumes, complot administratif permis de voiture…,
-pollution de la nature, vie d’usures.
-1 an sans argent,
-stagnation du plan.
-Santé détériorée,
-sport arrêté. 
-Décennie de douleurs chroniques,
-à cause de théories et de bornés d’attaques qui créent la panique.
-Sans endroits d’accoutumances,
-beaucoup moins de chances.
-Puis l’énergie revient,
-mais est-ce qu’elle vient.
-Je suis de plus en plus fort,
-comme de l’or.
-Je suis le beau au bois dormant,
-qui veut être sauvé dans son plan.
-Ce jour sera où la princesse sera percée,
-par la clarté des rayons.
-Où le grand nuage doré,
-captera sa brume d’argent métamorphosée.
-Elle est où la princesse, 
-qui saura reconnaître ma sagesse ?
+Il faut être similaire,  
+ou complémentaire.  
+Comme la belle grimpante fleurie,  
+qui s’enlace à son pin de nuages d’aiguilles.  
+Il faut descendre de sa branche et de ses songes,  
+pour que le rêve ne soit pas un mensonge.  
+Capter les étoiles,  
+et envoyer les lucioles.  
+Tant d’années d’efforts,  
+qui laissent attendre le réconfort.  
+J’ai la beauté, du talent, et de la gentillesse,  
+elles sont aveuglées et à côté passent sans cesse.  
+Le nénuphar reste dans sa boue,  
+mais fleurit encore à la portée du vent.  
+Pourtant généreux en expériences,  
+elles laissent passer leurs chances.  
+Jugeant trop vite,  
+en laissant le trésor qui s’invite.  
+Des filles trop gâtées,  
+attendent que l’on vienne pêcher.  
+Elles font trop les fières,  
+pour se laisser plaire.  
+Presque toujours le même camp qui avance,  
+elles ont de la chance.  
+Quand on n’a pas besoin de draguer,  
+on peut faire plus de choses à côté.  
+Pour quand l’égalité,  
+mais quand ça les arrange, elles restent attachées.  
+Trouvant des défauts qui n’en sont pas,  
+malgré tous mes pas.  
+Certaines faisant un complexe d’infériorité,  
+alors que je veux pas être en supériorité mais admiré.  
+L’amour n’est pas d’être le meilleur,  
+c’est d’être dans le bonheur.  
+D’autres sont attirées,  
+mais restent à l’appel coincées.  
+Pour un compliment dans le respect,  
+elles peuvent croire qu’on les prenne pour un objet.  
+À cause de tous les mauvais hommes,  
+on croit que je suis un mauvais bonhomme.  
+Considéré comme pas sérieux, à paraître  trop beau,  
+alors qu’il ferait un bon cadeau.  
+Trop de talents affichés sur internet,  
+Me prend pour une blague et me rejette.  
+Qui ne sert à rien, trop des fantaisies,  
+oui, pour ces abrutis.  
+Encore une hypocrite,  
+une autre chance qui se délite.  
+À cause des mauvais avis des autres clampins,  
+se laissant influencer et passant à côté d’un bon chemin.  
+Pour les apparences, on fait la difficile,  
+même s’il plaît pour ne pas se dire facile.  
+Trop occupée à travailler,  
+trop loin ou qui va déménager.  
+Pas assez riche à son goût,  
+ici ce qui compte surtout, c’est les sous.  
+Quand il n’y a pas assez de beauté,  
+on reste caché.  
+La plus dévouée qui m’aimait en messages est encore une menteuse,  
+une briseuse.  
+Même quand on a un bon envol,  
+Cette fois, ce n’est pas assez de quota de paroles.  
+Qui s’en va sans rien dire, sans excuses,  
+la lâcheté fuse.  
+Un problème informatique,  
+fais un jour fuir une asiatique.  
+Elles ne font pas attention aux gens,  
+et leurs font perdre beaucoup de temps.  
+Encore une égocentrique capricieuse qui s’en va,  
+que je n’aurais pas.  
+Avec celle-là, elle te trouve trop gentil,  
+on ne laisse pas faire ses preuves et l’espoir s’évanouit.  
+Toujours une excuse, trop rapide ou trop lent,  
+ça m’est vraiment fatiguant.  
+Même en étant premier en talents,  
+on fait de moi un absent.  
+Ce n’est pas moi le problème,  
+leurs mentalités me fait de la peine.  
+On se fait arnaquer,  
+encore du mauvais temps passé.  
+Avec les mêmes numéros (33 et 69) de téléphone,  
+et pleins de points communs, l’abandon encore sonne.  
+Je parle à des programmes,  
+à des basses âmes.  
+Celle là s’est fait piquer,  
+elle est contaminée.  
+Je prends les miettes dans mes rêves, parfois illusion,  
+ou parfois une ou plusieurs vraies femmes d’une autre dimension.  
+Dans l’astral, elles sont plus faciles,  
+ici c’est très difficile.  
+Beaucoup de moujoncs,  
+qui font stagner le monde en rond.  
+Le monde est à l’envers,  
+et m’a fait disloquer des nerfs.  
+Des mauvaises circonstances de la vie,  
+ont fait attendre le nid.  
+Apprécié à l’école mais trop loin,  
+occasions ratés, crispé, maths bas, moments inopportuns.  
+Boutons, rhumes, complot administratif permis de voiture…,  
+pollution de la nature, vie d’usures.  
+1 an sans argent,  
+stagnation du plan.  
+Santé détériorée,  
+sport arrêté.   
+Décennie de douleurs chroniques,  
+à cause de théories et de bornés d’attaques qui créent la panique.  
+Sans endroits d’accoutumances,  
+beaucoup moins de chances.  
+Puis l’énergie revient,  
+mais est-ce qu’elle vient.  
+Je suis de plus en plus fort,  
+comme de l’or.  
+Je suis le beau au bois dormant,  
+qui veut être sauvé dans son plan.  
+Ce jour sera où la princesse sera percée,  
+par la clarté des rayons.  
+Où le grand nuage doré,  
+captera sa brume d’argent métamorphosée.  
+Elle est où la princesse,  
+qui saura reconnaître ma sagesse ?  
 
-Sylvain Meili (2020 : n°9)
+Sylvain Meili (2020 : n°9)  
 
-451
+451  
 La chute d’eau tombe mais s’élève en beauté.
 452
 Les gens sont sympas quand tu penses comme eux. Quand tu sors de leur barrière de conscience, pour certains tu es l’idiot pour eux même si tu as raison.
