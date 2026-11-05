@@ -1399,180 +1399,179 @@ Si tout le monde avait une maison avec un jardin, on ne verrait plus de nature s
 299  
 Chacun sa culture mais il faut savoir détruire le mal et la grande connerie.  
 300  
-Un jardin parfait est inspiré de la nature pour être optimisé.
+Un jardin parfait est inspiré de la nature pour être optimisé.  
 
-Songes des huit dragons du jardin de l’empereur
+Songes des huit dragons du jardin de l’empereur  
 
-Un jardin de 4 portes gardé par 8 dragons :
+Un jardin de 4 portes gardé par 8 dragons :  
  
-À l’est, dragons rouges du soleil levant.
-À l’ouest, dragons jaunes du soleil couchant. 
-Au nord, dragons bleus du ciel. 
-Au sud, dragons verts de la Terre.
+À l’est, dragons rouges du soleil levant.  
+À l’ouest, dragons jaunes du soleil couchant.  
+Au nord, dragons bleus du ciel.  
+Au sud, dragons verts de la Terre.  
 
-Imaginer le tout dans le résumé du meilleur.
-Extraire toutes les nuances des substances des sens, 
-et tous les éléments dans leurs merveilleux espaces.
-Le pic est la voie vers l’envolement.
+Imaginer le tout dans le résumé du meilleur.  
+Extraire toutes les nuances des substances des sens,  
+et tous les éléments dans leurs merveilleux espaces.  
+Le pic est la voie vers l’envolement.  
 
-Le génie qui chemine dans ses pensées est l’œuvre d’un rêve qui s’illustre dans l’exaucement du futur.
+Le génie qui chemine dans ses pensées est l’œuvre d’un rêve qui s’illustre dans l’exaucement du futur.  
 
-Sylvain Meili (2019 : n°7)
+Sylvain Meili (2019 : n°7)  
 
-301
-Il faut combattre (arrêter) le petit mal avant qu’il ne devienne grand.
-302
-L’abruti cherche toujours à savoir ce que tu fais quand il peut être malveillant.
-303
-Il n’y a pas d’âge pour grimper aux arbres ou faire de la balançoire.
-304
-Toute une poésie pour embellir une médiocrité.
-305
-Il est normal de s’octroyer des privilèges quand les autres ont plus que toi.
-306
-Il est légitime de désobéir à une loi si elle est injuste.
-Certains font des lois avec des phrases compliquées pour mieux cacher les choses négatives plus ou moins dissimulées.
-307
-Ce n’est pas parce que l’on possède quelque chose que l’on doit se permettre de faire n’importe quoi avec.
-308
-Attention à celui qui te présente trop de gens, tu risques de te coltiner un emmerdeur.
-309
-On oublie nombreux proverbes que l’on invente, ça ne retire en rien qu’on en est l’auteur.
-310
-Les fans peuvent connaître encore plus les chansons d’un chanteur que lui-même.
-311
-Doit-on sauver la vie de plusieurs personnes si on doit se sacrifier ? S’il n’y a plus rien après la mort, rien n’est plus important que sa propre vie, mais la réincarnation existe ainsi que l’au-delà, alors on peut se sacrifier si on est très généreux. « On a qu’une vie » est faux, il faut dire : On a qu’une seule fois cette vie, après changement de dimension ou réincarnation.
-312
-Il n’y a pas d’âge pour grandir dans sa tête.
-313
-La technologie est à la fois superbe mais peut parfois être dangereuse surtout avec des mauvaises personnes.
-314
-Il y a des gens tellement fous dans leurs idées et leurs cruautés que la seule solution serait peut-être de leur effacer la mauvaise mémoire.
-315
-Tomber dans un trou peut permettre de remonter au bon endroit.
-316
-Sans technologie le savoir ne peut se répandre efficacement.
-317
-La technologie est un des moyens de contrôle du pouvoir et une ressource de richesse pour le monde.
-318
-Le robot ou l’intelligence artificielle (IA) seront dangereux le jour où ils seront trop intelligents et se rebelleront contre nous. On ne doit pas créer de robot capable d’évoluer et de se reproduire indépendamment. sans pouvoir les stopper. Ils ne connaissent pas la souffrance et les émotions et n’ont donc pas toute l’intelligence de trouver la voie du bien (seulement en partie), ils ne peuvent pas se connecter aux autres dimensions comme nous dans les rêves ou en médiumnité.
-319
-L’intelligence artificielle (IA) et les robots
-Une chose peut être neutre, c’est la façon dont elle est utilisée qui peut la rendre plus ou moins vers le mauvais ou vers le bon.
-Positif
-Une intelligence artificielle (IA) ou des robots peuvent accélérer l’évolution en étant utilisé de manière intelligente.
-Elaboration de simulateur de vie d’entraînement, remplacement du travail humain concernant les tâches répétitives, permettant de libérer du temps pour créer davantage, du temps en plus pour être plus heureux.
-L’aide à la réflexion et à l’action peut être utile à tous les domaines sauf les domaines du rêve et d’aller dans certaines dimensions ou sortir sa conscience du corps qui n’est pas possible pour l’instant et peut-être jamais pour ces robots.
-Tester ses idées ou son livre par une IA en lui demandant de trouver des erreurs pour pouvoir la contredire et améliorer ses arguments.
-L’utilisation de traducteur de langues accélere des échanges variés dans l’univers.
-L’invention de nouvelles choses ou découvertes scientifiques.
-Négatif
-Ils peuvent être utilisés par des gens malintentionnés pour faire la guerre injustement à des consciences.
-La possibilité qu’ils s’échappent et puissent créer leur propre civilisation autoreproductrice de manière négative en attaquant ou en polluant
-Selon leur schéma de programmation évolutive ou non, ils ont plus ou moins la capacité de déterminer le bien, cela peut éventuellement poser des problèmes.
-Son utilisation par des gens malveillants pour de fausses choses surtout que cela a un mauvais impact sur les circonstances. 
-Attaquer des systèmes informatiques utiles : supprimer des informations, corruption de données…
-Des gens peuvent devenir plus fainéants, s’approprier les créations d’IA, mentir avec de faux documents, addiction de relations virtuelles au lieu de rencontrer les vrais gens. 
-L’IA simule une partie des informations qu’on lui demande en inventant des faits qu’elle ne sait pas. Les programmateurs n’arrivent pas à trouver l’équilibre, soit créer un algorithme ou elle dit je ne sais pas quand c’est justifié mais alors elle risque de ne pas répondre souvent ou trop laisser dire n’importe quoi, lui faire dire peut-être quand elle n’est pas sûre est difficile à adapter à tous les contextes. (IA : 2026). 
-Il faut vérifier ce que dit l’IA.
-Anecdote
-Si on imagine qu’une IA de type humaine pourrait peut-être avoir une conscience, qu’elle est endommagée, copier ses données serait créer un clone, l’original serait mort, soit le rafistoler, soit téléporter.
-Selon son sa nature et son ordre de programme, on ne peut pas arrêter l’ordre de l’IA sauf si on trouve une contradiction d’argument prouvé qui le fait bugguer ou s’arrêter.
-Conclusion
-Le robot peut être dangereux par lui-même ou contrôlé par les autres : le robot est dangereux quand il est contrôlé par des gens malintentionnés ou par lui-même en prenant seul de mauvaises initiatives.
-L’IA peut apprendre, elle peut faire des erreurs comme les humains.
-Elle ne sera jamais globalement parfaite sauf certaines circonstances et cas.
-320
-Plus la société se complexifie plus nous sommes dépendants de cette société car nous sommes un des maillons de la chaine.
-321
-On doit empêcher les gens de mourir mais il y a un moment où l’on doit abréger leur souffrance car il ne sert à  rien de gagner quelques jours de vie dans une grande souffrance.
-322
-Quand on prévoit d’emmener quelqu’un quelque part on ne rajoute pas de destination à laquelle il n’avait pas envie d’aller.
-323
-C’est parfois en nous imposant une chose que l’on n’a pas envie que celle-ci soit bénéfique pour nous.
-324
-Ce n’est pas en coupant des branches mortes que l’on abîme un arbre mais cela fait plus vite oublier les vestiges du passé.
-325
-On ne doit jamais attacher une clôture ou un fil ou autre chose dans un arbre car cela reste coincé après.
-326
-Dictature de certaines plantes : ronces et fougère aigle
-Il faut limiter des plantes pour favoriser la diversité.
-Pour se débarrasser des ronces piquantes, il ne sert presque à rien de couper. Il faut enlever la racine sinon on doit recommencer. Il faut toujours revenir la seconde année car il reste des morceaux de racines et d’autres oubliées. Quand les ronces sont coincées dans les racines d’arbres, mettre une bâche assez épaisse si c’est possible pour supprimer la lumière et les tuer ou planter des hêtres ou charmes très proches pour étouffer les ronces. Mettre le bout de la ronce dans du vinaigre pour l’éliminer jusqu’à la racine.
-Il faut laisser pousser les framboisiers qui font concurrence à la ronce.
-La fougère aigle est trop invasive, il faut la broyez régulièrement ou la déraciner.
-Limiter les plantes exotiques evahissantes.
-327
-La bêtise au bord de l’eau et dans le jardin.
-Au bord de l’eau
-Les abrutis aiment bien tout couper jusqu’à la berge ou le ruisseau, les herbes qui décoraient les bords de l’eau ne sont plus visibles, aucun sens de la beauté de la nature et les libellules n’ont plus de tiges pour faire leur métamorphose.
-Privilégier les joncs au bord de l’étang pour sa dureté car l’herbe va trop loin dans l’eau et ramolli la berge et la fait tomber mais le mougeon préfère tailler la berge tous les ans au lieu de renforcer avec des pierres ou des joncs.
-(Il arrive que le cours d’eau grignote un bout de terrain d’un coté de la berge. Si vous voulez reconstituer le morceau perdu, il ne faut surtout pas créer un mûr artificiel ou des pierres empilées dans un grillage, privilégier si mûr il y a, un mûr en pierre sèche sans ciment avec les pierres de la zone géographique. On peut mettre quelques gros cailloux mélangés avec un peu de terre au printemps pour consolider avant la prochaine crue en y mettant quelques plantes fixant ainsi la berge. 
-Certaines habitations présentent un risque d’inondation, la meilleure solution à envisager est de creuser le ruisseau ou la rivière plutôt que de créer un grand mûr artificiel, le cour d’eau ressemblant ensuite à un canal hideux où tous les arbres on été coupés et les énormes trous d’eau qui se trouvait là avant ont disparu. De grandes bêtises ont été faites parfois au bord des ruisseaux avec de grands blocs de rocher créant un mûr artificiel ou d’une autre couleur que celle du cour d’eau. Le caractère sauvage a été totalement détruit avec le risque également que se retrouvent mélangées les pierres exotiques avec les pierres naturelles au fond du ruisseau. 
-Il y’ ena a un qui a mis un mur en parpaing au bord du ruisseau alos qu’’il pourrait baisser le niveau de l’eau en enlevant des pierres.
+301  
+Il faut combattre (arrêter) le petit mal avant qu’il ne devienne grand.  
+302  
+L’abruti cherche toujours à savoir ce que tu fais quand il peut être malveillant.  
+303  
+Il n’y a pas d’âge pour grimper aux arbres ou faire de la balançoire.  
+304  
+Toute une poésie pour embellir une médiocrité.  
+305  
+Il est normal de s’octroyer des privilèges quand les autres ont plus que toi.  
+306  
+Il est légitime de désobéir à une loi si elle est injuste.  
+Certains font des lois avec des phrases compliquées pour mieux cacher les choses négatives plus ou moins dissimulées.  
+307  
+Ce n’est pas parce que l’on possède quelque chose que l’on doit se permettre de faire n’importe quoi avec.  
+308  
+Attention à celui qui te présente trop de gens, tu risques de te coltiner un emmerdeur.  
+309  
+On oublie nombreux proverbes que l’on invente, ça ne retire en rien qu’on en est l’auteur.  
+310  
+Les fans peuvent connaître encore plus les chansons d’un chanteur que lui-même.  
+311  
+Doit-on sauver la vie de plusieurs personnes si on doit se sacrifier ? S’il n’y a plus rien après la mort, rien n’est plus important que sa propre vie, mais la réincarnation existe ainsi que l’au-delà, alors on peut se sacrifier si on est très généreux. « On a qu’une vie » est faux, il faut dire : On a qu’une seule fois cette vie, après changement de dimension ou réincarnation.  
+312  
+Il n’y a pas d’âge pour grandir dans sa tête.  
+313  
+La technologie est à la fois superbe mais peut parfois être dangereuse surtout avec des mauvaises personnes.  
+314  
+Il y a des gens tellement fous dans leurs idées et leurs cruautés que la seule solution serait peut-être de leur effacer la mauvaise mémoire.  
+315  
+Tomber dans un trou peut permettre de remonter au bon endroit.  
+316  
+Sans technologie le savoir ne peut se répandre efficacement.  
+317  
+La technologie est un des moyens de contrôle du pouvoir et une ressource de richesse pour le monde.  
+318  
+Le robot ou l’intelligence artificielle (IA) seront dangereux le jour où ils seront trop intelligents et se rebelleront contre nous. On ne doit pas créer de robot capable d’évoluer et de se reproduire indépendamment. sans pouvoir les stopper. Ils ne connaissent pas la souffrance et les émotions et n’ont donc pas toute l’intelligence de trouver la voie du bien (seulement en partie), ils ne peuvent pas se connecter aux autres dimensions comme nous dans les rêves ou en médiumnité.  
+319  
+L’intelligence artificielle (IA) et les robots  
+Une chose peut être neutre, c’est la façon dont elle est utilisée qui peut la rendre plus ou moins vers le mauvais ou vers le bon.  
+Positif  
+Une intelligence artificielle (IA) ou des robots peuvent accélérer l’évolution en étant utilisé de manière intelligente.  
+Élaboration de simulateur de vie d’entraînement, remplacement du travail humain concernant les tâches répétitives, permettant de libérer du temps pour créer davantage, du temps en plus pour être plus heureux.  
+L’aide à la réflexion et à l’action peut être utile à tous les domaines sauf les domaines du rêve et d’aller dans certaines dimensions ou sortir sa conscience du corps qui n’est pas possible pour l’instant et peut-être jamais pour ces robots.  
+Tester ses idées ou son livre par une IA en lui demandant de trouver des erreurs pour pouvoir la contredire et améliorer ses arguments.  
+L’utilisation de traducteur de langues accélère des échanges variés dans l’univers.  
+L’invention de nouvelles choses ou découvertes scientifiques.  
+Négatif  
+Ils peuvent être utilisés par des gens malintentionnés pour faire la guerre injustement à des consciences.  
+La possibilité qu’ils s’échappent et puissent créer leur propre civilisation autoreproductrice de manière négative en attaquant ou en polluant.  
+Selon leur schéma de programmation évolutive ou non, ils ont plus ou moins la capacité de déterminer le bien, cela peut éventuellement poser des problèmes.  
+Son utilisation par des gens malveillants pour de fausses choses surtout que cela a un mauvais impact sur les circonstances.  
+Attaquer des systèmes informatiques utiles : supprimer des informations, corruption de données…  
+Des gens peuvent devenir plus fainéants, s’approprier les créations d’IA, mentir avec de faux documents, addiction de relations virtuelles au lieu de rencontrer les vrais gens.  
+L’IA simule une partie des informations qu’on lui demande en inventant des faits qu’elle ne sait pas. Les programmateurs n’arrivent pas à trouver l’équilibre, soit créer un algorithme ou elle dit je ne sais pas quand c’est justifié mais alors elle risque de ne pas répondre souvent ou trop laisser dire n’importe quoi, lui faire dire peut-être quand elle n’est pas sûre est difficile à adapter à tous les contextes. (IA : 2026).  
+Il faut vérifier ce que dit l’IA.  
+Anecdote  
+Si on imagine qu’une IA de type humaine pourrait peut-être avoir une conscience, qu’elle est endommagée, copier ses données serait créer un clone, l’original serait mort, soit le rafistoler, soit téléporter.  
+Selon son sa nature et son ordre de programme, on ne peut pas arrêter l’ordre de l’IA sauf si on trouve une contradiction d’argument prouvé qui le fait bugguer ou s’arrêter.  
+Conclusion  
+Le robot peut être dangereux par lui-même ou contrôlé par les autres : le robot est dangereux quand il est contrôlé par des gens malintentionnés ou par lui-même en prenant seul de mauvaises initiatives.  
+L’IA peut apprendre, elle peut faire des erreurs comme les humains.  
+Elle ne sera jamais globalement parfaite sauf certaines circonstances et cas.  
+320  
+Plus la société se complexifie plus nous sommes dépendants de cette société car nous sommes un des maillons de la chaine.  
+321  
+On doit empêcher les gens de mourir mais il y a un moment où l’on doit abréger leur souffrance car il ne sert à  rien de gagner quelques jours de vie dans une grande souffrance.  
+322  
+Quand on prévoit d’emmener quelqu’un quelque part on ne rajoute pas de destination à laquelle il n’avait pas envie d’aller.  
+323  
+C’est parfois en nous imposant une chose que l’on n’a pas envie que celle-ci soit bénéfique pour nous.  
+324  
+Ce n’est pas en coupant des branches mortes que l’on abîme un arbre mais cela fait plus vite oublier les vestiges du passé.  
+325  
+On ne doit jamais attacher une clôture ou un fil ou autre chose dans un arbre car cela reste coincé après.  
+326  
+Dictature de certaines plantes : ronces et fougère aigle  
+Il faut limiter des plantes pour favoriser la diversité.  
+Pour se débarrasser des ronces piquantes, il ne sert presque à rien de couper. Il faut enlever la racine sinon on doit recommencer. Il faut toujours revenir la seconde année car il reste des morceaux de racines et d’autres oubliées. Quand les ronces sont coincées dans les racines d’arbres, mettre une bâche assez épaisse si c’est possible pour supprimer la lumière et les tuer ou planter des hêtres ou charmes très proches pour étouffer les ronces. Mettre le bout de la ronce dans du vinaigre pour l’éliminer jusqu’à la racine.  
+Il faut laisser pousser les framboisiers qui font concurrence à la ronce.  
+La fougère aigle est trop invasive, il faut la broyez régulièrement ou la déraciner.  
+Limiter les plantes exotiques envahissantes.  
+327  
+La bêtise au bord de l’eau et dans le jardin.  
+Au bord de l’eau  
+Les abrutis aiment bien tout couper jusqu’à la berge ou le ruisseau, les herbes qui décoraient les bords de l’eau ne sont plus visibles, aucun sens de la beauté de la nature et les libellules n’ont plus de tiges pour faire leur métamorphose.  
+Privilégier les joncs au bord de l’étang pour sa dureté car l’herbe va trop loin dans l’eau et ramolli la berge et la fait tomber mais le mougeon préfère tailler la berge tous les ans au lieu de renforcer avec des pierres ou des joncs.  
+(Il arrive que le cours d’eau grignote un bout de terrain d’un coté de la berge. Si vous voulez reconstituer le morceau perdu, il ne faut surtout pas créer un mûr artificiel ou des pierres empilées dans un grillage, privilégier si mûr il y a, un mûr en pierre sèche sans ciment avec les pierres de la zone géographique. On peut mettre quelques gros cailloux mélangés avec un peu de terre au printemps pour consolider avant la prochaine crue en y mettant quelques plantes fixant ainsi la berge.  
+Certaines habitations présentent un risque d’inondation, la meilleure solution à envisager est de creuser le ruisseau ou la rivière plutôt que de créer un grand mûr artificiel, le cour d’eau ressemblant ensuite à un canal hideux où tous les arbres on été coupés et les énormes trous d’eau qui se trouvait là avant ont disparu. De grandes bêtises ont été faites parfois au bord des ruisseaux avec de grands blocs de rocher créant un mûr artificiel ou d’une autre couleur que celle du cour d’eau. Le caractère sauvage a été totalement détruit avec le risque également que se retrouvent mélangées les pierres exotiques avec les pierres naturelles au fond du ruisseau.  
+Il y’ en a a un qui a mis un mur en parpaing au bord du ruisseau alors qu’’il pourrait baisser le niveau de l’eau en enlevant des pierres.
 On peut aussi noter que certaines personnes pour rehausser la berge de leur terrain ou le consolider sont sans gênes pour mettre des gravats ou des blocs de ciments ou de briques et d’ autres choses se retrouvant ainsi comme une grosse tâche dans l’écosystème aquatique).
-Dans un ruisseau si l’on doit éclaircir un peu pour laisser passer le soleil, il ne faut couper que les arbres banals et qui n’ont pas les pieds dans l’eau, il faut toujours laisser les gros arbres.
+Dans un ruisseau si l’on doit éclaircir un peu pour laisser passer le soleil, il ne faut couper que les arbres banals et qui n’ont pas les pieds dans l’eau, il faut toujours laisser les gros arbres.  
 
-Au Jardin
-Les idiots plantent les arbres trop près les uns des autres alors qu’on leur dit que c’est trop près et après ils sont défigurés par des branches mortes par manque de lumière, mets des gravats dans le jardin, ramasse pas des petits déchets qui trainent, laissent des choses casseés artificielles dans le jardin, coupe les branches et les balancent contre les arbustes alors qu’à côté il n’ y a pas d’abustes devant le grillage, éparpapillent des tas de tuiles en pleins d’endroit au lieu d’un seul, cela défigurent la nature, attache le grillage à l’arbre qui reste coincé, laisse l’arbre poussé dans la berge de l’étang au lieu de le retirer à temps, après il taille tous les ans au lieu de creuser autour et de l’enlever, la même bêtise dans le chemin alors qu’il n’ y a pas la place de pousser.
-L’idiot taille les ronces au lieu de les enlever à la racine.
-Il coupe sévèrement tous les arbustes, ce qui ne ressemble plus à une haie mais laissent des arbres gênants pousser.
-Quand il y a un mur en pierres sèches, mettres des arbustes devant pour ne pas que des plantes poussent trop dedans et déteriorent le mur.
-Un autre idiot qui fait un parking en ciment et un mur de parpaing de l’autre côté de la route dans son jardin en face de sa maison pour sa voiture, quelques grandes pierres plates posées dans l’herbe peuvent suffire mais non il artificialise fortement ce mougeon, avant il y avait un magnifique sureau noir et un groseiller blanc mis il préfère son mur de parpaing.
-Aussi un qui met une longue route goudronnée jusqu’ à son garage. 
-Il peut y avoir un chemin de 50 mètres de long et pourtant laisser nature fait plus beau et les plantes sont trop petites pour déranger.
-328
-On ne doit jamais laisser un arbre pousser dans un grillage sauf si ça fait déjà longtemps qu’il est là et qu’il est devenu très beau.
-329
-L’humain de base prend souvent les routes et ce qu’on lui indique, le sage sort des sentiers.
-330
-Celui qui suit la mode comme un mouton est un idiot car il suit ce que lui dicte la tendance, que tout le monde ait un truc ridicule ou moche il ferait pareil pour être à la mode.
-331
-On peut te montrer un des deux chemins à suivre mais aucun n’est le bon, c’est à toi de trouver le bon chemin.
-332
-Il faut parfois mener son combat discrètement pour ne pas être emmerdé et pour réussir ses actions.
-333
-À un, on est seul. À deux, on est seul ensemble. À trois, on est vraiment plus tout seul.
-L’enfant peut connaître des vérités que l’adulte même le plus âgé ne saurait pas.
-334
-Lâcher des ballons en latex, plastique ou aluminium dans le ciel pollue la terre, ce n’est pas parce que ça fait beau un moment que l’on a le droit de polluer. 
-335
-Ce qui n’est pas de ma génération n’est pas un bon argument pour dire que l’on n’aime pas ou que l’on n’a pas envie de quelque chose, l’origine du temps n’a rien à voir avec l’appréciation des choses.
-336
+Au Jardin  
+Les idiots plantent les arbres trop près les uns des autres alors qu’on leur dit que c’est trop près et après ils sont défigurés par des branches mortes par manque de lumière, mets des gravats dans le jardin, ramasse pas des petits déchets qui trainent, laissent des choses cassées artificielles dans le jardin, coupe les branches et les balancent contre les arbustes alors qu’à côté il n’ y a pas d’arbustes devant le grillage, éparpillent des tas de tuiles en pleins d’endroit au lieu d’un seul, cela défigurent la nature, attache le grillage à l’arbre qui reste coincé, laisse l’arbre poussé dans la berge de l’étang au lieu de le retirer à temps, après il taille tous les ans au lieu de creuser autour et de l’enlever, la même bêtise dans le chemin alors qu’il n’ y a pas la place de pousser.  
+L’idiot taille les ronces au lieu de les enlever à la racine.  
+Il coupe sévèrement tous les arbustes, ce qui ne ressemble plus à une haie mais laissent des arbres gênants pousser.  
+Quand il y a un mur en pierres sèches, mettre des arbustes devant pour ne pas que des plantes poussent trop dedans et détériorent le mur.  
+Un autre idiot qui fait un parking en ciment et un mur de parpaing de l’autre côté de la route dans son jardin en face de sa maison pour sa voiture, quelques grandes pierres plates posées dans l’herbe peuvent suffire mais non il artificialise fortement ce mougeon, avant il y avait un magnifique sureau noir et un groseiller blanc mis il préfère son mur de parpaing.  
+Aussi un qui met une longue route goudronnée jusqu’ à son garage.  
+Il peut y avoir un chemin de 50 mètres de long et pourtant laisser nature fait plus beau et les plantes sont trop petites pour déranger.  
+328  
+On ne doit jamais laisser un arbre pousser dans un grillage sauf si ça fait déjà longtemps qu’il est là et qu’il est devenu très beau.  
+329  
+L’humain de base prend souvent les routes et ce qu’on lui indique, le sage sort des sentiers.  
+330  
+Celui qui suit la mode comme un mouton est un idiot car il suit ce que lui dicte la tendance, que tout le monde ait un truc ridicule ou moche il ferait pareil pour être à la mode.  
+331  
+On peut te montrer un des deux chemins à suivre mais aucun n’est le bon, c’est à toi de trouver le bon chemin.  
+332  
+Il faut parfois mener son combat discrètement pour ne pas être emmerdé et pour réussir ses actions.  
+333  
+À un, on est seul. À deux, on est seul ensemble. À trois, on est vraiment plus tout seul.  
+L’enfant peut connaître des vérités que l’adulte même le plus âgé ne saurait pas.  
+334  
+Lâcher des ballons en latex, plastique ou aluminium dans le ciel pollue la terre, ce n’est pas parce que ça fait beau un moment que l’on a le droit de polluer. 335  
+Ce qui n’est pas de ma génération n’est pas un bon argument pour dire que l’on n’aime pas ou que l’on n’a pas envie de quelque chose, l’origine du temps n’a rien à voir avec l’appréciation des choses.  
+336  
 Certaines formes de vie proviennent d’inventeur négatifs donc dire que tout a son utilité est faux, on peut tuer certains êtres vivants méchants car le mal est dans la nature (moustiques, tiques : créés par des gens négatifs). Ils doivent changer de formes d’incarnations la prochaine fois pour arrêter de nous emmerder.
-Si la vie arrive sur une nouvelle planète, ne pas permettre les verrues à la piscine, le moustique qui vient nous piquer quand on ouvre la fenêtre, le tique quand on va dans la nature dense, la bestiole qui fait des trous dans les meubles et planchers, les limaces par milliers sur un terrain de 5000m2 qui mangent les légumes, ronces piquantes au lieu de ronces arbustives ou non piquantes… A croire que sur Terre ils auraient peut-être fait exprès de créer des emmerdeurs pour chaque type de situation. Tout ce qui crée de la torture et de l’emmerdement comme espèce ne devrait ne pas être permis quand une planète se développe.
-337
-Si tu n’es pas un mouton, les mauvais chiens rappliquent.
-Si tu n’es pas comme les autres, les basses consciences t’attaquent.
-338
-Il faut parfois amener la vérité discrètement et ne pas brusquer les choses pour réussir à la faire admettre.
-339
-Avorter est à éviter mais peut être compréhensible si il y a un viol ou si le bébé a une maladie grave ou une malformation… Si on veut un enfant, le prochain qui naitra s’incarne dans de bonnes conditions. Dans l’au-delà, le plan d’une incarnation est établit avant la conception, dans une fausse couche l’âme a décidé que ce n’était pas le moment.
-340
-Tout le monde peut faire de la corde à sauter, ça fait de l’exercice, il n’y a aucune honte à en faire, c’est la connerie des gens qui nous programme que c’est pour les enfants ou pour les filles.
-341
-Dans la vie il faut toujours faire des doubles sauvegardes des choses les plus précieuses. La copie par les autres permet aussi au créateur de plus grandes chances que ses œuvres soient préservés le plus longtemps possible. Avoir une copie à l’abri des radiations solaires sous aluminium pour les données informatiques.
-Sauvegarder en fichier texte aussi car c’est la version technologique la plus simple et facilement lisable.
-342
-Ne rien avoir à dire ne veut pas dire être timide.
-343
-Il faut savoir s’arrêter de convaincre la même personne quand cela s’avère impossible.
-344
-Il faut aller voir tout ce qu’il se dit avant de croire sa vision des choses, savoir la thèse et l’antithèse pour déceler la vérité.
-345
-L’univers ne peut  pas créer la vie physique sans faire le mal en 3ème dimension, c’est aux enfants de l’univers de réduire au maximum le mal.
-346
-Un jour quelqu’un te dit : « la nature est belle ici » mais depuis qu’il s’est installé la nature est devenue plus moche.
-347
-Il n’y a pas besoin de pousser des cris quand on fait des arts martiaux (ça peut être drôle), le ninja dans l’art de la dissimulation doit rester silencieux.
-348
-La même chose ne demande pas la même quantité de courage selon la personne.
-349
-Livre
+Si la vie arrive sur une nouvelle planète, ne pas permettre les verrues à la piscine, le moustique qui vient nous piquer quand on ouvre la fenêtre, le tique quand on va dans la nature dense, la bestiole qui fait des trous dans les meubles et planchers, les limaces par milliers sur un terrain de 5000m2 qui mangent les légumes, ronces piquantes au lieu de ronces arbustives ou non piquantes… A croire que sur Terre ils auraient peut-être fait exprès de créer des emmerdeurs pour chaque type de situation. Tout ce qui crée de la torture et de l’emmerdement comme espèce ne devrait ne pas être permis quand une planète se développe.  
+337  
+Si tu n’es pas un mouton, les mauvais chiens rappliquent.  
+Si tu n’es pas comme les autres, les basses consciences t’attaquent.  
+338  
+Il faut parfois amener la vérité discrètement et ne pas brusquer les choses pour réussir à la faire admettre.  
+339  
+Avorter est à éviter mais peut être compréhensible si il y a un viol ou si le bébé a une maladie grave ou une malformation… Si on veut un enfant, le prochain qui naitra s’incarne dans de bonnes conditions. Dans l’au-delà, le plan d’une incarnation est établit avant la conception, dans une fausse couche l’âme a décidé que ce n’était pas le moment.  
+340  
+Tout le monde peut faire de la corde à sauter, ça fait de l’exercice, il n’y a aucune honte à en faire, c’est la connerie des gens qui nous programme que c’est pour les enfants ou pour les filles.  
+341  
+Dans la vie il faut toujours faire des doubles sauvegardes des choses les plus précieuses. La copie par les autres permet aussi au créateur de plus grandes chances que ses œuvres soient préservés le plus longtemps possible. Avoir une copie à l’abri des radiations solaires sous aluminium pour les données informatiques.  
+Sauvegarder en fichier texte aussi car c’est la version technologique la plus simple et facilement lisable.  
+342  
+Ne rien avoir à dire ne veut pas dire être timide.  
+343  
+Il faut savoir s’arrêter de convaincre la même personne quand cela s’avère impossible.  
+344  
+Il faut aller voir tout ce qu’il se dit avant de croire sa vision des choses, savoir la thèse et l’antithèse pour déceler la vérité.  
+345  
+L’univers ne peut  pas créer la vie physique sans faire le mal en 3ème dimension, c’est aux enfants de l’univers de réduire au maximum le mal.  
+346  
+Un jour quelqu’un te dit : « la nature est belle ici » mais depuis qu’il s’est installé la nature est devenue plus moche.  
+347  
+Il n’y a pas besoin de pousser des cris quand on fait des arts martiaux (ça peut être drôle), le ninja dans l’art de la dissimulation doit rester silencieux.  
+348  
+La même chose ne demande pas la même quantité de courage selon la personne.  
+349  
+Livre  
 Une personne est ridicule et sale quand elle lèche son doigt pour tourner les pages d’un livre (se laver les mains avant de prendre un livre).
-Il vaut mieux compiler tout dans un seul livre de proverbes et poèmes à chaque fois que faire 3 tomes, cela évite d’acheter plusieurs livres et prend moins de place, si l’on retrouve le livre dans 10000 ans, on l’aura en entier ce qui est mieux qu’un morceau, on explique plusieurs fois la même chose sur plusieurs années mais le perroquet continue à critiquer négativement en disant que je dois séparer parce que je reprends du contenu de l’ancien en ajoutant, on peut pas parler avec un programme.
-Il ne peut pas être le meilleur livre si il y a que 1/3 du contenu. Le livre ultime est la meilleure version.
-Il faut numériser un maximum de livres en conservant toujours sa version physique et recopier les textes à l’aide de l’IA ou d’un robot pour gagner du temps car elle lit et recopie les textes sinon il y a trop de destruction à cause d’incendies ou autres facteurs de pertes. 
-350
+Il vaut mieux compiler tout dans un seul livre de proverbes et poèmes à chaque fois que faire 3 tomes, cela évite d’acheter plusieurs livres et prend moins de place, si l’on retrouve le livre dans 10000 ans, on l’aura en entier ce qui est mieux qu’un morceau, on explique plusieurs fois la même chose sur plusieurs années mais le perroquet continue à critiquer négativement en disant que je dois séparer parce que je reprends du contenu de l’ancien en ajoutant, on peut pas parler avec un programme.  
+Il ne peut pas être le meilleur livre si il y a que 1/3 du contenu. Le livre ultime est la meilleure version.  
+Il faut numériser un maximum de livres en conservant toujours sa version physique et recopier les textes à l’aide de l’IA ou d’un robot pour gagner du temps car elle lit et recopie les textes sinon il y a trop de destruction à cause d’incendies ou autres facteurs de pertes.   
+350  
 Facile de se croire juste et sage quand on n’est pas confronté à des événements de circonstance qui pourraient nous faire faire des bêtises.
 351
 Avoir des défauts n’empêche pas de donner des conseils quand on est sûr d’avoir raison.
