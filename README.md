@@ -4152,366 +4152,365 @@ Les gens de peu n’arrivent pas à se passer d’alcool pour faire la fête et 
 Véhicule ou voiture  
 Avoir une voiture au début du 21ème siècle, c’est le prix d’un appartement minimum ou d’une maison au cour d’une vie : achat, réparation obligatoire, payer l’assurance chaque année, essence. Autant prendre un vélo avec une remorque si l’on n’a pas des besoins trop éloignés et ainsi gagner en qualité de vie dans d’autres domaines plutôt qu’entretenir sa pauvreté pour certains.  
 Garder ses distances avec les véhicules, toujours vérifier 2 fois avant de traverser à pieds ou en voiture même avec le feu vert, toujours regarder derrière quand quelqu’un dépasse en voiture ou en vélo.  
-Avoir un hammerdex pour casser une vitre très solide quand on reste coincé dans une voiture ou un véhicule.
-Avoir un marteau ou une masse pour casser la vitre ou désemboiter la tête du siège pour casser la vitre quand on a rien d’autres mais les vitres peuvent être trop solides comparé aux premières voitures d’il y a longtemps si on reste coincé dans un véhicule dans un accident ou qu’il prend feu comme les véhicules à batterie électrique trop dangereux. La boucle de ceinture peut être utile pour casse la vitre ou pousser une voiture en panne.
+Avoir un hammerdex pour casser une vitre très solide quand on reste coincé dans une voiture ou un véhicule.  
+Avoir un marteau ou une masse pour casser la vitre ou désemboiter la tête du siège pour casser la vitre quand on a rien d’autres mais les vitres peuvent être trop solides comparé aux premières voitures d’il y a longtemps si on reste coincé dans un véhicule dans un accident ou qu’il prend feu comme les véhicules à batterie électrique trop dangereux. La boucle de ceinture peut être utile pour casse la vitre ou pousser une voiture en panne.  
 
-Avec une voiture anti gravitée volante, voler suffisamment haut pour ne pas heurter les animaux ou les gens.
+Avec une voiture anti gravitée volante, voler suffisamment haut pour ne pas heurter les animaux ou les gens.  
 
-921
-Certains génies ou talents n’ont pas besoin de cours d’enseignants qui peuvent être uniformes et imposer leurs règles pour accomplir leur art, ils cherchent et accomplissent seul.
-922
-Le méchant répand dans les deux camps des rumeurs pour créer des conflits dans le but de s’amuser, s’enrichir, gagner du pouvoir, il faut rechercher la source de la rumeur plutôt que réagir sans vérifier qui ment.
-923
-Il n’y a pas d’intérêt primordial à enterrer quelqu’un avec des habits s’il n’y a pas d’intérêt archéologique futur, cela est du gaspillage vestimentaire, (au moins un slip).
-924
-Commémorer les drames entretient des pensées négatives et baisse la vibration planétaire. Pour améliorer les choses, il suffit de bien éduquer et de faire des fêtes positives sans s’abaisser dans des drogues. 
-925
-L’arbre lâche des feuilles pour grandir, l’humain lâche son excès d’égo pour grandir.
-926
-L’automne nous dit à l’année prochaine par un envol de couleur.
-927
-Les erreurs peuvent amener des découvertes.
-(Donc une erreur n’est pas une vraiment une erreur selon le contexte).
-928
-Un maître enseignant est comme un arbre dont chacune de ses feuilles est une leçon.
-929
-Quand la vie t’envoie de la merde, fais-en du terreau.
-930
-On reçoit des fois des problèmes pour nous dévier vers de meilleures opportunités.
-931
-Si son mari ou sa femme a des douleurs musculaires qui perdurent et que l’un ou l’autre ne veut pas le masser, c’est un mauvais compagnon.
-932
-Il y a des gens qui savent gagner de l’argent mais qui ne savent pas bien le dépenser.
-933
-Il y a la personne intelligente, la personne cultivée et la personne sage.
-934
-La musique est le premier art du pauvre quand il ne reste rien, on peut chanter, faire la flûte avec sa bouche ou toutes les notes avec ses deux mains ; faire la percussion avec ses mains, ses pieds ou des bâtons.
-935
-Celui qui arrête de jouer devient un vieux.
-936
-Les jeux de hasard où l’on a une chance sur deux de gagner sont les jeux préférés des idiots. (humour)
-937
-Il est vraiment bon de faire croire à ton emmerdeur qu’il a gagné jusqu’àu jour où tu lui envoie ta carte joker dans sa face, ainsi le critiqueur se retrouve à la place du critiqué.  
-938
-Il faut faire attention à ce qu’on dit qui pourrait nous causer des ennuis car quelqu’un peut nous imiter et se faire passer pour nous, ou alors une coïncidence malchanceuse peut faire d’une personne désignée comme responsable. 
-939
-On peut écrire vite en écrivant lisiblement. Quand un médecin écrit très mal parce qu’il est pressé, il n’y a pas d’excuse, soit on écrit vite et lisiblement, soit on écrit plus lentement, soit on prend des cours d’écriture. Même un jour avec peu de patients, il y’en a qui écrivent mal.
-Des ordonnances de médicaments ou soins mal écrites sont responsables de beaucoup de morts. Il faudrait venir avec un papier et recopier soi-même ce que le médecin prescrit pour sécuriser l’information.
-Il y a des enfants qui peuvent écrire aussi vite qu’un médecin mais plus lisiblement.
-940
-Il y a des gens qui se permettent de modifier la mise en page d’un écrivain sans son autorisation et rajoute des nouvelles erreurs.
-941
-Les nuages forment un tableau changeant et sont comme un musée d’art qui vient à nous.
-942
-Un jeu vidéo ne doit pas nous obliger à faire des choses ennuyeuses et trop longues pour pouvoir débloquer toutes les options du jeu. Toutes les options du jeu doivent pouvoir être débloquées même par un débutant au bout d’un certain temps, il faut mettre seulement des titres de succès à débloquer pour les persévérants au lieu d’éléments de la jouabilité.
-943
-Toujours être le dernier à envoyer le dernier message pour le mougeon sinon risque qu’il t’accuse de ne pas répondre même s’il n’y a pas de question. Le mougeon t’insulte et te repproche d’être irrespectueux alors qu’il (ou elle plusieurs fois pour mon cas) parce que tu es accusé de ne pas répondre alors qu’il n’a pas posé de question, ça donnait pas l’impression qu’il fallait répondre, on a le droit de pas savoir quoi dire alors que ça a validé automatiquement quand on lit. En plus, répondre seulement oui n’est pas assez parce qu’elle croît que cela ne t’intéresse pas alors que juste tu ne sais pas quoi dire, (capricieuse).
-944
-Quelqu’un qui dit qu’il n’a peur de rien, c’est impossible car on aura forcément peur de quelques choses si on y est confronté à moins d’être invincible.
-945
+921  
+Certains génies ou talents n’ont pas besoin de cours d’enseignants qui peuvent être uniformes et imposer leurs règles pour accomplir leur art, ils cherchent et accomplissent seul.  
+922  
+Le méchant répand dans les deux camps des rumeurs pour créer des conflits dans le but de s’amuser, s’enrichir, gagner du pouvoir, il faut rechercher la source de la rumeur plutôt que réagir sans vérifier qui ment.  
+923  
+Il n’y a pas d’intérêt primordial à enterrer quelqu’un avec des habits s’il n’y a pas d’intérêt archéologique futur, cela est du gaspillage vestimentaire, (au moins un slip).  
+924  
+Commémorer les drames entretient des pensées négatives et baisse la vibration planétaire. Pour améliorer les choses, il suffit de bien éduquer et de faire des fêtes positives sans s’abaisser dans des drogues.  
+925  
+L’arbre lâche des feuilles pour grandir, l’humain lâche son excès d’égo pour grandir.  
+926  
+L’automne nous dit à l’année prochaine par un envol de couleur.  
+927  
+Les erreurs peuvent amener des découvertes.  
+(Donc une erreur n’est pas une vraiment une erreur selon le contexte).  
+928  
+Un maître enseignant est comme un arbre dont chacune de ses feuilles est une leçon.  
+929  
+Quand la vie t’envoie de la merde, fais-en du terreau.  
+930  
+On reçoit des fois des problèmes pour nous dévier vers de meilleures opportunités.  
+931  
+Si son mari ou sa femme a des douleurs musculaires qui perdurent et que l’un ou l’autre ne veut pas le masser, c’est un mauvais compagnon.  
+932  
+Il y a des gens qui savent gagner de l’argent mais qui ne savent pas bien le dépenser.  
+933  
+Il y a la personne intelligente, la personne cultivée et la personne sage.  
+934  
+La musique est le premier art du pauvre quand il ne reste rien, on peut chanter, faire la flûte avec sa bouche ou toutes les notes avec ses deux mains ; faire la percussion avec ses mains, ses pieds ou des bâtons.  
+935  
+Celui qui arrête de jouer devient un vieux.  
+936  
+Les jeux de hasard où l’on a une chance sur deux de gagner sont les jeux préférés des idiots. (humour)  
+937  
+Il est vraiment bon de faire croire à ton emmerdeur qu’il a gagné jusqu’au jour où tu lui envoie ta carte joker dans sa face, ainsi le critiqueur se retrouve à la place du critiqué.  
+938  
+Il faut faire attention à ce qu’on dit qui pourrait nous causer des ennuis car quelqu’un peut nous imiter et se faire passer pour nous, ou alors une coïncidence malchanceuse peut faire d’une personne désignée comme responsable.  
+939  
+On peut écrire vite en écrivant lisiblement. Quand un médecin écrit très mal parce qu’il est pressé, il n’y a pas d’excuse, soit on écrit vite et lisiblement, soit on écrit plus lentement, soit on prend des cours d’écriture. Même un jour avec peu de patients, il y en a qui écrivent mal.  
+Des ordonnances de médicaments ou soins mal écrites sont responsables de beaucoup de morts. Il faudrait venir avec un papier et recopier soi-même ce que le médecin prescrit pour sécuriser l’information.  
+Il y a des enfants qui peuvent écrire aussi vite qu’un médecin mais plus lisiblement.  
+940  
+Il y a des gens qui se permettent de modifier la mise en page d’un écrivain sans son autorisation et rajoute des nouvelles erreurs.  
+941  
+Les nuages forment un tableau changeant et sont comme un musée d’art qui vient à nous.  
+942  
+Un jeu vidéo ne doit pas nous obliger à faire des choses ennuyeuses et trop longues pour pouvoir débloquer toutes les options du jeu. Toutes les options du jeu doivent pouvoir être débloquées même par un débutant au bout d’un certain temps, il faut mettre seulement des titres de succès à débloquer pour les persévérants au lieu d’éléments de la jouabilité.  
+943  
+Toujours être le dernier à envoyer le dernier message pour le mougeon sinon risque qu’il t’accuse de ne pas répondre même s’il n’y a pas de question. Le mougeon t’insulte et te reproche d’être irrespectueux alors qu’il (ou elle plusieurs fois pour mon cas) parce que tu es accusé de ne pas répondre alors qu’il n’a pas posé de question, ça donnait pas l’impression qu’il fallait répondre, on a le droit de pas savoir quoi dire alors que ça a validé automatiquement quand on lit. En plus, répondre seulement oui n’est pas assez parce qu’elle croît que cela ne t’intéresse pas alors que juste tu ne sais pas quoi dire, (capricieuse).
+944  
+Quelqu’un qui dit qu’il n’a peur de rien, c’est impossible car on aura forcément peur de quelques choses si on y est confronté à moins d’être invincible.  
+945  
 Si on propose une récompense en bonus pour une tâche effectuée par rapport à la générosité normal, ça ne veut pas dire que c’est obligatoirement du  chantage.
-946
-Se taper tout seul pour se défouler d’un excès d’énervement ou d’une vie de merde peut se comprendre mais si on veut blesser son corps, ça peut rentrer dans la débilité  tout comme abîmer des objets intentionnellement car on peut déverser sa colère sur quelque chose mais en dessous de la limite de la détérioration. 
-947
-Le moujonc regarde le doigt mais ne va pas voir la main qui montre les autres doigts.
-Le moujonc (personne de peu) exagère, il fait des cas une généralité et a tendance à être manichéen (sois c’est bien, sois c’est mal) alors qu’il y a des grosses différences dans des catégories de personnes. 
-Ce n’est pas parce que seulement un petit nombre de la population fait quelque chose que ce n’est pas bien quand c’est fait harmonieusement.
-948
-On ne punit pas un voleur de nourriture quand c’est pour sa survie, on essaie de comprendre, d’arranger les choses et d’aider.
-949
-Il faut laisser la place à celui qui contribue le plus au bienfait du monde plutôt qu’à soi-même.
-950
-Comme un arbre, je m’élève en consolidant mes racines de savoir et en élargissant mon horizon.
+946  
+Se taper tout seul pour se défouler d’un excès d’énervement ou d’une vie de merde peut se comprendre mais si on veut blesser son corps, ça peut rentrer dans la débilité  tout comme abîmer des objets intentionnellement car on peut déverser sa colère sur quelque chose mais en dessous de la limite de la détérioration.  
+947  
+Le moujonc regarde le doigt mais ne va pas voir la main qui montre les autres doigts.  
+Le moujonc (personne de peu) exagère, il fait des cas une généralité et a tendance à être manichéen (sois c’est bien, sois c’est mal) alors qu’il y a des grosses différences dans des catégories de personnes.  
+Ce n’est pas parce que seulement un petit nombre de la population fait quelque chose que ce n’est pas bien quand c’est fait harmonieusement.  
+948  
+On ne punit pas un voleur de nourriture quand c’est pour sa survie, on essaie de comprendre, d’arranger les choses et d’aider.  
+949  
+Il faut laisser la place à celui qui contribue le plus au bienfait du monde plutôt qu’à soi-même.  
+950  
+Comme un arbre, je m’élève en consolidant mes racines de savoir et en élargissant mon horizon.  
 
-Divine France
+Divine France  
 
-Peuple de France,
-pays de grandes abondances.
-Un bel hexagone bien équilibré,
-accompagné de son île de beauté.
-Bordé de trois grands rivages,
-et riche de tous les paysages.
-Des petites et grandes montagnes,
-aux mignons petits villages de pierres en campagne.
-Beaucoup de châteaux dominent les cimes, 
-au milieu de la nature, des villages, des villes ou d’un pic, ils sont sublimes.
-Les plus jolies églises et cathédrales avec le mont st-Michel,
-une île trophée comme une mini montagne dans l’océan reflétant dans le ciel.
-Un riche langage,
-pour écrire les plus belles pages.
-A travers son histoire,
-les nombreux inventeurs ont fait sa gloire.
-La nourriture et les saveurs sont nombreuses,
-les pâtisseries sont particulièrement délicieuses.
-Des centaines de bons fromages,
-de la plaine à l’alpage.
-Les plus belles mélodies de musique,
-médiévales, de la renaissance et moderne ont embelli le grand cinéma de notes fantastiques.
-Les plus beaux costumes vestimentaires,
-ont été crée pour nous plaire.
-La conception des plus beaux bijoux,
-du meilleur des goûts.
-Cette nation est grande de sa diversité,
-et a le potentiel de toute la félicité.
+Peuple de France,  
+pays de grandes abondances.  
+Un bel hexagone bien équilibré,  
+accompagné de son île de beauté.  
+Bordé de trois grands rivages,  
+et riche de tous les paysages.  
+Des petites et grandes montagnes,  
+aux mignons petits villages de pierres en campagne.  
+Beaucoup de châteaux dominent les cimes,  
+au milieu de la nature, des villages, des villes ou d’un pic, ils sont sublimes.  
+Les plus jolies églises et cathédrales avec le mont st-Michel,  
+une île trophée comme une mini montagne dans l’océan reflétant dans le ciel.  
+Un riche langage,  
+pour écrire les plus belles pages.  
+A travers son histoire,  
+les nombreux inventeurs ont fait sa gloire.  
+La nourriture et les saveurs sont nombreuses,  
+les pâtisseries sont particulièrement délicieuses.  
+Des centaines de bons fromages,  
+de la plaine à l’alpage.  
+Les plus belles mélodies de musique,  
+médiévales, de la renaissance et moderne ont embelli le grand cinéma de notes fantastiques.  
+Les plus beaux costumes vestimentaires,  
+ont été crée pour nous plaire.  
+La conception des plus beaux bijoux,  
+du meilleur des goûts.  
+Cette nation est grande de sa diversité,  
+et a le potentiel de toute la félicité.  
 
-Sylvain Meili (16/06/2021 : n°21)
+Sylvain Meili (16/06/2021 : n°21)  
 
-951
-Plus on vibre haut, plus la paix est présente partout. Il faut vibrer haut car si on vibre bas, cela augmente le malheur sur la planète. La somme des vibrations de tous les humains crée la moyenne des vibrations.
-952
-Si des gens n’aiment pas la campagne, c’est parce que des gens l’on rendu monotone et très exploitée loin de la diversité d’autrefois et des beautés des ancêtres arborés ou parce qu’ils s’ennuient.
-953
-Le plus grand défi est d’être le plus parfait au milieu de tous les types d’imperfection.
-954
+951  
+Plus on vibre haut, plus la paix est présente partout. Il faut vibrer haut car si on vibre bas, cela augmente le malheur sur la planète. La somme des vibrations de tous les humains crée la moyenne des vibrations.  
+952  
+Si des gens n’aiment pas la campagne, c’est parce que des gens l’on rendu monotone et très exploitée loin de la diversité d’autrefois et des beautés des ancêtres arborés ou parce qu’ils s’ennuient.  
+953  
+Le plus grand défi est d’être le plus parfait au milieu de tous les types d’imperfection.  
+954  
 La pluie qui tombe sur le toit fait une jolie compagnie avant le voyage des rêves.  
-955
-L’eau est une merveille, c’est un miroir des beautés. 
-L’eau pure est le miroir reflétant de la beauté des couleurs rayonnantes.
-  En glace, du sport : on peut y faire du patin à glace de vitesse ou artistique, du hockey, curling, bobsleigh, luge. 
-Elle peut nous apprendre à sculpter sans couper d’arbre, on s’amuse à la craquer sous nos pieds. Elle crée des stalactites et des stalagmites.
-  En grêle, dommage, il  n’y a rien à dire.
-  En neige, tants de sports : on y glisse sur des luges, skis, planches. 
-On crée des décors, des igloos, on joue à la bataille de boules de neige.
-  En eau, on fait des sports : la liste est très longue… On nage avec, on saute dedans, on navigue, on se balance et on y glisse à l’aide d’objets, on se lance des ballons, jeu de celui qui tombe dans l’eau en premier de diverses manières, on fait des ricochets. 
-Elle chantonne dans des chutes d’eau et en tombant sur les divers surfaces, elle polit les pierres et purifie nos corps, elle crée des arcs en ciel.
-  En vapeur, elle décors les plaines et les collines de brumes ainsi que les montagnes et le ciel de nuages de diverses formes. 
-On n’a pas encore trouvé de sport dans la vapeur.
-956
-On devrait ne jamais construire des habitations à moins de 20 km d’un volcan.
-957
-On ne peut pas juger l’aperçu de la réussite de quelqu’un ou qu’il a de la chance quand on ne voit pas ce qu’il vit derrière, sa vie antérieure ou son futur.
-958
-L’obligation de mettre au travail des quotas d’ethnies ou de catégories de personnes pour promouvoir l’égalité (illusoire) empêchent des gens talentueux de mettre en œuvre le meilleur résultat.
-Si cela fait baisser le niveau de la société, il y aura moins d’égalité, il faut l’égalité avec l’équilibre (placer aux meilleurs endroits pour augmenter la richesse de tous) et la méritocratie.
-Des employeurs jugent trop vite et te vire sans te laisser le temps de t’améliorer et sans te prévenir, dire par exemple : si tu fais trop de fautes, on ne pourra pas te garder aurait été mieux, il te remplace pour reformer quelqu’un mais pendant ce temps là, on aurait pu avoir le niveau requis.
-Les cons qui virent du travail seulement pour une petite blague ou drague ou pour des vérités que les autres ne croient pas.
+955  
+L’eau est une merveille, c’est un miroir des beautés.  
+L’eau pure est le miroir reflétant de la beauté des couleurs rayonnantes.  
+  En glace, du sport : on peut y faire du patin à glace de vitesse ou artistique, du hockey, curling, bobsleigh, luge.   
+Elle peut nous apprendre à sculpter sans couper d’arbre, on s’amuse à la craquer sous nos pieds. Elle crée des stalactites et des stalagmites.  
+  En grêle, dommage, il  n’y a rien à dire.  
+  En neige, tants de sports : on y glisse sur des luges, skis, planches.  
+On crée des décors, des igloos, on joue à la bataille de boules de neige.  
+  En eau, on fait des sports : la liste est très longue… On nage avec, on saute dedans, on navigue, on se balance et on y glisse à l’aide d’objets, on se lance des ballons, jeu de celui qui tombe dans l’eau en premier de diverses manières, on fait des ricochets.  
+Elle chantonne dans des chutes d’eau et en tombant sur les divers surfaces, elle polit les pierres et purifie nos corps, elle crée des arcs en ciel.  
+  En vapeur, elle décors les plaines et les collines de brumes ainsi que les montagnes et le ciel de nuages de diverses formes.  
+On n’a pas encore trouvé de sport dans la vapeur.  
+956  
+On devrait ne jamais construire des habitations à moins de 20 km d’un volcan.  
+957  
+On ne peut pas juger l’aperçu de la réussite de quelqu’un ou qu’il a de la chance quand on ne voit pas ce qu’il vit derrière, sa vie antérieure ou son futur.  
+958  
+L’obligation de mettre au travail des quotas d’ethnies ou de catégories de personnes pour promouvoir l’égalité (illusoire) empêchent des gens talentueux de mettre en œuvre le meilleur résultat.  
+Si cela fait baisser le niveau de la société, il y aura moins d’égalité, il faut l’égalité avec l’équilibre (placer aux meilleurs endroits pour augmenter la richesse de tous) et la méritocratie.  
+Des employeurs jugent trop vite et te vire sans te laisser le temps de t’améliorer et sans te prévenir, dire par exemple : si tu fais trop de fautes, on ne pourra pas te garder aurait été mieux, il te remplace pour reformer quelqu’un mais pendant ce temps là, on aurait pu avoir le niveau requis.  
+Les cons qui virent du travail seulement pour une petite blague ou drague ou pour des vérités que les autres ne croient pas.  
 
-Tu rates un appel d’un fixe à 9h46 pour un travail, tu rappelles plusieurs fois à partir de 10h26  après et l’autre ne rappelle jamais, il ne laisse pas de deuxième chance ce moujonc (Travail de surveillances de jardins publiques raté, on m’a volé ma place, j’ai appris que la sélection avait été dans l’après-midi de l’appel).
+Tu rates un appel d’un fixe à 9h46 pour un travail, tu rappelles plusieurs fois à partir de 10h26  après et l’autre ne rappelle jamais, il ne laisse pas de deuxième chance ce moujonc (Travail de surveillances de jardins publiques raté, on m’a volé ma place, j’ai appris que la sélection avait été dans l’après-midi de l’appel).  
 
-959
-Il est prudent d’avoir un plan a et un plan de secours b et c...
-960
-Toujours avoir un bout de crayon et un bout de papier dans sa veste pourrait être très utile un jour.
-961
-Pour augmenter la chance, il faut alléger le mental.
+959  
+Il est prudent d’avoir un plan a et un plan de secours b et c...  
+960  
+Toujours avoir un bout de crayon et un bout de papier dans sa veste pourrait être très utile un jour.  
+961  
+Pour augmenter la chance, il faut alléger le mental.  
 962
-Le moujonc a la tendance du sens de la girouette.
-963
-Tout ce qui exige du sang dans un rituel est un sorcier du mal.
-964
-Vengeance et mal
-Souhaiter la souffrance de son ennemi, c’est se mettre du côté du mal.
-Celui qui se venge en torturant est le mal, infligé plus de douleur physique que ce que l’autre a fait est un acte de mal, laisser mourir dans un endroit où les circonstances le font mourir de torture est faire le mal, envoyer de pensées de torture (ou taper les gens de manière à faire mal) envers quelqu’un quoi qu’il fait même si c’est un tortureur est faire le mal, les mauvaises pensées atteignent inconciemment la conscience collective et influence l’augmentation des malheurs. 
+Le moujonc a la tendance du sens de la girouette.  
+963  
+Tout ce qui exige du sang dans un rituel est un sorcier du mal.  
+964  
+Vengeance et mal  
+Souhaiter la souffrance de son ennemi, c’est se mettre du côté du mal  .
+Celui qui se venge en torturant est le mal, infligé plus de douleur physique que ce que l’autre a fait est un acte de mal, laisser mourir dans un endroit où les circonstances le font mourir de torture est faire le mal, envoyer de pensées de torture (ou taper les gens de manière à faire mal) envers quelqu’un quoi qu’il fait même si c’est un tortureur est faire le mal, les mauvaises pensées atteignent inconsciemment la conscience collective et influence l’augmentation des malheurs. 
 
-Je ne suis pas responsable des mauvais agissements de mes ancêtres ou d’un membre de ma famille car je ne les ai pas obligatoirement mal incités, chaque conscience d’une famille peut penser différemment et même à l’opposé surtout qu’en se réincarnant on peut avoir des ancêtres européens ou asiatiques, je ne m’excuse pas mais je peux reconnaître qu’ils ont mal agis et m’engager pour un monde plus égalitaire.
+Je ne suis pas responsable des mauvais agissements de mes ancêtres ou d’un membre de ma famille car je ne les ai pas obligatoirement mal incités, chaque conscience d’une famille peut penser différemment et même à l’opposé surtout qu’en se réincarnant on peut avoir des ancêtres européens ou asiatiques, je ne m’excuse pas mais je peux reconnaître qu’ils ont mal agis et m’engager pour un monde plus égalitaire.  
 
-Il faut interdire la vente et l’utilisation de pièges qui tuent des animaux (ex : souris, rats) lentement dans d’horribles souffrances comme de la colle ou tapette qui écrase par une barre de fer, ces gens sont des démons. 
+Il faut interdire la vente et l’utilisation de pièges qui tuent des animaux (ex : souris, rats) lentement dans d’horribles souffrances comme de la colle ou tapette qui écrase par une barre de fer, ces gens sont des démons.  
 
-Faire à attention si on a des animaux, de prévoir au cas où on meurt qu’on s’occupe d’eux, pas qu’ils meurent de faim chez soi : maison, cabane ou terrain car aucune personne n’est au courant.
+Faire à attention si on a des animaux, de prévoir au cas où on meurt qu’on s’occupe d’eux, pas qu’ils meurent de faim chez soi : maison, cabane ou terrain car aucune personne n’est au courant.  
 
-On ne peut pas vraiment gagner les jeux olympiques si on empêche la participation d’athlètes qui peuvent nous battre à cause de raisons politiques ou de conflits dans le monde.
+On ne peut pas vraiment gagner les jeux olympiques si on empêche la participation d’athlètes qui peuvent nous battre à cause de raisons politiques ou de conflits dans le monde.  
 
-965
-La danse de la rivière fait durer le plaisir.
-966
-On devrait être tous propriétaire de son logement sauf si on aime souvent déménager, quand c’est de la nature on doit être son gardien et ne pas se permettre de faire n’importe quoi sous prétexte qu’on a des droits dessus en étant propriétaire.
-967
-L’ignorance et la peur sont les pires blocages à un bon avenir.
-968
-Si il y avait des arbres géants de plusieurs km de hauts, vivre dedans serait risquer de se prendre un bout de branche sur la tête.
-969
-Ne jamais juger est impossible.
-Ne jamais juger, c’est devenir un programme, il faut juste le faire de manière la plus harmonieuse, il faut éviter et trouver le constat.
-970
-Celui qui a peur des esprits désincarnés et n’y croit pas y croit un peu sinon il n’aurait pas peur.
-971
-Plus tu es méchant, plus un futur pauvre t’attends. Plus tu es conscient et juste, plus la richesse de l’univers est accessible. Tout cela ne se calcule pas à l’échelle que d’une seule vie mais sur plusieurs.
-972
-Le consentement 
-(Attention, mon avis n’est pas le même que certaines lois).
-Le consentement dépend de la capacité de la conscience, de son savoir, la capacité de répondre et de se défendre.
-Un consentement est vrai seulement quand il est librement éclairé par des explications véridiques et sur les conséquences. Sinon s’il y a un piège, il est moins consenti par l’idiotie ou l’ignorance de la victime ou par le chantage de quelques libertés ou de l’appât d’une petite récompense. S’il y a du chantage qui risque de détruire sa vie par des menaces, ce n’est pas un vrai consentement.
-La conscience n’a pas la même évolution selon l’âge, le caractère et les incarnations donc mettre une barrière manichéenne à partir d’un âge n’est pas la vérité mais un prétexte pour diminuer la nuisance de certaines personnes ou de certaines choses. Penser que quand c’est interdit, un peu avant tu ne peux pas être consentent et un peu après tu es consentent : c’est ridicule et c’est manichéen. C’est beaucoup plus compliqué comme la nuit n’arrive pas d‘un seul coup (cases blanches qui diminueent et cases grises et noires qui apparaîssent plus on descend), les risques des conséquences augmentent. 
+965  
+La danse de la rivière fait durer le plaisir.  
+966  
+On devrait être tous propriétaire de son logement sauf si on aime souvent déménager, quand c’est de la nature on doit être son gardien et ne pas se permettre de faire n’importe quoi sous prétexte qu’on a des droits dessus en étant propriétaire.  
+967  
+L’ignorance et la peur sont les pires blocages à un bon avenir.  
+968  
+Si il y avait des arbres géants de plusieurs km de hauts, vivre dedans serait risquer de se prendre un bout de branche sur la tête.  
+969  
+Ne jamais juger est impossible.  
+Ne jamais juger, c’est devenir un programme, il faut juste le faire de manière la plus harmonieuse, il faut éviter et trouver le constat.  
+970  
+Celui qui a peur des esprits désincarnés et n’y croit pas y croit un peu sinon il n’aurait pas peur.  
+971  
+Plus tu es méchant, plus un futur pauvre t’attends. Plus tu es conscient et juste, plus la richesse de l’univers est accessible. Tout cela ne se calcule pas à l’échelle que d’une seule vie mais sur plusieurs.  
+972  
+Le consentement   
+(Attention, mon avis n’est pas le même que certaines lois).  
+Le consentement dépend de la capacité de la conscience, de son savoir, la capacité de répondre et de se défendre.  
+Un consentement est vrai seulement quand il est librement éclairé par des explications véridiques et sur les conséquences. Sinon s’il y a un piège, il est moins consenti par l’idiotie ou l’ignorance de la victime ou par le chantage de quelques libertés ou de l’appât d’une petite récompense. S’il y a du chantage qui risque de détruire sa vie par des menaces, ce n’est pas un vrai consentement.  
+La conscience n’a pas la même évolution selon l’âge, le caractère et les incarnations donc mettre une barrière manichéenne à partir d’un âge n’est pas la vérité mais un prétexte pour diminuer la nuisance de certaines personnes ou de certaines choses. Penser que quand c’est interdit, un peu avant tu ne peux pas être consentent et un peu après tu es consentent : c’est ridicule et c’est manichéen. C’est beaucoup plus compliqué comme la nuit n’arrive pas d‘un seul coup (cases blanches qui diminuent et cases grises et noires qui apparaissent plus on descend), les risques des conséquences augmentent. 
 Couples : plus l’âge est tôt plus l’augmentation de risque d’addiction peu arriver ainsi que d’être enceinte (on peut faire les autres choses/positions qui ne font pas tomber enceinte) trop tôt est donc dangereux et grave, de développer trop le plaisir d’addiction (pertes d’énergies) et la fainéantise au détriment de l’intelligence et de la sagesse (ça dépends de la personnalité, cela peut parfois te motiver pour travailler plus ou te rendre plus addict et plus fainéant),  problèmes sociétaux et traumatismes, tout cela dépend de l’état de conscience des individus et la capacité de consentement diminue plus l’âge diminue.
-Attention de ne pas attraper des maladies comme le sida ou autres.
-Il y a des extrémistes dictateur qui vont jusque dire qu’avoir une copine de 17 ans parce qu’on est majeur est un viol et que elle ne peut pas être consentente (comme dit une abrutie programmée manichéenne qui a fait une licence de philosophie (ça n’empêche pas d’être con) et en plus elle se trompe sur la loi de la France à l’époque, si on a pas autorité sur elle comme être son professeur, il n’y a pas de problêmes à partir de ses 15 ans, c’est être adophile), alors si ils sont heureux, elle leur détruirait la vie ajoutant de la negativité sur Terre.
-On demande l’avis de la personne supposée victime ou pas, qui peut ne pas se considérer comme victime car tu la traumatise par ta réaction et pas par ses choix, cela varie selon les circonstances précises au lieu de punir comme un programme et d’ajouter du malheur à 2 personnes et des mauvaises conséquences sur les autres.
-Certaines de 14 ans peuvent paraître le même âge que certaines de 18 ans.
-Quand on touche un sein sans prévenir même si ça ne se fait pas, ainsi qu’embrasser sans prévenir ou en allant trop vite sans le temps d’esquiver, les mougeons qualifient ça d’agression sexuel alors que le sexe est plus bas et si une femme touche les pectoraux d’un homme sans prévenir, on en fait rarement un drame, on devrait parler d’attouchement innaproprié. En utilisant des mots qui ne correspondent pas, cela met de la confusion dans la pensée alors changez vos définitions.
-La frontière du mal varie selon les gens et leurs gôuts, il y a une universalité du bien mais qui ne peut pas être parfaitement définie et peut être flou sur certains aspects.
-L’animal n’est pas consentant quand on le tue pour le manger.
-En dehors d’une survie obligée, donner à manger de la viande aux enfants sans expliquer comment l’animal  a été tué et sans se mettre à sa place, n’est-ce pas de la corruption contre les animaux, sans explications, ce n’est pas un vrai consentement.
+Attention de ne pas attraper des maladies comme le sida ou autres.  
+Il y a des extrémistes dictateur qui vont jusque dire qu’avoir une copine de 17 ans parce qu’on est majeur est un viol et que elle ne peut pas être consentante (comme dit une abrutie programmée manichéenne qui a fait une licence de philosophie (ça n’empêche pas d’être con) et en plus elle se trompe sur la loi de la France à l’époque, si on a pas autorité sur elle comme être son professeur, il n’y a pas de problèmes à partir de ses 15 ans, c’est être adophile), alors si ils sont heureux, elle leur détruirait la vie ajoutant de la négativité sur Terre.  
+On demande l’avis de la personne supposée victime ou pas, qui peut ne pas se considérer comme victime car tu la traumatise par ta réaction et pas par ses choix, cela varie selon les circonstances précises au lieu de punir comme un programme et d’ajouter du malheur à 2 personnes et des mauvaises conséquences sur les autres.  
+Certaines de 14 ans peuvent paraître le même âge que certaines de 18 ans.  
+Quand on touche un sein sans prévenir même si ça ne se fait pas, ainsi qu’embrasser sans prévenir ou en allant trop vite sans le temps d’esquiver, les mougeons qualifient ça d’agression sexuel alors que le sexe est plus bas et si une femme touche les pectoraux d’un homme sans prévenir, on en fait rarement un drame, on devrait parler d’attouchement inapproprié. En utilisant des mots qui ne correspondent pas, cela met de la confusion dans la pensée alors changez vos définitions.  
+La frontière du mal varie selon les gens et leurs goûts, il y a une universalité du bien mais qui ne peut pas être parfaitement définie et peut être flou sur certains aspects.  
+L’animal n’est pas consentant quand on le tue pour le manger.  
+En dehors d’une survie obligée, donner à manger de la viande aux enfants sans expliquer comment l’animal  a été tué et sans se mettre à sa place, n’est-ce pas de la corruption contre les animaux, sans explications, ce n’est pas un vrai consentement.  
 Sommes nous vraiment consentent quand on se fait arnaquer ? (pas assez informé par l’éducation ou pas assez curieux du savoir ou manque d’intelligence)
-On ne perd pas l’innocence, c’est celui qui fait le mal qui est coupable. 
-On n’est pas consentent quand on se fait hypnotiser dans certains rêves et qu’on fait une chose qu’on ne voulait pas faire en pleine conscience.
-Ce n’est pas parce que tu n’y pense pas que l’on ne peut pas te faire découvrir quelque chose si c’est bien fait dans l’harmonie. 
-Si tu condamne quelqu’un au-delà de ce qu’il mérite tu diminue la qualité de tout ce qu’il se passe dans l’univers.
-Parfois, on peut changer d’avis peu de temps après, il n’y a rien de mal à demander une 2ème fois, si on se laisse faire sans rien dire et sans se faire menacer, il ne faut pas venir se plaindre après.
-On peut être consentent avec suffisamment d’informations.
-Pour être parfaitement consentant, il faut peut-être connaître parfois le sujet à 100% (ex : ingrédients de nourriture).
-973
-Une bonne poésie peut donner une leçon tout en étant belle et en rimes.
-974
-Il est important de comprendre son erreur, moins d’être informé qu’on la faite. Il  faut essayer de s’entrainer à trouver la réponse seul avant qu’on nous la donne sauf quand c’est trop difficile.
-975
-Il n’y a pas d’égalité dans l’ascension car on n’a pas tous les mêmes circonstances. Le programme automatique n’est pas assez perfectionné pour faire la différence entre celui qui vibre bas à cause de la méchanceté des autres et celui qui vibre bas parce que c’est un vrai con, il se contente de renvoyer tes énergies/vibrations sans discernements avec des nouveaux cons ou emmerdeurs ou défaites. Il faut trouver un nouveau contrat de réincarnation pour demander réparation, alors même si certains méchants s’en sortent bien cette fois ci, dans leur prochaine vie, attention pour eux.
-A cause de mauvaises circonstances de réincarnation, on peut te croîre plus con que lors de ta précédente incarnation, alors que tu as gagné en évolution, simplement parce que il y a quelquechose que tu n’as pas réussi à avoir dans cette vie à cause des cons.
-976
-Les plus grands génies peuvent être les plus mal servis.
-C’est un génie artistique et philosophique mais il n’arrive pas à avoir une vie normale (à cause des cons).
-977
-L’arc en ciel est comme le symbole du ying yang qui nous montre l’harmonie de l’équilibre qui combine le soleil et l’eau.
-978
-Mettre des personnages et des images pour apprendre des leçons écrites augmentent la motivation d’apprendre.
-979
-Les plus forts utilisent leurs volontés au lieu de prendre des médicaments qui agissent sur leur psyché pour arrêter de fumer, maigrir, stopper la dépression…
-Pour soigner le psychologique, on doit utiliser la morale et la philosophie, pas un médicament.
-980
-Au  lieu de perdre son temps à continuer d’écouter des personnes qui tournent en rond, il faut écouter des gens qui nous élèvent.
-981
-Chaque enfant doit avoir accès à une bibliothèque.
-982
-Le karma rééquilibre les énergies négatives et positives en fonction de notre vie. Ce que tu fais à l’autre, tu le fais à ton karma et cela a des répercutions sur d’autres personnes.
-983
-La plus belle nature est au paradis. Il est plus facile d’être serein quand la nature est proche.
-984
-Même si tu n’es pas un bon exemple, tu peux toujours inciter à avoir un bon comportement sur des sujets car l’autre va peut-être changer grâce à toi et faire mieux que toi.
-985
-Le premier livre est comme la date de naissance des pages d’un artiste.
-986
-Il vint cette œuvre qui joint un jour la reconnexion dans l‘au-delà de ses œuvres passées : une renaissance.
-987
+On ne perd pas l’innocence, c’est celui qui fait le mal qui est coupable.  
+On n’est pas consentent quand on se fait hypnotiser dans certains rêves et qu’on fait une chose qu’on ne voulait pas faire en pleine conscience.  
+Ce n’est pas parce que tu n’y pense pas que l’on ne peut pas te faire découvrir quelque chose si c’est bien fait dans l’harmonie.  
+Si tu condamne quelqu’un au-delà de ce qu’il mérite tu diminue la qualité de tout ce qu’il se passe dans l’univers.  
+Parfois, on peut changer d’avis peu de temps après, il n’y a rien de mal à demander une 2ème fois, si on se laisse faire sans rien dire et sans se faire menacer, il ne faut pas venir se plaindre après.  
+On peut être consentent avec suffisamment d’informations.  
+Pour être parfaitement consentant, il faut peut-être connaître parfois le sujet à 100% (ex : ingrédients de nourriture).  
+973  
+Une bonne poésie peut donner une leçon tout en étant belle et en rimes.  
+974  
+Il est important de comprendre son erreur, moins d’être informé qu’on la faite. Il  faut essayer de s’entrainer à trouver la réponse seul avant qu’on nous la donne sauf quand c’est trop difficile.  
+975  
+Il n’y a pas d’égalité dans l’ascension car on n’a pas tous les mêmes circonstances. Le programme automatique n’est pas assez perfectionné pour faire la différence entre celui qui vibre bas à cause de la méchanceté des autres et celui qui vibre bas parce que c’est un vrai con, il se contente de renvoyer tes énergies/vibrations sans discernements avec des nouveaux cons ou emmerdeurs ou défaites. Il faut trouver un nouveau contrat de réincarnation pour demander réparation, alors même si certains méchants s’en sortent bien cette fois ci, dans leur prochaine vie, attention pour eux.  
+A cause de mauvaises circonstances de réincarnation, on peut te croire plus con que lors de ta précédente incarnation, alors que tu as gagné en évolution, simplement parce que il y a quelquechose que tu n’as pas réussi à avoir dans cette vie à cause des cons.  
+976  
+Les plus grands génies peuvent être les plus mal servis.  
+C’est un génie artistique et philosophique mais il n’arrive pas à avoir une vie normale (à cause des cons).  
+977  
+L’arc en ciel est comme le symbole du ying yang qui nous montre l’harmonie de l’équilibre qui combine le soleil et l’eau.  
+978  
+Mettre des personnages et des images pour apprendre des leçons écrites augmentent la motivation d’apprendre.  
+979  
+Les plus forts utilisent leurs volontés au lieu de prendre des médicaments qui agissent sur leur psyché pour arrêter de fumer, maigrir, stopper la dépression…  
+Pour soigner le psychologique, on doit utiliser la morale et la philosophie, pas un médicament.  
+980  
+Au  lieu de perdre son temps à continuer d’écouter des personnes qui tournent en rond, il faut écouter des gens qui nous élèvent.  
+981  
+Chaque enfant doit avoir accès à une bibliothèque.  
+982  
+Le karma rééquilibre les énergies négatives et positives en fonction de notre vie. Ce que tu fais à l’autre, tu le fais à ton karma et cela a des répercutions sur d’autres personnes.  
+983  
+La plus belle nature est au paradis. Il est plus facile d’être serein quand la nature est proche.  
+984  
+Même si tu n’es pas un bon exemple, tu peux toujours inciter à avoir un bon comportement sur des sujets car l’autre va peut-être changer grâce à toi et faire mieux que toi.  
+985  
+Le premier livre est comme la date de naissance des pages d’un artiste.  
+986  
+Il vint cette œuvre qui joint un jour la reconnexion dans l‘au-delà de ses œuvres passées : une renaissance.  
+987  
 Plus la vibration est basse, plus le corps est lourd et dense, moins il y a de magie.
-Il y’en a qui font croire qu’ils ont de la magie où sont des dieux grâce à la technologie (téléportation, hologramme, onde tremblement de terre).
+Il y en a qui font croire qu’ils ont de la magie où sont des dieux grâce à la technologie (téléportation, hologramme, onde tremblement de terre).
 La magie peut aussi être naturelle dans une haute dimension ou l’astral.
-988
-Vaisseau spatial antigravité (synthèse de séries de science-fiction)
-500 ou 1500 mètres de long ou plus.
-Quelques centaines de personnes à bord.
-Plusieurs couches de coque ultra solide, au moins 3.
-Etre armé pour se défendre, armes laser, torpilles.
-Vitesse de déplacement la plus rapide.
-Protection d’un champ magnétique autour du vaisseau (bouclier déflecteur).
-Système d’énergie autorégénérant.
-Un vaisseau capable d’occultation pour éviter de se faire attaquer.
+988  
+Vaisseau spatial antigravité (synthèse de séries de science-fiction)  
+500 ou 1500 mètres de long ou plus.  
+Quelques centaines de personnes à bord.  
+Plusieurs couches de coque ultra solide, au moins 3.  
+Être armé pour se défendre, armes laser, torpilles.  
+Vitesse de déplacement la plus rapide.  
+Protection d’un champ magnétique autour du vaisseau (bouclier déflecteur).  
+Système d’énergie autorégénérant.  
+Un vaisseau capable d’occultation pour éviter de se faire attaquer.  
 Ne pas laisser d’empreinte énergétique traçable.
-Avoir plusieurs moteurs et alimenteurs d’énergies à différents endroits.
-Un vaisseau emboîtable séparable en 2 parties indépendantes.
-Avoir un rayon tracteur et grappin à aimant.
-Prévoir des navettes internes au vaisseau capablent de le remorquer en cas d’impossiblité de réparation.
-Prévoir au moins 2 zones d’emboîtages suplémentaires pour 2 vaisseaux en plus.
-Une accroche d’appontage capable de s’adapter à une forme extérieure comme un autre vaisseau pour pouvoir y entrer.
-Il faut prévoir en plus des données sauvegardéés un 2ème stockage de données déconnecté et mise à jour régulièrement et un 3 ème stockage en dehors du vaisseau en partageant avec d’autres vaisseaux alliés ou sur une planète.
-Avoir un synthétiseur de matière, réplicateur ou dématérialiseur (nourriture, matière, objet), un stock de nourriture physique.
-Avoir au moins 2 personnes ou plus qualifiés ingénieurs sur le même domaine d’éxécution comme réparation moteur au cas où l’un meurt.
-Prévoir des armes contrôlables à distance qui endorment ou qui tuent en cas d’invasions vers le moteur ou les cargaisons…
-Avoir plusieurs salles de téléportations.
-Radars détecteur de vies.
-Traducteurs de langues.
-Prévoir un language en montrant ou en envoyant des images pour communiquer à des personnes de language inconnu.
-Armure de soldat, tenues cosmonautes pour sortie dans l’espace.
-Une fausse autodestruction pour faire fuir les assaillants.
-Des sondes de détection ou pour leurrer l’ennemi.
-Plusieurs systèmes indépendants d’alimentation en air respirable.
-Une zone avec des plantes.
+Avoir plusieurs moteurs et alimenteurs d’énergies à différents endroits.  
+Un vaisseau emboîtable séparable en 2 parties indépendantes.  
+Avoir un rayon tracteur et grappin à aimant.  
+Prévoir des navettes internes au vaisseau capables de le remorquer en cas d’impossiblité de réparation.  
+Prévoir au moins 2 zones d’emboîtages supplémentaires pour 2 vaisseaux en plus.  
+Une accroche d’appontage capable de s’adapter à une forme extérieure comme un autre vaisseau pour pouvoir y entrer.  
+Il faut prévoir en plus des données sauvegardées un 2ème stockage de données déconnecté et mise à jour régulièrement et un 3 ème stockage en dehors du vaisseau en partageant avec d’autres vaisseaux alliés ou sur une planète.  
+Avoir un synthétiseur de matière, réplicateur ou dématérialiseur (nourriture, matière, objet), un stock de nourriture physique. 
+Avoir au moins 2 personnes ou plus qualifiés ingénieurs sur le même domaine d’exécution comme réparation moteur au cas où l’un meurt.  
+Prévoir des armes contrôlables à distance qui endorment ou qui tuent en cas d’invasions vers le moteur ou les cargaisons…  
+Avoir plusieurs salles de téléportations.  
+Radars détecteur de vies.  
+Traducteurs de langues.  
+Prévoir un langage en montrant ou en envoyant des images pour communiquer à des personnes de langage inconnu.  
+Armure de soldat, tenues cosmonautes pour sortie dans l’espace.  
+Une fausse autodestruction pour faire fuir les assaillants.  
+Des sondes de détection ou pour leurrer l’ennemi.  
+Plusieurs systèmes indépendants d’alimentation en air respirable.  
+Une zone avec des plantes.  
 
-Un moyen indolore de se suicider dans sa poche  au cas où c’est sans espoir.
-Pouvoir mettre en sécurité et compartimenter le vaisseau de façon électronique ou manuelle.
-Modules dévacuations de secours de mini navettes.
-Les meilleurs moyens de soins possibles, docteur et machine qui régénère les blessures.
-Recyclage complet des déchets.
-Avoir des choses à vendre au cas où.
-Holodeck qui recrée des éléments virtuels pour s’entraîner ou le divertissement.
-Avoir des phasers à plusieurs niveaux d’attaques (paralysant, endormant et différentes intensités pour blésser ou tuer), des armes à balles ou qui endorment au cas où les armes à phaser sont inefficaces.
-Une zone de décontamination contre les maladies.
-Robot ou hologramme durci. 
-Protection de vitres filtrantes contre les radiations de certaines zones de l espace et des étoiles, (éviter de regarder les étoiles pour ne pas finir aveugle si on est trop près).
-Extincteur de feu.
-Créer ou utiliser si ça existe un language photographique de base en cas de contact avec un language inconnu.
+Un moyen indolore de se suicider dans sa poche  au cas où c’est sans espoir.  
+Pouvoir mettre en sécurité et compartimenter le vaisseau de façon électronique ou manuelle.  
+Modules dévacuations de secours de mini navettes.  
+Les meilleurs moyens de soins possibles, docteur et machine qui régénère les blessures.  
+Recyclage complet des déchets.  
+Avoir des choses à vendre au cas où.  
+Holodeck qui recrée des éléments virtuels pour s’entraîner ou le divertissement.  
+Avoir des phasers à plusieurs niveaux d’attaques (paralysant, endormant et différentes intensités pour blesser ou tuer), des armes à balles ou qui endorment au cas où les armes à phaser sont inefficaces.  
+Une zone de décontamination contre les maladies.  
+Robot ou hologramme durci.  
+Protection de vitres filtrantes contre les radiations de certaines zones de l espace et des étoiles, (éviter de regarder les étoiles pour ne pas finir aveugle si on est trop près).  
+Extincteur de feu.  
+Créer ou utiliser si ça existe un langage photographique de base en cas de contact avec un langage inconnu.  
 
-989
-La méchanceté peut commencer par la peur, la jalousie, la survie.
-Ensuite, des droits inférieurs injustes à cause d’une intelligence inférieure supposée ou réelle pour certains cas.
-990
+989  
+La méchanceté peut commencer par la peur, la jalousie, la survie.  
+Ensuite, des droits inférieurs injustes à cause d’une intelligence inférieure supposée ou réelle pour certains cas.  
+990  
 La vie sera toujours beaucoup plus riche dans le partage de tous et la sagesse que pour un dictateur le plus riche d’une planète qui a une illusion éphémère.
-Le dictateur s’accapare des portions de la galaxie ou de nature et empêche l’exploration des visiteurs qui sont sans intention de nuire. Il est justifié de demander aux visiteurs leur intention au cas d’un souci sanitaire de possible maladie ou de danger d’un groupe ou de l’autre. 
-991
-Philosophie du jardin
-Le paysage général des Humains donne un aperçu de leurs jardins intérieurs.
-S’occuper de son jardin et de la nature demande de la philosophie. Créer le plus beau jardin du monde recquiert d’être un bon philosophe sur ce sujet.
-992
-Ne pense qu’à la belle nostalgie au lieu de t’enfermer dans les mauvais souvenirs.
-993
-On n’est pas responsable à 100% de sa vie.
-994
-L’audace doit être à la mesure des risques.
-995
-Il ne faut pas se venger du mal, il faut l’arrêter, l’au-delà se charge du reste.
-996
+Le dictateur s’accapare des portions de la galaxie ou de nature et empêche l’exploration des visiteurs qui sont sans intention de nuire. Il est justifié de demander aux visiteurs leur intention au cas d’un souci sanitaire de possible maladie ou de danger d’un groupe ou de l’autre.  
+991  
+Philosophie du jardin  
+Le paysage général des Humains donne un aperçu de leurs jardins intérieurs.  
+S’occuper de son jardin et de la nature demande de la philosophie. Créer le plus beau jardin du monde requiert d’être un bon philosophe sur ce sujet.  
+992  
+Ne pense qu’à la belle nostalgie au lieu de t’enfermer dans les mauvais souvenirs.  
+993  
+On n’est pas responsable à 100% de sa vie.  
+994  
+L’audace doit être à la mesure des risques.  
+995  
+Il ne faut pas se venger du mal, il faut l’arrêter, l’au-delà se charge du reste.  
+996  
 Dans la guerre contre le mal, il est bon d’informer stratégiquement la population seulement quand on est sûr qu’ils réagissent de la meilleure façon.
-997
-Ne pas être pour la méthode ne veut pas dire être contre la cause défendue. (Vouloir mettre un maillot pour une cause alors qu’il n’est pas beau, que l’on risque de se faire des ennemis, que l’on n’a pas envie d’user du tissu ou que l’on a pas envie de s’expliquer car chacun ses choix. Se lever pour applaudir, je reste assis et silencieux si je veux, ce n’est pas pour ça que je suis contre, compris le dictateur).
-Les gens qui applaudissent au milieu de la chanson, vous ne pouvez pas attendre la fin au moins 2 secondes après pour ne pas amputer la fin de la chanson. 
-998
-Quand le mental est rassasié, on se tait dans le silence de l’intuition.
-999
-Il faut augmenter sa conscience au maximum pour avoir l’intuition d’éviter le mauvais hasard.
-1000
-Paréidolies
-Les paréidolies ne proviennent pas toutes du hasard dans la nature.
-Les paréidolies sont parfois une partie du reflet du divin.
-(Des forces de consciences ont dû créer les circonstances pour les photos de 18 et 60 paréidolies qui sont en plein dans le 1000 ainsi que des autres)
+997  
+Ne pas être pour la méthode ne veut pas dire être contre la cause défendue. (Vouloir mettre un maillot pour une cause alors qu’il n’est pas beau, que l’on risque de se faire des ennemis, que l’on n’a pas envie d’user du tissu ou que l’on a pas envie de s’expliquer car chacun ses choix. Se lever pour applaudir, je reste assis et silencieux si je veux, ce n’est pas pour ça que je suis contre, compris le dictateur).  
+Les gens qui applaudissent au milieu de la chanson, vous ne pouvez pas attendre la fin au moins 2 secondes après pour ne pas amputer la fin de la chanson.  
+998  
+Quand le mental est rassasié, on se tait dans le silence de l’intuition.  
+999  
+Il faut augmenter sa conscience au maximum pour avoir l’intuition d’éviter le mauvais hasard.  
+1000  
+Paréidolies  
+Les paréidolies ne proviennent pas toutes du hasard dans la nature.  
+Les paréidolies sont parfois une partie du reflet du divin.  
+(Des forces de consciences ont dû créer les circonstances pour les photos de 18 et 60 paréidolies qui sont en plein dans le 1000 ainsi que des autres)  
 
-Divin Vietnam
+Divin Vietnam  
 
-Peuple du Vietnam,
-pays des beautés qui remplissent notre âme.
-Le dragon baigne dans l’océan,
-ses griffes sont les pics semés dans la baie d’Along jaillissant dans leurs étincelances comme des diamants.
-Les montagnes dansent et sautent dans les nuages, 
-et nous ravissent avec leurs temples qui subliment le paysage.
-La culture du riz en étages sur les versants les plus à pic,
-parait tenir comme un miracle fantastique.
-La flamboyante discipline du đá cầu,
-le volant au pied franchit le filet dans de sublimes assauts.
-Les combattants du Vovinam Việt Võ Đạo sont la quintessence,
-de l’art stimulant nos sens en nous divertissant de mouvements de
-pieds et poings sensationnels et aussi s’accompagnants de nombreuses armes transcendant l’espace dans cette belle ambiance.
-Les femmes dans leurs costumes áo dài composés d’une robe fendue sur le côté avec un col mao sur un pantalon sont élégantes,
-elles nous font partager leurs compagnies rayonnantes.
-En version homme, le costume cintré est mis en valeur,
-pour ravir les femmes de leur cœur.
-Les costumes des guerriers antiques, 
-sont magnifiques.
-Les princesses des anciens temps,
-sont vêtues d’habits étincelants.
-La langue vietnamienne est mignonne,
-en chanson, les plus jolies mélodies résonnent. 
-A cette nation, dans vos esprits, du soleil, 
-longue vie illuminée et toujours nirvana avec merveilles.
+Peuple du Vietnam,  
+pays des beautés qui remplissent notre âme.  
+Le dragon baigne dans l’océan,  
+ses griffes sont les pics semés dans la baie d’Along jaillissant dans leurs étincelances comme des diamants.  
+Les montagnes dansent et sautent dans les nuages,  
+et nous ravissent avec leurs temples qui subliment le paysage.  
+La culture du riz en étages sur les versants les plus à pic,  
+parait tenir comme un miracle fantastique.  
+La flamboyante discipline du đá cầu,  
+le volant au pied franchit le filet dans de sublimes assauts.  
+Les combattants du Vovinam Việt Võ Đạo sont la quintessence,  
+de l’art stimulant nos sens en nous divertissant de mouvements de pieds et poings sensationnels et aussi s’accompagnants de nombreuses armes transcendant l’espace dans cette belle ambiance.  
+Les femmes dans leurs costumes áo dài composés d’une robe fendue sur le côté avec un col mao sur un pantalon sont élégantes,  
+elles nous font partager leurs compagnies rayonnantes.  
+En version homme, le costume cintré est mis en valeur,  
+pour ravir les femmes de leur cœur.  
+Les costumes des guerriers antiques,  
+sont magnifiques.  
+Les princesses des anciens temps,  
+sont vêtues d’habits étincelants.  
+La langue vietnamienne est mignonne,  
+en chanson, les plus jolies mélodies résonnent.  
+A cette nation, dans vos esprits, du soleil,  
+longue vie illuminée et toujours nirvana avec merveilles.  
 
-Sylvain Meili (22-23/02/2022 : n°23)
+Sylvain Meili (22-23/02/2022 : n°23)  
 
 
-112 proverbes d’amour et drôles inédits
+112 proverbes d’amour et drôles inédits  
 
-Proverbes d’amour 
-et d’humour
+Proverbes d’amour  
+et d’humour  
 
-Tous ces proverbes sont inédits et abordent l’amour et l’humour séparément ou ensemble.
-Ils sont tous issus de mon imagination.
+Tous ces proverbes sont inédits et abordent l’amour et l’humour séparément ou ensemble.  
+Ils sont tous issus de mon imagination.  
 
-Ne pas tout prendre au premier degré, parfois au deuxième ou les deux.
+Ne pas tout prendre au premier degré, parfois au deuxième ou les deux.  
 
-1001
-Le soleil que je mets dans tes yeux rayonne dans mon cœur.
-1002
-L’amour est un ruisseau qui vient du plus haut.
-1003
-L’amour des gros, c’est un excès d’appétit.
-1004
-Les gens écologistes, ce n’est pas plus de deux enfants en moyenne pour l’amour de leur planète si elle trop peuplée.
-1005
+1001  
+Le soleil que je mets dans tes yeux rayonne dans mon cœur.  
+1002  
+L’amour est un ruisseau qui vient du plus haut.  
+1003  
+L’amour des gros, c’est un excès d’appétit.  
+1004  
+Les gens écologistes, ce n’est pas plus de deux enfants en moyenne pour l’amour de leur planète si elle trop peuplée.  
+1005  
 Le meilleur amour est contre les capricieux égocentriques.
 1006
 L’amour de la pétasse se lasse facilement.
