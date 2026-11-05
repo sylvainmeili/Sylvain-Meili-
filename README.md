@@ -3557,378 +3557,376 @@ Très rare qu’une personne rejoue son propre rôle différemment.
 Les imbéciles heureux confondent tout est un mais seulement dans la connexion, l’autre n’est pas toi tant que tu n’as pas fusionné avec sa conscience comme une partie de ton âme qui est dans l’astral.  
 L’âme est éternelle.  
 
-821
-La beauté.
-Le mouvement façonne la beauté du monde, pour que la joie nous inonde.
+821  
+La beauté.  
+Le mouvement façonne la beauté du monde, pour que la joie nous inonde.  
 Quand il fait très chaud, on peut prendre une ombrelle et un éventail, c’est joli et c’est plus convenable que de polluer avec une pommade anti UV désagréable.
-Les plus beaux yeux, c’est en amande et le pli de la paupière proche des cils. 
-Une tête ovale de face et une tête assez plate de profil sans avoir trop de relief.
-Avoir un corps naturel.
-822
-C’est au bord de la défaite que la victoire est la plus savoureuse.
-823
-Ce que tu gagnes, tu pourras le perdre un jour sauf tes annales akashiques, pour l’éternité, les oeuvres j’espère.
-824
-Mettre un bandeau sur les yeux très longtemps ou plusieurs jours
-pour développer des capacités, cela libère de la DMT (diméthyltryptanime) qui active des cristaux de la glande pinéale et peut développer la clairvoyance.
-825
-Il y a des gens chochottes qui nous dérangent en nous interpellant car on est sur la ligne droite de leur chemin alors qu'on est là avant, immobile et qu'ils ont la place pour dévier d'1 mètre ou 2.
-826
-Anonymat 
-On a le droit d’être anonyme pour pouvoir dire ce que l’on pense sans stress, sans être trop interpellé dans la rue parce qu’on devient connu, pour ne pas se faire agresser ou tuer et si un gouvernnement de dictateur méchant ou idiot nous empêche de parler parce qu’on dit des choses différentes ou parce qu’on est intelligent avant d’autres. Ce n’est pas parce que des gens menacent ou insultent sur internet que l’on doit interdire l’anonymat sinon, c’est une dictature, il y a qu’en cas de choses graves que les services de l’état peuvent remonter la source de l’agresseur, mais pas entre les personnes de la population.
-On a le droit d’être anonyme en chossissant un nom d’auteur surtout si il y a pleins d’homonymes.
-827
-Si tu ne peux pas être généreux avec la nature, soit généreux avec les humains, si tu ne peux pas être généreux avec les humains, soit généreux avec la nature, si tu peux faire les deux c’est encore mieux.
-828
-Je ne veux pas être le mouton de dieu, je veux être son partage et être original.
-829
-Faire mieux que quelqu’un ne veut pas dire être meilleur quand on rajoute un petit pourcentage à son travail.
-(Exemple : l’inventeur d’un gâteau puis celui qui copie mais rajoute la crème chantilly en plus : il a fait mieux mais le meilleur est l’inventeur, seulement le résultat qui est meilleur, pas la personne.
-830
-La diversité des opinions arrange certains car chacun a ses compères dans ses domaines de pensée.
-831
-A trop connaître les défauts des autres, on risque de les aimer moins.
-832
-Un de mes buts de l’univers, l’humain le plus parfait éternel connecté à dieu avec toutes ses options.
-833
-La signification de la vie est tout ce qu’on y met.
-834
-Quand un appareil ou ordinateur bug (est bloqué), il faut redémarrer ou si on ne peut pas redémarrer, il faut couper l’alimentation, batterie, pile ou électricité pour redémarrer.
-835
-Le dictateur établit des sondages truqués pour orienter les gens plus facilement dans un sens.
-836
-Quand tu prêtes quelque chose à quelqu’un, on doit te le rendre ou s’il n’a pas envie de te voir, il devrait l’envoyer par la poste.
-837
-Préservation
-4 emballages pour protéger un objet : une maison, un meuble, une grande boîte + d’autres boîtes hermétiques aux insectes dans la grande boîte.
-Entre chaque photo sur papier glacé, mettre une feuille sinon les photos vont se coller dans le futur. 
-Il est parfois dommage que quand on met des photos sur Internet, quand on retélécharge, la photo est plus floutée et la date originale disparaît, on ne pourra plus voir certaines paréidolies de fééries de glaces en zoomant car flou, le patrimoine humain disparaît en partie parce qu’ils se permettent de baisser la résolution. Si je veux qu’on n’ait pas la copie originale, je peux moi-même baisser la qualité avant de l’envoyer, je n’aime pas qu’on décide à ma place. On sauve le patrimoine en copiant.
-Par contre, effacer les données de photo qui contient des données EXIF tel que le GPS quand il existe est une sécurité de vie privée. 
-La date contenue dans l’EXIF peut permettre de certifier l’authenticité de la prise de photo, si l’on veut passer incognito, supprimez toutes les données EXIF avec un logiciel qui supprime tout ou une partie.
-Garder la date de la photo ou du document dans le fichier.
-838
-L’idiot accuse le coupable habituel sans voir l’acte ou sans preuve.
-839
-Si dans une école ou une entreprise, on oblige le port d’un costume, il faut laisser à la femme le choix du pantalon ou de la chaussure à plat au lieu de la jupe et du talon seulement. Si la femme a le droit de mettre une jupe, l’homme devrait avoir le droit de mettre un short.
-Ne pas obliger à mettre un couvre-chef décoratif si cela fait transpirer. Pouvoir mettre une casquette ou un chapeau pour se protéger du soleil.
-La cravate à nœud coulant ressemble à une laisse, c’est gênant d’être serré et stressant de devoir faire le nœud.
-840
-Le maintient de la négativité des méchants pour le pouvoir n’est qu’un avantage éphémère qui les autodétruiront s’ils ne changent pas, une basse vibration qui se propage détruit un univers.
-841
-Jeûner une fois par mois est important pour avoir une bonne santé.
-36 heures est l’idéal.
-Quand des douleurs intestinales se répètent, il faut faire un jeûne de 36 heures et boire de l’eau. 
-842
-Si l’on une chance sur cent de concrétiser une drague alors c’est facile, il suffit d’essayer 100 fois, mais les chochottes qui ont trop d’égo n’osent pas se prendre les quelques premiers refus. Si on est gêné par des gens que l’on connait, il suffit d’aller chercher dans un endroit ou on est caché par la masse du nombre de gens.
-843
-Certains pour être différent des autres vont aller vers la bêtise plutôt que l’originalité.
-844
-L’univers s’arrange pour corriger nos imperfections.
-845 
-Quand on fait une interview à quelqu’un qui veut un article sur lui, il faut lui faire relire l’article fini pour éviter l’entourloupe.
-Ce n’est pas parce que l’on fait une interview à quelqu’un que l’on est d’accord avec lui ou que l’on est dans son groupe.
-846
-Relation, la critique est pour les deux sens.
-Ce n’est pas parce que je n’ai pas envie de m’afficher devant les autres en couple qu’une personne me fait forcément honte, c’est pour ma tranquillité psychique ou le respect des autres, pour marcher libre ou pas transpirer des mains.
-La société sera assez évolué quand on pourra avoir une copine et aller voir des amies femmes sans qu’on t’empêche parce qu’on croît qu’on te trompe mais elle peut être au courant et d’accord. 
-Arrêter de dramatiser si on regarde quelquefois des femmes sur internet, on en voit aussi dans les films, dans ses pensées, cocher le bouton j’aime d’une publication de quelqu’un ne veut pas forcément dire draguer si c’est pour soutenir une artiste ou pour se faire remarquer car on a un compte utile qui sert l’humanité, à condition que tout cela soit dans la juste mesure et approprier à la situation et ne doit pas empiéter une saine relation, certaines accusent que regarder est déjà tromper : ton avis n’est pas une preuve, si des gens sont trop susceptibles ou incompatibles, il faut trouver une personnalité adéquate, à vous de définir les règles selon vos personnalités.
-Les manichéens extrémistes te traitent de pervers ou dégoûtant à seulement regarder quelques photos ou vidéo, comme toutes choses, in ne faut pas en abuser. Si on aime le patinage artistique, allez-vous l’interdire car sinon elle va complexer que tu admires d’autres femmes. Ce n’est pas parce que certains délaissent leur femmes et regardent quelques photos que 100% des autres font pareil et sont idiots ou méchants, on peut aussi être fidèle, serviable, et aimer sa femme toute sa vie sans tromper mais certains piquent des crises et diabolisent, elles veulent l’exclusivité totale et t’interdire de regarder, t’es pas respectueux de regarder mais c’est eux qui t’insulte et t’enmerde en premier, tu peux admirer en bonne proportion. On a le droit d’avoir ses moments privées à soi sans se sentir oppresser parce qu’on a peur qu’on t’invente un défaut sur ça ou d’autres choses.
-Il y en a qui sont d’accord de pouvoir regarder et peuvent le faire ensemble, pas besoin de dramatiser, il faut trouver une personne compatible, les gens qui disent que même les personnes d’accord c’est pas bien de regarder des photos, vous êtes des dictateurs avec votre pensée étroite, il faut savoir se contrôler sans créer de mauvaises conséquences que ce soit le critiqueur et le critique, mal réagir à quelque chose ne signifie pas que cette chose soit mal car ça peut-être ton manque d’évolution qui critique mal, reprocher un petit truc alors que tu ne trouveras peut-être jamais quelqu’un de meilleur sur le global.
-On a le droit d’aimer la beauté des autres, on doit avoir le maximum de libertés sans nuire à soi ou l’autre.
-Il y a des programmes et ce texte va me mettre une partie de la population à dos mais je suis obligé d’élargir le point de vue et d’apporter de la nuance pour augmenter l’empathie de ces gens qui se vexent.
-847
-Le morcellement du travail peut servir à cacher le but final de ton travail.
-848
-Si tu enfreins le libre arbitre de l’autre mais qu’il est reconnaissant après, ça annule l’infraction.
-La fin ne justifie pas les moyens car cela promouvoit des comportements de souffrance qui répète un cycle karmique de souffrance des mauvaises énergies qui reviennent sauf si c’est pour arrêter un mal plus important qui se répand de plus en plus.
-849
-On peut ne pas regarder quelqu'un dans les yeux pas parce qu'on a quelque chose à se reprocher mais parce que on a un visage crispé par les méchants qui nous ont fait souffrir et donc il est difficile de remettre les muscles faciaux dans le bons sens surtout qu’on le mal-être dur longtemps, ou parce qu'on se sent intimidé par une tête qu’on n’a pas envie de regarder ou parce que chacun son caractère.
-850
-Si les hommes peuvent être torse nu alors les femmes aussi.
+Les plus beaux yeux, c’est en amande et le pli de la paupière proche des cils.  
+Une tête ovale de face et une tête assez plate de profil sans avoir trop de relief.  
+Avoir un corps naturel.  
+822  
+C’est au bord de la défaite que la victoire est la plus savoureuse.  
+823  
+Ce que tu gagnes, tu pourras le perdre un jour sauf tes annales akashiques, pour l’éternité, les oeuvres j’espère.  
+824  
+Mettre un bandeau sur les yeux très longtemps ou plusieurs jours  
+pour développer des capacités, cela libère de la DMT (diméthyltryptanime) qui active des cristaux de la glande pinéale et peut développer la clairvoyance.  
+825  
+Il y a des gens chochottes qui nous dérangent en nous interpellant car on est sur la ligne droite de leur chemin alors qu'on est là avant, immobile et qu'ils ont la place pour dévier d'1 mètre ou 2.  
+826  
+Anonymat   
+On a le droit d’être anonyme pour pouvoir dire ce que l’on pense sans stress, sans être trop interpellé dans la rue parce qu’on devient connu, pour ne pas se faire agresser ou tuer et si un gouvernement de dictateur méchant ou idiot nous empêche de parler parce qu’on dit des choses différentes ou parce qu’on est intelligent avant d’autres. Ce n’est pas parce que des gens menacent ou insultent sur internet que l’on doit interdire l’anonymat sinon, c’est une dictature, il y a qu’en cas de choses graves que les services de l’état peuvent remonter la source de l’agresseur, mais pas entre les personnes de la population.
+On a le droit d’être anonyme en choisissant un nom d’auteur surtout si il y a pleins d’homonymes.  
+827  
+Si tu ne peux pas être généreux avec la nature, soit généreux avec les humains, si tu ne peux pas être généreux avec les humains, soit généreux avec la nature, si tu peux faire les deux c’est encore mieux.  
+828  
+Je ne veux pas être le mouton de dieu, je veux être son partage et être original.  
+829  
+Faire mieux que quelqu’un ne veut pas dire être meilleur quand on rajoute un petit pourcentage à son travail.  
+(Exemple : l’inventeur d’un gâteau puis celui qui copie mais rajoute la crème chantilly en plus : il a fait mieux mais le meilleur est l’inventeur, seulement le résultat qui est meilleur, pas la personne.  
+830  
+La diversité des opinions arrange certains car chacun a ses compères dans ses domaines de pensée.  
+831  
+A trop connaître les défauts des autres, on risque de les aimer moins.  
+832  
+Un de mes buts de l’univers, l’humain le plus parfait éternel connecté à dieu avec toutes ses options.  
+833  
+La signification de la vie est tout ce qu’on y met.  
+834  
+Quand un appareil ou ordinateur bug (est bloqué), il faut redémarrer ou si on ne peut pas redémarrer, il faut couper l’alimentation, batterie, pile ou électricité pour redémarrer.  
+835  
+Le dictateur établit des sondages truqués pour orienter les gens plus facilement dans un sens.  
+836  
+Quand tu prêtes quelque chose à quelqu’un, on doit te le rendre ou s’il n’a pas envie de te voir, il devrait l’envoyer par la poste.  
+837  
+Préservation  
+4 emballages pour protéger un objet : une maison, un meuble, une grande boîte + d’autres boîtes hermétiques aux insectes dans la grande boîte.  
+Entre chaque photo sur papier glacé, mettre une feuille sinon les photos vont se coller dans le futur.   
+Il est parfois dommage que quand on met des photos sur Internet, quand on retélécharge, la photo est plus floutée et la date originale disparaît, on ne pourra plus voir certaines paréidolies de fééries de glaces en zoomant car flou, le patrimoine humain disparaît en partie parce qu’ils se permettent de baisser la résolution. Si je veux qu’on n’ait pas la copie originale, je peux moi-même baisser la qualité avant de l’envoyer, je n’aime pas qu’on décide à ma place. On sauve le patrimoine en copiant.  
+Par contre, effacer les données de photo qui contient des données EXIF tel que le GPS quand il existe est une sécurité de vie privée.  
+La date contenue dans l’EXIF peut permettre de certifier l’authenticité de la prise de photo, si l’on veut passer incognito, supprimez toutes les données EXIF avec un logiciel qui supprime tout ou une partie.  
+Garder la date de la photo ou du document dans le fichier.  
+838  
+L’idiot accuse le coupable habituel sans voir l’acte ou sans preuve.  
+839  
+Si dans une école ou une entreprise, on oblige le port d’un costume, il faut laisser à la femme le choix du pantalon ou de la chaussure à plat au lieu de la jupe et du talon seulement. Si la femme a le droit de mettre une jupe, l’homme devrait avoir le droit de mettre un short.  
+Ne pas obliger à mettre un couvre-chef décoratif si cela fait transpirer. Pouvoir mettre une casquette ou un chapeau pour se protéger du soleil.  
+La cravate à nœud coulant ressemble à une laisse, c’est gênant d’être serré et stressant de devoir faire le nœud.  
+840  
+Le maintient de la négativité des méchants pour le pouvoir n’est qu’un avantage éphémère qui les autodétruiront s’ils ne changent pas, une basse vibration qui se propage détruit un univers.  
+841  
+Jeûner une fois par mois est important pour avoir une bonne santé.  
+36 heures est l’idéal.  
+Quand des douleurs intestinales se répètent, il faut faire un jeûne de 36 heures et boire de l’eau.   
+842  
+Si l’on une chance sur cent de concrétiser une drague alors c’est facile, il suffit d’essayer 100 fois, mais les chochottes qui ont trop d’égo n’osent pas se prendre les quelques premiers refus. Si on est gêné par des gens que l’on connait, il suffit d’aller chercher dans un endroit ou on est caché par la masse du nombre de gens.  
+843  
+Certains pour être différent des autres vont aller vers la bêtise plutôt que l’originalité.  
+844  
+L’univers s’arrange pour corriger nos imperfections.  
+845  
+Quand on fait une interview à quelqu’un qui veut un article sur lui, il faut lui faire relire l’article fini pour éviter l’entourloupe.  
+Ce n’est pas parce que l’on fait une interview à quelqu’un que l’on est d’accord avec lui ou que l’on est dans son groupe.  
+846  
+Relation, la critique est pour les deux sens.  
+Ce n’est pas parce que je n’ai pas envie de m’afficher devant les autres en couple qu’une personne me fait forcément honte, c’est pour ma tranquillité psychique ou le respect des autres, pour marcher libre ou pas transpirer des mains.  
+La société sera assez évolué quand on pourra avoir une copine et aller voir des amies femmes sans qu’on t’empêche parce qu’on croît qu’on te trompe mais elle peut être au courant et d’accord.  
+Arrêter de dramatiser si on regarde quelquefois des femmes sur internet, on en voit aussi dans les films, dans ses pensées, cocher le bouton j’aime d’une publication de quelqu’un ne veut pas forcément dire draguer si c’est pour soutenir une artiste ou pour se faire remarquer car on a un compte utile qui sert l’humanité, à condition que tout cela soit dans la juste mesure et approprier à la situation et ne doit pas empiéter une saine relation, certaines accusent que regarder est déjà tromper : ton avis n’est pas une preuve, si des gens sont trop susceptibles ou incompatibles, il faut trouver une personnalité adéquate, à vous de définir les règles selon vos personnalités.  
+Les manichéens extrémistes te traitent de pervers ou dégoûtant à seulement regarder quelques photos ou vidéo, comme toutes choses, in ne faut pas en abuser. Si on aime le patinage artistique, allez-vous l’interdire car sinon elle va complexer que tu admires d’autres femmes. Ce n’est pas parce que certains délaissent leur femmes et regardent quelques photos que 100% des autres font pareil et sont idiots ou méchants, on peut aussi être fidèle, serviable, et aimer sa femme toute sa vie sans tromper mais certains piquent des crises et diabolisent, elles veulent l’exclusivité totale et t’interdire de regarder, t’es pas respectueux de regarder mais c’est eux qui t’insulte et t’emmerde en premier, tu peux admirer en bonne proportion. On a le droit d’avoir ses moments privées à soi sans se sentir oppresser parce qu’on a peur qu’on t’invente un défaut sur ça ou d’autres choses.  
+Il y en a qui sont d’accord de pouvoir regarder et peuvent le faire ensemble, pas besoin de dramatiser, il faut trouver une personne compatible, les gens qui disent que même les personnes d’accord c’est pas bien de regarder des photos, vous êtes des dictateurs avec votre pensée étroite, il faut savoir se contrôler sans créer de mauvaises conséquences que ce soit le critiqueur et le critique, mal réagir à quelque chose ne signifie pas que cette chose soit mal car ça peut-être ton manque d’évolution qui critique mal, reprocher un petit truc alors que tu ne trouveras peut-être jamais quelqu’un de meilleur sur le global.  
+On a le droit d’aimer la beauté des autres, on doit avoir le maximum de libertés sans nuire à soi ou l’autre.  
+Il y a des programmes et ce texte va me mettre une partie de la population à dos mais je suis obligé d’élargir le point de vue et d’apporter de la nuance pour augmenter l’empathie de ces gens qui se vexent.  
+847  
+Le morcellement du travail peut servir à cacher le but final de ton travail.  
+848  
+Si tu enfreins le libre arbitre de l’autre mais qu’il est reconnaissant après, ça annule l’infraction.  
+La fin ne justifie pas les moyens car cela promouvoit des comportements de souffrance qui répète un cycle karmique de souffrance des mauvaises énergies qui reviennent sauf si c’est pour arrêter un mal plus important qui se répand de plus en plus.  
+849  
+On peut ne pas regarder quelqu'un dans les yeux pas parce qu'on a quelque chose à se reprocher mais parce que on a un visage crispé par les méchants qui nous ont fait souffrir et donc il est difficile de remettre les muscles faciaux dans le bons sens surtout qu’on le mal-être dur longtemps, ou parce qu'on se sent intimidé par une tête qu’on n’a pas envie de regarder ou parce que chacun son caractère.  
+850  
+Si les hommes peuvent être torse nu alors les femmes aussi.  
 
-Divin Japon
+Divin Japon  
 
-Peuple du Japon, 
-pays des plus belles passions.
-Ouvrant sa beauté dans l’océan,
-ses îles semblables à l’image d’un dragon baignant dans le soleil levant.
-Le mont Fuji qui s’étale sur son dos,
-résumant la splendeur de l’archipel d’un homme et d’une femme au sommet contemplant le paysage dans leurs kimonos.
-Ses arts martiaux sont très divers,
-à te mettre par terre ou volant dans les airs.
-Ses pliages de papiers font de l’origami,
-un accompagnement pour y glisser dans un cadeau des mots jolis. 
-Ses compositions florales font de l’ikebana,
-un arc en ciel sur le chemin de la beauté qui guide nos pas.
-Les samouraïs en  costumes sont sublimes,
-surgissant de la brume et dominant les cimes.
-Sublimés par une musique traditionnelle épique,
-ils traversent le torii, ce portail passé, ils gravissent le chemin pavé de la montagne bordée de poteaux sculptés et de lanternes qui les conduisent vers le temple aux toits majestueux dominant le pic.
-Le ninja accompli brille de ses hautes qualités d’intégrité,
-dans ses habits grandioses d’ombre profilé, abondants de talents et d’agilité.
-Un autre temple en bas de la colline est bordé de cerisiers sakura aux fleurs roses,
-et éclatantes au grand jour sur le ciel bleu où une femme en kimono traditionnelle tient son ombrelle sur un pont arqué devant un rocher dressé près d’un bonsaï au bord de l’eau et nous faisant un ravissement de ses plus belles poses.
-La geisha divertit et perpétue les traditions artistiques,
-avec ses belles vertus authentiques.
-Les mangas et les animés,
-nous font rêver.
-Des belles musiques traditionnelles et actuelles,
-avec des chanteurs et des chanteuses transcendent l’adorable langue japonaise d’intonations exceptionnelles.
-Les films et les séries nous font apprécier sa culture,
-ses jolis mots et son savoir vivre qui ont belle allure.
+Peuple du Japon,  
+pays des plus belles passions.  
+Ouvrant sa beauté dans l’océan,  
+ses îles semblables à l’image d’un dragon baignant dans le soleil levant.  
+Le mont Fuji qui s’étale sur son dos,  
+résumant la splendeur de l’archipel d’un homme et d’une femme au sommet contemplant le paysage dans leurs kimonos.  
+Ses arts martiaux sont très divers,  
+à te mettre par terre ou volant dans les airs.  
+Ses pliages de papiers font de l’origami,  
+un accompagnement pour y glisser dans un cadeau des mots jolis.  
+Ses compositions florales font de l’ikebana,  
+un arc en ciel sur le chemin de la beauté qui guide nos pas.  
+Les samouraïs en  costumes sont sublimes,  
+surgissant de la brume et dominant les cimes.  
+Sublimés par une musique traditionnelle épique,  
+ils traversent le torii, ce portail passé, ils gravissent le chemin pavé de la montagne bordée de poteaux sculptés et de lanternes qui les conduisent vers le temple aux toits majestueux dominant le pic.  
+Le ninja accompli brille de ses hautes qualités d’intégrité,  
+dans ses habits grandioses d’ombre profilé, abondants de talents et d’agilité.  
+Un autre temple en bas de la colline est bordé de cerisiers sakura aux fleurs roses,  
+et éclatantes au grand jour sur le ciel bleu où une femme en kimono traditionnelle tient son ombrelle sur un pont arqué devant un rocher dressé près d’un bonsaï au bord de l’eau et nous faisant un ravissement de ses plus belles poses.  
+La geisha divertit et perpétue les traditions artistiques,  
+avec ses belles vertus authentiques.  
+Les mangas et les animés,  
+nous font rêver.  
+Des belles musiques traditionnelles et actuelles,  
+avec des chanteurs et des chanteuses transcendent l’adorable langue japonaise d’intonations exceptionnelles.  
+Les films et les séries nous font apprécier sa culture,  
+ses jolis mots et son savoir vivre qui ont belle allure.  
+Le Japon est grand par sa richesse,  
+et nous inspire la sagesse.  
 
-Le Japon est grand par sa richesse,
-et nous inspire la sagesse.
+Sylvain Meili (06/06/2021 : n°19)  
 
-Sylvain Meili (06/06/2021 : n°19)
+851  
+On peut avoir raison dans l'idée mais tord dans la faisabilité.  
+852  
+Il faut toujours avoir au moins 2 ou idéalement 3 endroits de réception de messages à quelqu’un au cas où un des endroits a un problème car on peut croire que l’autre ne répond pas.  
+853  
+La vérité est le créateur avec la voie du milieu de la forme, le créateur n’est pas parfait. La vérité est tout ce qui existe.  
+854  
+L’idiot va se faire un avis négatif de quelqu’un sur un avis d’un autre sans vérifier tout ce qu’a dit la personne, un vrai moujonc.  
+855  
+On peut demander à l’univers des choses en répétant 3 fois et il se peut qu’il réponde avec des grandes coïncidences, ou en mettant la réponse dans un rêve de manière guidé. On peut établir un code, par exemple, si on voit le chiffre 4 dans le rêve ou ailleurs sous forme répétée ou non : cela veut dire non, 3 veut dire oui, 666 : mal ou un méchant (j’ai trouvé moi-même cette règle pour le oui (3) et le non (4) pour qu’ils me répondent plus facilement, donc il faut peut-être dire que vous choisissez cette règle car je l’ai inventé pour moi et pour les autres, il ne répond pas forcément par des chiffres et peuvent vous mettre la réponse d’une autre manière, ce n’est pas une règle générale). Je ne peux garantir que c’est juste à 100%.  
+Une fois, j’ai raté le permis et quand je étais en route chez moi, quelqu’un a dit à un autre pile quand je passe, j’ai 33 ans, on se fout de moi car je l’ai pas eu, je pense que les forces négatives peuvent aussi créer des coïncidences en « soufflant dans l’oreille » où c’est le hasard.  
+Si quelqu’un vous réponds par une phrase dans un rêve, cela peut être quelqu’un de négatif. Il se peut que des coïncidences ne soient pas une bonne preuve car il y a le risque du hasard à prendre en compte.   
+Il y a beaucoup de fausses coïncidences et les messages de vérité de l’au-delà sont difficiles à trouver. Il faut vibrer haut et avoir  une conscience élevé pour ne pas se faire manipuler sur Terre ou dans ses rêves.  
+On peut demander plusieurs fois la réponse pour consolider la réponse. Quand une personne dit à la télévision le même mot qu’on est en train de dire ou de lire juste après, c’est je pense très souvent que des coïncidences hasardeuses.  
+Parfois l’au-delà nous dis des choses de manière hypocrite indirectement à quelqu’un dans ton rêve, il a eu cette maladie et en fait c’était pour parler de toi, vraiment une méthodes de con, mais ils changent parfois pour te le dire directement. Certains devraient intervenir dans nos rêves pour éviter des horreurs commises.  
+856  
+L’univers doit être un équilibre entre le nombre et les types de consciences.  
+857  
+Il y a deux sortes d'immortalité : la vie éternelle et j’espère le paradis.  
+858  
+Tout sur Terre devra un jour être gratuit (s’en rapprocher).  
 
-851
-On peut avoir raison dans l'idée mais tord dans la faisabilité.
-852
-Il faut toujours avoir au moins 2 ou idéalement 3 endroits de réception de messages à quelqu’un au cas où un des endroits a un problème car on peut croire que l’autre ne répond pas.
-853
-La vérité est le créateur avec la voie du milieu de la forme, le créateur n’est pas parfait. La vérité est tout ce qui existe.
-854
-L’idiot va se faire un avis négatif de quelqu’un sur un avis d’un autre sans vérifier tout ce qu’a dit la personne, un vrai moujonc.
-855
-On peut demander à l’univers des choses en répétant 3 fois et il se peut qu’il réponde avec des grandes coïncidences, ou en mettant la réponse dans un rêve de manière guidé. On peut établir un code, par exemple, si on voit le chiffre 4 dans le rêve ou ailleurs sous forme répétée ou non : cela veut dire non, 3 veut dire oui, 666 : mal ou un méchant (j’ai trouvé moi-même cette règle pour le oui (3) et le non (4) pour qu’ils me répondent plus facilement, donc il faut peut-être dire que vous choisissez cette règle car je l’ai inventé pour moi et pour les autres, il ne répond pas forcément par des chiffres et peuvent vous mettre la réponse d’une autre manière, ce n’est pas une règle générale). Je ne peux garantir que c’est juste à 100%.
-Une fois, j’ai râté le permis et quand je étais en route chez moi, quelqu’un a dit à un autre pile quand je passe, j’ai 33 ans, on se fout de moi car je l’ai pas eu, je pense que les forces négatives peuvent aussi créer des coîcidences en « soufflant dans l’oreille » où c’est le hasard.
-Si quelqu’un vous réponds par une phrase dans un rêve, cela peut être quelqu’un de négatif. Il se peut que des coïncidences ne soient pas une bonne preuve car il y a le risque du hasard à prendre en compte. 
-Il y a beaucoup de fausses coïncidences et les messages de vérité de l’au-delà sont difficiles à trouver. Il faut vibrer haut et avoir  une conscience élevé pour ne pas se faire manipuler sur Terre ou dans ses rêves.
-On peut demander plusieurs fois la réponse pour consolider la réponse. Quand une personne dit à la télévision le même mot qu’on est en train de dire ou de lire juste après, c’est je pense très souvent que des coïncidences hasardeuses.
-Parfois l’au-delà nous dis des choses de manière hypocrite indirectement à quelqu’un dans ton rêve, il a eu cette maladie et en fait c’était pour parler de toi, vraiment une méthodes de con, mais ils changent parfois pour te le dire directement. Certains devraient intervenir dans nos rêves pour éviter des horreurs commises.
-856
-L’univers doit être un équilibre entre le nombre et les types de consciences.
-857
-Il y a deux sortes d'immortalité : la vie éternelle et j’espère le paradis. 
-858
-Tout sur Terre devra un jour être gratuit (s’en rapprocher). 
+La richesse, c’est de pouvoir accéder à un maximum de choses gratuites en peu de temps.  
 
-La richesse, c’est de pouvoir accéder à un maximum de choses gratuites en peu de temps. 
-
-Intellectuelle et culturelle : Culture de tous les savoirs et de tous les arts (internet, livres, films, vidéos, télévision, photos, dessins, peintures, musique, jeux, jeux vidéo, proverbes, poèmes…).
+Intellectuelle et culturelle : Culture de tous les savoirs et de tous les arts (internet, livres, films, vidéos, télévision, photos, dessins, peintures, musique, jeux, jeux vidéo, proverbes, poèmes…).  
 Technologique et matérielle : voyage rapide (téléportation ou vaisseau spatiale très rapide), objets, argent (billets de banque, numérique, or, argent), les constructions (maison, transports, ville), un réplicateur ou matérialiseur d’objets ou de nourriture, un dématérialiseur de déchets), robot et IA, ordinateur…
-Personnelle et corporelle : soi-même et ses capacités (talents, aptitudes sportives), notre beauté, intelligence, sagesse et autres capacités personnelles comme la télépathie…
-Sociale : les relations humaines, avoir une copine, le partage.
-Naturelle et paysagère : nature (toujours proche, de qualité et diversifiée avec de très anciens arbres), nourriture.
+Personnelle et corporelle : soi-même et ses capacités (talents, aptitudes sportives), notre beauté, intelligence, sagesse et autres capacités personnelles comme la télépathie…  
+Sociale : les relations humaines, avoir une copine, le partage.  
+Naturelle et paysagère : nature (toujours proche, de qualité et diversifiée avec de très anciens arbres), nourriture.  
 
-La richesse comprend tout ce qui existe.
+La richesse comprend tout ce qui existe.  
 
-La plus grande richesse est de tout partager positivement. 
-Pour se rapprocher de la gratuité totale en étant riche, il faut le savoir technologique, quantique, la paix planétaire et la sagesse
+La plus grande richesse est de tout partager positivement.  
+Pour se rapprocher de la gratuité totale en étant riche, il faut le savoir technologique, quantique, la paix planétaire et la sagesse.  
 
-Un réplicateur qui scanne et matérialise toutes les recettes de nourriture serait très bien, (internet des réplicateurs), pour manger de la viande sans tuer d’animaux. Toujours prévoir de la nourriture suffisante à toute la population en cas de bug ou détérioration générale de tous les réplicateurs et continuer de cultiver.
+Un réplicateur qui scanne et matérialise toutes les recettes de nourriture serait très bien, (internet des réplicateurs), pour manger de la viande sans tuer d’animaux. Toujours prévoir de la nourriture suffisante à toute la population en cas de bug ou détérioration générale de tous les réplicateurs et continuer de cultiver.  
 A l’époque des années 2000, le plus riche de la planète ne serait jamais aussi riche que n’importe quelle personne ou tout serait partagé dans le futur.
 Toute personne sur Terre devrait être garantie d’avoir un logement et un revenu universel sans conditions et sans chantages, et chacun ferait des services gratuits selon ses envies.  
-(Chaque personne qui inventera quelque chose de bénéfique hors des arts culturels à l’humanité sera autorisée à être copié à tout le monde sauf invention dangereuse qui ne devra être connu que par les sages. 
-Le nombre de vue d’une œuvre (par exemple : vidéo, photo, dessin, proverbe, poème) déterminera l’argent reçu à partir d’un nombre minimum et le pourcentage de revenu des vues diminuera quand il y’en a énormément pour ne pas être trop riche.
-Toute œuvre qui récupère des éléments en entier d’un créateur devra mentionner l’auteur sauf si son nom est inconnu ou s’il ne désire pas être cité.
-L’utilisation partielle d’un créateur ou d’un auteur sera autorisé sauf si cela devait lui nuire moralement. Il devra être précisé que la nouvelle œuvre combinée est faite à partir d’autres personnes (sans obligation de citer les noms si c’est un morceau de musique ou de vidéo partielle mais recommandé et si l’auteur vous le demande) pour ne pas se l’approprier.
+(Chaque personne qui inventera quelque chose de bénéfique hors des arts culturels à l’humanité sera autorisée à être copié à tout le monde sauf invention dangereuse qui ne devra être connu que par les sages.  
+Le nombre de vue d’une œuvre (par exemple : vidéo, photo, dessin, proverbe, poème) déterminera l’argent reçu à partir d’un nombre minimum et le pourcentage de revenu des vues diminuera quand il y en a énormément pour ne pas être trop riche.  
+Toute œuvre qui récupère des éléments en entier d’un créateur devra mentionner l’auteur sauf si son nom est inconnu ou s’il ne désire pas être cité.  
+L’utilisation partielle d’un créateur ou d’un auteur sera autorisé sauf si cela devait lui nuire moralement. Il devra être précisé que la nouvelle œuvre combinée est faite à partir d’autres personnes (sans obligation de citer les noms si c’est un morceau de musique ou de vidéo partielle mais recommandé et si l’auteur vous le demande) pour ne pas se l’approprier.  
 Le passage d’une musique entière mais parasité par des bruits supplémentaires est considéré comme partielle et sans obligation de citer le nom mais recommandé.
-L’œuvre combinée sera obligatoirement gratuite.
-La richesse d’un auteur pourra se faire par l’achat de livre ou le téléchargement gratuit qui pourra comptabiliser la richesse qui lui sera reversé par le fond monétaire global.
-Un auteur pourra se faire éditer avec plusieurs éditeurs en même temps. C’est l’auteur qui devra gagner la plus grosse part du bénéfice.
-Toute personne aura le droit de supprimer toutes les images de sa personne sur internet sans discrimination de groupes publics (faire une différence des personnes autorisées ou non à utiliser son image publique).
-Il serait mieux de ne pas être trop riche et tout dépassement de recette monétaire ou argent placé serait reversé au fond monétaire global pour tout autre projet d’un pays.
-Il serait mieux de ne pas posséder plus de 10 millions d’euros personnellement pendant plus d’un an, ou la valeur dépensée de 10 vies normales  (la valeur du patrimoine n’est pas pris en compte) ou plus de 2 logements vides, si il y a plus de 2 logements vides, un 3ème logement vide devra être choisi par le propriétaire pour loger quelqu’un si il y a une demande, si ce locataire dégrade le logement, il devra payer une compensation ou effectuer un travail d’intérêt général, si le coût est trop élevé, le font monétaire global payera en monnaie ou en ressources d’aides diverses. 
-Il n’y aura plus d’obligation de payer un loyer pour travailler et donc plus d’obligation d’être rentable, ce qui permettra plus de diversité et de préservation des savoirs, des créations et du patrimoine.)
-Plus on met à disposition gratuite le patrimoine plus il dure dans le temps grâce aux copies (ex : musiques, films, peintures, proverbes, poèmes…).
-Conclusion : ce n’est pas parfait, à améliorer.
-859
-Il faut savoir se plier un temps comme le bambou pour une victoire plus efficace.
-860
-La publicité
-Si la publicité est pour acheter, ce n’est pas forcément bienveillant.et utile, ça peut être gênant, tout est possible.
-Si on fait sa pub gratuitement dans l’intérêt général pour embellir la vie des autres, c’est pas la peine de dramatiser alors que c’était pour offrir gratuitement son travail comme montrer le meilleur de toutes les playlists, paréidolies, proverbes, poèmes, photos, tant pis pour toi si t’a pas la curiosité de rajouter des magnifiques musiques dans ta vie que tout aurait pu découvrir mais non, on voit le mal et dit qu’on fait baisser sa vibration, c’est toi qui a fait baisser la mienne.
-861
-Le hasard peut amener à des coïncidences contre-véridiques.
+L’œuvre combinée sera obligatoirement gratuite.  
+La richesse d’un auteur pourra se faire par l’achat de livre ou le téléchargement gratuit qui pourra comptabiliser la richesse qui lui sera reversé par le fond monétaire global.  
+Un auteur pourra se faire éditer avec plusieurs éditeurs en même temps. C’est l’auteur qui devra gagner la plus grosse part du bénéfice.  
+Toute personne aura le droit de supprimer toutes les images de sa personne sur internet sans discrimination de groupes publics (faire une différence des personnes autorisées ou non à utiliser son image publique).  
+Il serait mieux de ne pas être trop riche et tout dépassement de recette monétaire ou argent placé serait reversé au fond monétaire global pour tout autre projet d’un pays.  
+Il serait mieux de ne pas posséder plus de 10 millions d’euros personnellement pendant plus d’un an, ou la valeur dépensée de 10 vies normales (la valeur du patrimoine n’est pas pris en compte) ou plus de 2 logements vides, si il y a plus de 2 logements vides, un 3ème logement vide devra être choisi par le propriétaire pour loger quelqu’un si il y a une demande, si ce locataire dégrade le logement, il devra payer une compensation ou effectuer un travail d’intérêt général, si le coût est trop élevé, le font monétaire global payera en monnaie ou en ressources d’aides diverses.  
+Il n’y aura plus d’obligation de payer un loyer pour travailler et donc plus d’obligation d’être rentable, ce qui permettra plus de diversité et de préservation des savoirs, des créations et du patrimoine.)  
+Plus on met à disposition gratuite le patrimoine plus il dure dans le temps grâce aux copies (ex : musiques, films, peintures, proverbes, poèmes…).  
+Conclusion : ce n’est pas parfait, à améliorer.  
+859  
+Il faut savoir se plier un temps comme le bambou pour une victoire plus efficace.  
+860  
+La publicité  
+Si la publicité est pour acheter, ce n’est pas forcément bienveillant.et utile, ça peut être gênant, tout est possible.   
+Si on fait sa pub gratuitement dans l’intérêt général pour embellir la vie des autres, c’est pas la peine de dramatiser alors que c’était pour offrir gratuitement son travail comme montrer le meilleur de toutes les playlists, paréidolies, proverbes, poèmes, photos, tant pis pour toi si t’a pas la curiosité de rajouter des magnifiques musiques dans ta vie que tout aurait pu découvrir mais non, on voit le mal et dit qu’on fait baisser sa vibration, c’est toi qui a fait baisser la mienne.  
+861  
+Le hasard peut amener à des coïncidences contre-véridiques.  
 Une grande coïncidence n’est pas forcément un message de l’au-delà, cela peut être le hasard, on peut croire à une fausse idée à cause de coïncidences.
-862
-Pour faire avancer la vérité et faire chuter les forces du mal, il faut parfois mélanger la vérité et laisser des mensonges pour paraître moins dangereux pour eux et ne pas se faire emprisonner ou tuer.
-863
-Il y a le pratiquant niveau débutant/néophyte, amateur, confirmé, et professionnel/enseignant ou maître.
-Il y a le pratiquant niveau herbe, niveau jonc, niveau roseau et niveau bambou (en herbe n’est pas de moi, les trois derniers ont été trouvé par moi). 
-864
-Les plaisirs du corps créés dans la dualité doivent demeurer éternels au même droit que la musique, se promener, jouer car l’amour est partout et il ne doit pas tuer le plaisir honnête, le plaisir de nécessité du bas doit être un plaisir optionnel du haut.
-865
-Faire un lapsus n’est pas une preuve de ce que l’on pense car on peut dire le mot contraire à ce que l’on pense en s’emmêlant ses mots, donc un lapsus n’est pas forcément révélateur.
-866
-Celui qui donne un coup de poing est plus méchant que celui qui insulte, s’il a demandé une excuse et prévenu au moins trois fois et que l’insulteur continue, c’est moins grave mais il vaut mieux le dissuader ou le neutraliser sans le blesser ou avec l’aide de la justice ou alors l’ignorer. Le mieux est de ne jamais répondre physiquement.
-Faire pire que l’autre, c’est être le plus méchant. 
-Asséner un coup de poing peut blesser à vie : une bosse sur le nez, une dent cassée, lèvre qui se coupe en touchant la dent par la pression du coup de poing avec obligation de recoudre plus d’un cm faisant une cicatrice à vie.
-Pousser quelqu’un peut blesser gravement ponctuellement ou à vie selon l’endroit.
-867
-Il faut laisser le choix quand on achète un vêtement ou un sac en tissu plutôt que de gâcher sa beauté en tatouant un logo ou une phrase que l’on ne peut pas enlever.
-868
-Sous prétexte d’être vieille, mémé coupe ses cheveux et s’interdit les vêtements de quand elle était jeune, on fait se qu’on veut si on a envie de garder des morceaux de beauté au lieu de se faire achever, surtout si il y a un mari qui peut avoir l’illusion sur certains angles de vue qu’elle paraît jeune, c’est plus plaisant.
-869
-Quand on toque à la porte d’une chambre, attendre 5 secondes, si personne répond, retoquer et attendre 5 seconde et entrer.
-870
-Le dictateur pour nuire à une bonne idée va essayer de l’associer à un groupe de gens qui est plus négatif ou considéré négatif pour le discréditer ou donner la parole à quelqu’un qui sera le moins crédible.
-Le dictateur met l’accent sur un mauvais individu pour discréditer tout un groupe ou envoie ou paye quelqu’un pour infiltrer un groupe afin de l’affaiblir et le désorganiser.
-871
-Attention à ne pas se révolter trop fort face à un imbécile qui va trouver le prétexte de t’emmerder encore plus si tu dois le revoir.
-872
-Les arbres
-Protéger la beauté et l’originalité des arbres.
-Un homme a coupé l’épicéa impérial aux branches tombantes au sol, on pouvait monter à 15 mètres de hauteur et avoir le plaisir de regarder un village et se faufiler dans ses magnifiques branches souples, c’était le plus bel épicéa et le plus bel arbre à grimper sur des centaines de km, voir plus.
-Il était au milieu d’un près et embellissait un village. 
-Le moujonc préfère la banalité de son herbe pour son cheval qu’un monde magnifique et peut-être que le cheval aimait se mettre en dessous de l’arbre. 
-Les gens de peu coupent toujours ou trop souvent les branches du bas des arbres et des arbustes, et ne pensent pas au bonheur des gens ou des animaux qui aiment se faufiler dedans ni à la diversité de la nature et de la rareté de formes originales.
-Quand un gros arbre tombe avec encore une partie des racines préservées, il faut ajouter pleins de terre autour des racines même si cela fait une grosse bosse de terre pour prolonger la vie d’un arbre remarquable qui pourra pousser dans un deuxième sens.
-Chaque village en France devrait avoir son arbre ancestral de plusieurs centaines d’années.
-J’invite tout le monde à regarder autour de chez soi et voir si ils ont un ou plusieurs arbres qu’ils voudraient laisser vivre le plus longtemps possible.
-Si on pouvait avoir 1% ou 1 arbre par hectare qu’on interdit de couper, on s’arrêterait en forêt plus souvent pour les admirer.
-Moins il y a de gros arbres dans et autour des villages, plus les habitants sont des idiots.
-On devrait faire un concours sans fin, à ceux qui possèdent  le plus bel arbre ou le plus âgé, notre pays s’en trouverait plus beau.
-S’il n’y a pas d’arbres remarquables, organisez-vous pour sélectionner les arbres remarquables de demain.
-On peut ainsi en planter des nouveaux et faire la promesse qu’on ne les coupera pas.
-Planter un épicéa 
-Il est préférable au sapin car plus beau, ses épines sont plus étoffées et il laisse ses cônes tomber au sol, ce qui n’est pas le cas du sapin.
-C’est l’empereur des arbres à monter.
-Il doit être planté au milieu d’un près pour ne pas manquer de lumière. 
-Il faudra impérativement ne couper aucune branche, sauf au pire celles du bas jusquà 1m50 pour pouvoir grimper quand il est grand, toutes les branches toucheront le sol au bout de quelques dizaines d’années, ce qui sera plus beau et donnera l’impression d’une semi cabane, et les animaux aiment ça.
-On coupera les petits bouts de branches mortes naturellement à proximité du tronc pour pouvoir escalader l’arbre toujours plus haut au fur et à mesure de l’avancée en âge de l’arbre. Ne serait-il pas plaisant pour vos enfants et aussi les adultes de grimper dans un gros joli épicéa, il n’y a pas d’âge pour grimper dans les arbres.
+862  
+Pour faire avancer la vérité et faire chuter les forces du mal, il faut parfois mélanger la vérité et laisser des mensonges pour paraître moins dangereux pour eux et ne pas se faire emprisonner ou tuer.  
+863  
+Il y a le pratiquant niveau débutant/néophyte, amateur, confirmé, et professionnel/enseignant ou maître.  
+Il y a le pratiquant niveau herbe, niveau jonc, niveau roseau et niveau bambou (en herbe n’est pas de moi, les trois derniers ont été trouvé par moi).  
+864  
+Les plaisirs du corps créés dans la dualité doivent demeurer éternels au même droit que la musique, se promener, jouer car l’amour est partout et il ne doit pas tuer le plaisir honnête, le plaisir de nécessité du bas doit être un plaisir optionnel du haut.  
+865  
+Faire un lapsus n’est pas une preuve de ce que l’on pense car on peut dire le mot contraire à ce que l’on pense en s’emmêlant ses mots, donc un lapsus n’est pas forcément révélateur.  
+866  
+Celui qui donne un coup de poing est plus méchant que celui qui insulte, s’il a demandé une excuse et prévenu au moins trois fois et que l’insulteur continue, c’est moins grave mais il vaut mieux le dissuader ou le neutraliser sans le blesser ou avec l’aide de la justice ou alors l’ignorer. Le mieux est de ne jamais répondre physiquement.  
+Faire pire que l’autre, c’est être le plus méchant.  
+Asséner un coup de poing peut blesser à vie : une bosse sur le nez, une dent cassée, lèvre qui se coupe en touchant la dent par la pression du coup de poing avec obligation de recoudre plus d’un cm faisant une cicatrice à vie.  
+Pousser quelqu’un peut blesser gravement ponctuellement ou à vie selon l’endroit.  
+867  
+Il faut laisser le choix quand on achète un vêtement ou un sac en tissu plutôt que de gâcher sa beauté en tatouant un logo ou une phrase que l’on ne peut pas enlever.  
+868  
+Sous prétexte d’être vieille, mémé coupe ses cheveux et s’interdit les vêtements de quand elle était jeune, on fait se qu’on veut si on a envie de garder des morceaux de beauté au lieu de se faire achever, surtout si il y a un mari qui peut avoir l’illusion sur certains angles de vue qu’elle paraît jeune, c’est plus plaisant.  
+869  
+Quand on toque à la porte d’une chambre, attendre 5 secondes, si personne répond, retoquer et attendre 5 seconde et entrer.  
+870  
+Le dictateur pour nuire à une bonne idée va essayer de l’associer à un groupe de gens qui est plus négatif ou considéré négatif pour le discréditer ou donner la parole à quelqu’un qui sera le moins crédible.  
+Le dictateur met l’accent sur un mauvais individu pour discréditer tout un groupe ou envoie ou paye quelqu’un pour infiltrer un groupe afin de l’affaiblir et le désorganiser.  
+871  
+Attention à ne pas se révolter trop fort face à un imbécile qui va trouver le prétexte de t’emmerder encore plus si tu dois le revoir.  
+872  
+Les arbres  
+Protéger la beauté et l’originalité des arbres.  
+Un homme a coupé l’épicéa impérial aux branches tombantes au sol, on pouvait monter à 15 mètres de hauteur et avoir le plaisir de regarder un village et se faufiler dans ses magnifiques branches souples, c’était le plus bel épicéa et le plus bel arbre à grimper sur des centaines de km, voir plus.  
+Il était au milieu d’un près et embellissait un village.   
+Le moujonc préfère la banalité de son herbe pour son cheval qu’un monde magnifique et peut-être que le cheval aimait se mettre en dessous de l’arbre.  
+Les gens de peu coupent toujours ou trop souvent les branches du bas des arbres et des arbustes, et ne pensent pas au bonheur des gens ou des animaux qui aiment se faufiler dedans ni à la diversité de la nature et de la rareté de formes originales.  
+Quand un gros arbre tombe avec encore une partie des racines préservées, il faut ajouter pleins de terre autour des racines même si cela fait une grosse bosse de terre pour prolonger la vie d’un arbre remarquable qui pourra pousser dans un deuxième sens.  
+Chaque village en France devrait avoir son arbre ancestral de plusieurs centaines d’années.  
+J’invite tout le monde à regarder autour de chez soi et voir si ils ont un ou plusieurs arbres qu’ils voudraient laisser vivre le plus longtemps possible.  
+Si on pouvait avoir 1% ou 1 arbre par hectare qu’on interdit de couper, on s’arrêterait en forêt plus souvent pour les admirer.  
+Moins il y a de gros arbres dans et autour des villages, plus les habitants sont des idiots.  
+On devrait faire un concours sans fin, à ceux qui possèdent  le plus bel arbre ou le plus âgé, notre pays s’en trouverait plus beau.  
+S’il n’y a pas d’arbres remarquables, organisez-vous pour sélectionner les arbres remarquables de demain.  
+On peut ainsi en planter des nouveaux et faire la promesse qu’on ne les coupera pas.  
+Planter un épicéa   
+Il est préférable au sapin car plus beau, ses épines sont plus étoffées et il laisse ses cônes tomber au sol, ce qui n’est pas le cas du sapin.  
+C’est l’empereur des arbres à monter.  
+Il doit être planté au milieu d’un près pour ne pas manquer de lumière.   
+Il faudra impérativement ne couper aucune branche, sauf au pire celles du bas jusqu'à 1m50 pour pouvoir grimper quand il est grand, toutes les branches toucheront le sol au bout de quelques dizaines d’années, ce qui sera plus beau et donnera l’impression d’une semi cabane, et les animaux aiment ça.
+On coupera les petits bouts de branches mortes naturellement à proximité du tronc pour pouvoir escalader l’arbre toujours plus haut au fur et à mesure de l’avancée en âge de l’arbre. Ne serait-il pas plaisant pour vos enfants et aussi les adultes de grimper dans un gros joli épicéa, il n’y a pas d’âge pour grimper dans les arbres.  
 On peut planter son épicéa dans un terrain public ou privé : dans ce cas, ne soyez pas égoïste et partager votre arbre à grimper. Dans les régions très neigeuses et froides, les branches d’épicéas sont plus difficiles à grimper car affaissées par le poids de la neige des hivers.
-On peut planter aussi des espèces locales qui ressemblent à l’épicéa et sont cousins et presques identiques, pour les Chinois (Picea Aspereta), Japonais ou autres continents
-Arbres remarquables (ou à préserver)
-J’ai établis les critères d’un arbre remarquable ou à futur potentiel remarquable, sa beauté qui représente :
-Son âge.
-Sa forme originale.
-Sa grosseur.
-Sa hauteur.
-Son utilité, arbre à grimper : épicéa, cavités.
+On peut planter aussi des espèces locales qui ressemblent à l’épicéa et sont cousins et presque identiques, pour les Chinois (Picea Aspereta), Japonais ou autres continents.  
+Arbres remarquables (ou à préserver)  
+J’ai établis les critères d’un arbre remarquable ou à futur potentiel remarquable, sa beauté qui représente :  
+Son âge.  
+Sa forme originale.  
+Sa grosseur.  
+Sa hauteur.  
+Son utilité, arbre à grimper : épicéa, cavités.  
 On doit élargir les arbres protégés remarquable avec une 2ème catégorie : les arbres à futur remarquable. On choisit ainsi les arbres remarquables du futur.
-On doit protéger les sujets les plus âgés de toutes les espèces d’arbres et arbustes, les plus grands, les plus gros ou autres formes particulières de chênes, hêtres, épicéas, tilleuls, saules, charmes, aulnes,  noisetiers, néfliers, lierre…
-Il arrive qu’un arbre multi centenaire meurt mais la mort d’un arbre n’est pas la mort de sa beauté, il sera toujours utile pour les oiseaux, pics et son imposant tronc sera visible encore de nombreuses années.
-Il est donc important de ne pas le couper comme cela à déjà été le cas, s’il comporte un risque de chute sur des passants, il faut privilégier un élagage des branches au lieu de la destruction totale.
-Un arbre peut aussi tomber au-dessus d’un ruisseau, si il est très beau ou gros, il faut le laisser car c’est rare.
-La présence d’arbres à fleurs est aussi très bien pour embellir un paysage.
-Les arbres fruitiers sont un élément indispensable à la diversité de notre cadre de vie.
-Il est mieux de planter des arbres fruitiers de façon arrondis et pas aligné en rectangles, ça fait plus sauvage et naturelle, bien-sûr quand on peut se le permettre et qu’on n’est pas obliger de faire du rendement dans la production.
-Ne pas couper un arbre creux car il peut encore vivre des centaines d’années selon l’espèce.
-Il faut aussi arrêter d’attacher des clôtures aux arbres car ils se retrouvent coincés dedans. Prenez votre courage à deux mains et planter des piquets en bois de préférence ou en acier.
-Des gens mettent des chevaux pour empêcher la forêt de se refermer sur le village. Quand les chevaux partent, l’herbe étant à ras du sol ou parfois dénudée, les graines des arbres qui tombaient avant dans l’herbe ne prenaient pas racine mais depuis les chevaux, ces graines s’enracinent facilement donnant lieu à pleins de nouvelles pousses, donc mettre des chevaux n’est pas la solution, la chèvre semble plus approprié selon moi.
-On devrait avoir dans les grandes villes au moins un parc de nature de 5000 mètres carrés tous les 500 mètres.
-873
-C’est la majorité qui l’emporte mais les meilleures idées sont à trouver dans les plus sages qui sont les moins nombreux au lieu de suivre le troupeau car la quantité n’est pas obligatoirement garant de la qualité.
-874
-Il faut toujours s’assurer qu’aucune personne ne regarde ton mot de passe, ni l’entends, il doit être assez long et compliqué mais facilement mémorisable grâce à une règle mémo-technique propre à la personne.
+On doit protéger les sujets les plus âgés de toutes les espèces d’arbres et arbustes, les plus grands, les plus gros ou autres formes particulières de chênes, hêtres, épicéas, tilleuls, saules, charmes, aulnes,  noisetiers, néfliers, lierre…  
+Il arrive qu’un arbre multi centenaire meurt mais la mort d’un arbre n’est pas la mort de sa beauté, il sera toujours utile pour les oiseaux, pics et son imposant tronc sera visible encore de nombreuses années.  
+Il est donc important de ne pas le couper comme cela à déjà été le cas, s’il comporte un risque de chute sur des passants, il faut privilégier un élagage des branches au lieu de la destruction totale.  
+Un arbre peut aussi tomber au-dessus d’un ruisseau, si il est très beau ou gros, il faut le laisser car c’est rare.  
+La présence d’arbres à fleurs est aussi très bien pour embellir un paysage.  
+Les arbres fruitiers sont un élément indispensable à la diversité de notre cadre de vie.  
+Il est mieux de planter des arbres fruitiers de façon arrondis et pas aligné en rectangles, ça fait plus sauvage et naturelle, bien-sûr quand on peut se le permettre et qu’on n’est pas obliger de faire du rendement dans la production.  
+Ne pas couper un arbre creux car il peut encore vivre des centaines d’années selon l’espèce.  
+Il faut aussi arrêter d’attacher des clôtures aux arbres car ils se retrouvent coincés dedans. Prenez votre courage à deux mains et planter des piquets en bois de préférence ou en acier.  
+Des gens mettent des chevaux pour empêcher la forêt de se refermer sur le village. Quand les chevaux partent, l’herbe étant à ras du sol ou parfois dénudée, les graines des arbres qui tombaient avant dans l’herbe ne prenaient pas racine mais depuis les chevaux, ces graines s’enracinent facilement donnant lieu à pleins de nouvelles pousses, donc mettre des chevaux n’est pas la solution, la chèvre semble plus approprié selon moi.  
+On devrait avoir dans les grandes villes au moins un parc de nature de 5000 mètres carrés tous les 500 mètres.  
+873  
+C’est la majorité qui l’emporte mais les meilleures idées sont à trouver dans les plus sages qui sont les moins nombreux au lieu de suivre le troupeau car la quantité n’est pas obligatoirement garant de la qualité.  
+874  
+Il faut toujours s’assurer qu’aucune personne ne regarde ton mot de passe, ni l’entends, il doit être assez long et compliqué mais facilement mémorisable grâce à une règle mémo-technique propre à la personne.  
 Pour ne pas oublier son mot de passe, on peut aussi l’écrire pour soi mais seulement de manière indirecte avec des indices que seul nous pouvons connaître.
-Il faut aussi vérifier que les messages envoyés viennent bien de l’adresse officielle, il est mieux de passer par l’adresse officielle plutôt que de prendre un raccourci qui peut se faire passer pour l’autre et mettre un logiciel espion en cliquant sur le lien.
-875
-Quand on donne aux autres, il ne faut pas compter combien l’autre te donne en retour. L’univers rétablira tes bonnes actions d’une manière ou d’une autre dans cette vie ou dans une autre.
-876
-Pour amener un début de vérité à quelqu’un de programmé, dire qu’il y a des personnes qui disent ça sur le sujet avec quelques explications au lieu de dire que c’est ton avis parce que après il risque de te pourrir la vie si c’est une personne de ton entourage.
-877
-L’idiot culpabilise les problèmes de l’autre qui l’inquiète alors qu’il est demandé juste qu’on lui fiche la paix au lieu de ralentir la résolution de ses problèmes en envoyant des énergies négatives qui démoralisent.
-878
-Réplicateur
+Il faut aussi vérifier que les messages envoyés viennent bien de l’adresse officielle, il est mieux de passer par l’adresse officielle plutôt que de prendre un raccourci qui peut se faire passer pour l’autre et mettre un logiciel espion en cliquant sur le lien.  
+875  
+Quand on donne aux autres, il ne faut pas compter combien l’autre te donne en retour. L’univers rétablira tes bonnes actions d’une manière ou d’une autre dans cette vie ou dans une autre.  
+876  
+Pour amener un début de vérité à quelqu’un de programmé, dire qu’il y a des personnes qui disent ça sur le sujet avec quelques explications au lieu de dire que c’est ton avis parce que après il risque de te pourrir la vie si c’est une personne de ton entourage.  
+877  
+L’idiot culpabilise les problèmes de l’autre qui l’inquiète alors qu’il est demandé juste qu’on lui fiche la paix au lieu de ralentir la résolution de ses problèmes en envoyant des énergies négatives qui démoralisent.  
+878  
+Réplicateur  
 Avec un réplicateur, casser un objet est moins grave mais ce n’est pas une raison pour moins prendre soin des objets et programmer des mauvais comportements.
 Garder des vêtements ou des photos de vêtements préserve le patrimoine, si le vêtement est composé d’une matière polluante, on peut garder l’aspect en changeant la matière ou en modifiant un peu. Le réplicateur (synthétiseur de matière) peut reproduire ces vêtements et changer la matière.
-L’option dématérialiseur serait bien pour supprimer des gravats et des matières polluantes.
-879
-Quand on a une maison ou un appartement, il faut toujours prévoir une clef au lieu de tout remplacer par une ouverture électrique qui rajoute un risque et une dépendance.
-Il faut toujours couper l’eau et l’électricité quand on part plusieurs jours de chez soi, cela évite des incendies et des dégâts des eaux.
-880
-Les poèmes sont des rivières de cailloux, des parcours et des nuances infinis.
-881
-Si on dit qu’on est le plus intelligent, c’est que l’on n’est pas intelligent disent certain, mais on peut être intelligent sauf dans le fait de dire qu’on est le plus intelligent sauf si c’est vrai en délimitant une certaine zone de gens. Est-ce que le créateur suprême peut dire qu’il est le plus intelligent partout.
-882
-La stratégie du mal est comme un jeu d’échec.
-883
-Pour faire avancer les victoires de la vérité, il faut commencer par les vérités les plus faciles à faire admettre aux ignorants sinon ils vont se braquer.
-884
-Une colère saine peut être effectuée de manière équilibré mais ne doit pas durer, elle doit être justifiée dans les bonnes circonstances, quand on a déjà essayé la méthode douce et parler calmement sans résultats.
-885
-Il faut aussi chercher au profond de soi plutôt que toujours chercher les réponses à l’extérieur, reconnexion de l’âme, revenir au silence extérieur pour laisser reposer le mental et passer en sérénité à l’agitation intérieure de l’intuition de l’apprentissage.
-886
-Le non-agir différemment des autres pour éviter les troubles n’est pas la voie de vivre comme on veut si on respecte l’équilibre du monde.
-887
-Mur
-Quand on bouche les jointures trous entre les pierres il ne faut pas mettre du ciment car il devient impossible ensuite de séparer le ciment de la pierre sans la casser, surtout quand c’est fait très moche en débordant largement sur les pierres, on ne peut pas corriger, il faut choisir une matière recyclable.
-Le ciment empêche le mur de respirer et retient l’humidité.
-Quand on perce un trou dans un mûr pour accrocher quelque chose, il faut privilégier le trou dans la jointure plutôt qu’au milieu d’une pierre ou d’une brique.
-888
-L’abondance créé la vraie richesse, la rareté la fausse richesse (parce que peu de gens peuvent en profiter).
-3 personnes à l’infini, soyons un groupe pour l’éternité.
-889
-Entretien de santé physique facile
-Méthode simplifié de bonne santé physique, remise en forme : marcher 20 minutes, monter équivalent de 4 ou 5 étages avec l’escalier ou la colline, tourner sur soi-même 25 fois, les 3 à faire chaque jour ou encore mieux 2 fois dans la journée accélérera la forme ou la guérison. faire la planche sans faire de pompe horizontale ou en diagonale pour les santés fragiles.Faire une sieste en milieu de journée
-Pour maigrir facilement, voir Méthode abdos tout terrain n°890.
-Mal de dos : pour remettre son dos droit, décoincer les vertèbres et avoir moins mal au dos, il faut se mettre dos au sol allongé jusqu’aux pieds, lever les 2 bras vers l’arrière en inspirant et revenir en expirant.
-Pour récupérer rapidement l’énergie après les exercices, voir Position de régénération n°891. On peut faire un massage ou auto massage juste avant.
-Compléments et autres explications. Une méthode douce et efficace est de marcher 20 minutes et monter 1 étage d’escalier aux 4, 8, 12, 16 et 20 ème minutes.
-Compléter avec 30 secondes (1 minute, 2 fois 30 secondes selon état de votre corps) de bras tendus mains au sol avec corps droit (position des pompes), faire 25 petits sauts des pieds sur place 2 fois. 
-Faire des monter de genoux sans déplier les jambes (cela est bon pour renforcer avant de s’étirer au grand écart latéral), environ 50 en marchant ou sur place, tourner sur soi-même renforce aussi des muscles.
-Pour se maintenir en forme quand il n’y a pas de collines à grimper, on peut courir au moins 2 minutes tous les 3 jours, monter des escaliers plusieurs fois dans journée, monter de genoux avec jambes écartés accroupi à debout, un bain de pieds.
-Pour compiler toutes les méthodes de remise en forme :
-250 ou 500 contractions d’abdos le matin (sans bouger, les deux mains sur le ventre), abstinence du 1er chakra plusieurs jours en faisant des contractions améliore la décontraction des cuisses et jambes, activité physique (ex longue marche), un bain de pieds, massages, (attention, avoir des vêtements qui serrent bloquent l’énergie).
-Une douche tiède aide à régénérer les muscles.
-En cas de nœuds musculaires (différent de simple tension musculaire), ne pas prendre de bain ou douche chaude car cela pourrait faire gonfler les nœuds et contracter un ensemble de muscles. On peut décontracter les muscles en massant, en serrant la main sur les muscles (masser juste avant le niveau d’étirement au point de pression où le muscle se tend), en appuyant ou en frottant avec une boule à picot, ou en allant voir un acupuncteur.
-Marcher 20 minutes dès le lever en allant dehors ou en aller retour chez soi, 5 étages de monter d’escaliers en milieu de journée, remarcher 20 minutes au soir, jongler avec un ballon fait travailler pleins de muscles.
-Quand les gens sont très blessés, la ligne de guérison peut être très mince : faire les bons types d’exercices, ni trop fort ni trop peu.
-Une dépréssion ou très énervé ou stressé diminue la guérison de moitié pour les douleurs musculaires.
-3 exercices de musculation ou d’endurance
-1. Pédaler avec ses 2 bras horizontaux, l’un et l’autre se passant devant en tournant, au moins une minute.
-2. Pédaler dos au lit avec ses 2 jambes 2 fois 50 tours ou plus.
-3. Méthode abdos tout terrain voir (890).
-3 étirements à faire au lit (idéalement après avoir échauffé ses muscles en pédalant avec ses pieds).
-Prévoir une petite pause entre chaque exercice est mieux.
-Plusieurs minutes en alternant et en refaisant quelques fois le même.
-1. Le grand écart de la grenouille : jambes pliées, cuisses écartées sur les genoux face couchée sur le matelas.
-2. S’asseoir sur ses talons et se laisser descendre dos au matelas et rester en étirement, à un plus haut niveau : ajouter un petit coussin sous les pieds pour augmenter l’amplitude d’étirement.
-3. A partir de la position précédente, éloigner les pieds vers l’extérieur du matelas, on peut aussi le faire en remontant les genoux pieds écartés.
-890
-La méthode abdos tout terrain
-Faire ce qui suit dès l’enfance permettra d’empêcher de futurs surpoids, c’est la méthode d’abdos la plus facile. Pour ne pas grossir, se maintenir en forme, maigrir en étant immobile assis ou couché, mettre ses deux mains sur son ventre et faire des contractions d’abdos, au moins 500 par jour ou 1000, 2000 ou 3000 pour plus d’efficacité selon votre forme ou vos besoins, à faire par série de 50 pour mieux compter par 500, idéalement 500 en se réveillant et 500 au soir.
-Pour ceux qui ont seulement des grosses fesses, faire des séries de contractions de fesses en étant assis ou couché ou alors les abdos ont peut-être l’effet de diminuer la graisse de plus bas.
-Je ne garantie pas que ça maigrisse si vous manger beaucoup trop mais cela a son effet et enlève une partie de graisse qui ne s’accumule pas.
-La digestion est aussi accélérée, ainsi que l’évacuation des gaz.
-Si tu as trop mangé et tu te sens comprimé, tu sais ce qu’il te reste à faire.
-891
-La position/la sieste du repli régénérant. 
-Faire une sieste après le repas du milieu de journée ou après le sport permet d’optimiser son énergie et d’être en meilleur santé.
-Position de régénération rapide du lit.
-Avoir une barre au-dessus du niveau des pieds ou tenir ses pieds en l’air sous le drap et la couveture de son lit permet de poser ses pieds dessus en position allongé sur le ventre et régénère bien plus vite pendant la sieste.
-Remarque : un torchon posé sur le coussin ou l’oreiller au tissage aéré pas trop fin ni trop plat permet au front de moins transpirer.
-
+L’option dématérialiseur serait bien pour supprimer des gravats et des matières polluantes.  
+879  
+Quand on a une maison ou un appartement, il faut toujours prévoir une clef au lieu de tout remplacer par une ouverture électrique qui rajoute un risque et une dépendance.  
+Il faut toujours couper l’eau et l’électricité quand on part plusieurs jours de chez soi, cela évite des incendies et des dégâts des eaux.  
+880  
+Les poèmes sont des rivières de cailloux, des parcours et des nuances infinis.  
+881  
+Si on dit qu’on est le plus intelligent, c’est que l’on n’est pas intelligent disent certain, mais on peut être intelligent sauf dans le fait de dire qu’on est le plus intelligent sauf si c’est vrai en délimitant une certaine zone de gens. Est-ce que le créateur suprême peut dire qu’il est le plus intelligent partout. 
+882  
+La stratégie du mal est comme un jeu d’échec.  
+883  
+Pour faire avancer les victoires de la vérité, il faut commencer par les vérités les plus faciles à faire admettre aux ignorants sinon ils vont se braquer.  
+884  
+Une colère saine peut être effectuée de manière équilibré mais ne doit pas durer, elle doit être justifiée dans les bonnes circonstances, quand on a déjà essayé la méthode douce et parler calmement sans résultats.  
+885  
+Il faut aussi chercher au profond de soi plutôt que toujours chercher les réponses à l’extérieur, reconnexion de l’âme, revenir au silence extérieur pour laisser reposer le mental et passer en sérénité à l’agitation intérieure de l’intuition de l’apprentissage.  
+886  
+Le non-agir différemment des autres pour éviter les troubles n’est pas la voie de vivre comme on veut si on respecte l’équilibre du monde.  
+887  
+Mur  
+Quand on bouche les jointures trous entre les pierres il ne faut pas mettre du ciment car il devient impossible ensuite de séparer le ciment de la pierre sans la casser, surtout quand c’est fait très moche en débordant largement sur les pierres, on ne peut pas corriger, il faut choisir une matière recyclable.  
+Le ciment empêche le mur de respirer et retient l’humidité.  
+Quand on perce un trou dans un mûr pour accrocher quelque chose, il faut privilégier le trou dans la jointure plutôt qu’au milieu d’une pierre ou d’une brique. 
+888  
+L’abondance créé la vraie richesse, la rareté la fausse richesse (parce que peu de gens peuvent en profiter).  
+3 personnes à l’infini, soyons un groupe pour l’éternité.  
+889  
+Entretien de santé physique facile  
+Méthode simplifié de bonne santé physique, remise en forme : marcher 20 minutes, monter équivalent de 4 ou 5 étages avec l’escalier ou la colline, tourner sur soi-même 25 fois, les 3 à faire chaque jour ou encore mieux 2 fois dans la journée accélérera la forme ou la guérison. faire la planche sans faire de pompe horizontale ou en diagonale pour les santés fragiles.Faire une sieste en milieu de journée.  
+Pour maigrir facilement, voir Méthode abdos tout terrain n°890.  
+Mal de dos : pour remettre son dos droit, décoincer les vertèbres et avoir moins mal au dos, il faut se mettre dos au sol allongé jusqu’aux pieds, lever les 2 bras vers l’arrière en inspirant et revenir en expirant.  
+Pour récupérer rapidement l’énergie après les exercices, voir Position de régénération n°891. On peut faire un massage ou auto massage juste avant.  
+Compléments et autres explications. Une méthode douce et efficace est de marcher 20 minutes et monter 1 étage d’escalier aux 4, 8, 12, 16 et 20ème minutes.  
+Compléter avec 30 secondes (1 minute, 2 fois 30 secondes selon état de votre corps) de bras tendus mains au sol avec corps droit (position des pompes), faire 25 petits sauts des pieds sur place 2 fois.  
+Faire des monter de genoux sans déplier les jambes (cela est bon pour renforcer avant de s’étirer au grand écart latéral), environ 50 en marchant ou sur place, tourner sur soi-même renforce aussi des muscles.  
+Pour se maintenir en forme quand il n’y a pas de collines à grimper, on peut courir au moins 2 minutes tous les 3 jours, monter des escaliers plusieurs fois dans journée, monter de genoux avec jambes écartés accroupi à debout, un bain de pieds.  
+Pour compiler toutes les méthodes de remise en forme :  
+250 ou 500 contractions d’abdos le matin (sans bouger, les deux mains sur le ventre), abstinence du 1er chakra plusieurs jours en faisant des contractions améliore la décontraction des cuisses et jambes, activité physique (ex longue marche), un bain de pieds, massages, (attention, avoir des vêtements qui serrent bloquent l’énergie).  
+Une douche tiède aide à régénérer les muscles.  
+En cas de nœuds musculaires (différent de simple tension musculaire), ne pas prendre de bain ou douche chaude car cela pourrait faire gonfler les nœuds et contracter un ensemble de muscles. On peut décontracter les muscles en massant, en serrant la main sur les muscles (masser juste avant le niveau d’étirement au point de pression où le muscle se tend), en appuyant ou en frottant avec une boule à picot, ou en allant voir un acupuncteur.  
+Marcher 20 minutes dès le lever en allant dehors ou en aller retour chez soi, 5 étages de monter d’escaliers en milieu de journée, remarcher 20 minutes au soir, jongler avec un ballon fait travailler pleins de muscles.  
+Quand les gens sont très blessés, la ligne de guérison peut être très mince : faire les bons types d’exercices, ni trop fort ni trop peu.  
+Une dépression ou très énervé ou stressé diminue la guérison de moitié pour les douleurs musculaires.  
+3 exercices de musculation ou d’endurance  
+1. Pédaler avec ses 2 bras horizontaux, l’un et l’autre se passant devant en tournant, au moins une minute.  
+2. Pédaler dos au lit avec ses 2 jambes 2 fois 50 tours ou plus.  
+3. Méthode abdos tout terrain voir (890).  
+3 étirements à faire au lit (idéalement après avoir échauffé ses muscles en pédalant avec ses pieds).  
+Prévoir une petite pause entre chaque exercice est mieux.  
+Plusieurs minutes en alternant et en refaisant quelques fois le même.  
+1. Le grand écart de la grenouille : jambes pliées, cuisses écartées sur les genoux face couchée sur le matelas.  
+2. S’asseoir sur ses talons et se laisser descendre dos au matelas et rester en étirement, à un plus haut niveau : ajouter un petit coussin sous les pieds pour augmenter l’amplitude d’étirement.  
+3. A partir de la position précédente, éloigner les pieds vers l’extérieur du matelas, on peut aussi le faire en remontant les genoux pieds écartés.  
+890  
+La méthode abdos tout terrain  
+Faire ce qui suit dès l’enfance permettra d’empêcher de futurs surpoids, c’est la méthode d’abdos la plus facile. Pour ne pas grossir, se maintenir en forme, maigrir en étant immobile assis ou couché, mettre ses deux mains sur son ventre et faire des contractions d’abdos, au moins 500 par jour ou 1000, 2000 ou 3000 pour plus d’efficacité selon votre forme ou vos besoins, à faire par série de 50 pour mieux compter par 500, idéalement 500 en se réveillant et 500 au soir.  
+Pour ceux qui ont seulement des grosses fesses, faire des séries de contractions de fesses en étant assis ou couché ou alors les abdos ont peut-être l’effet de diminuer la graisse de plus bas.  
+Je ne garantie pas que ça maigrisse si vous manger beaucoup trop mais cela a son effet et enlève une partie de graisse qui ne s’accumule pas.  
+La digestion est aussi accélérée, ainsi que l’évacuation des gaz.  
+Si tu as trop mangé et tu te sens comprimé, tu sais ce qu’il te reste à faire.  
+891  
+La position/la sieste du repli régénérant.  
+Faire une sieste après le repas du milieu de journée ou après le sport permet d’optimiser son énergie et d’être en meilleur santé.  
+Position de régénération rapide du lit.  
+Avoir une barre au-dessus du niveau des pieds ou tenir ses pieds en l’air sous le drap et la couverture de son lit permet de poser ses pieds dessus en position allongé sur le ventre et régénère bien plus vite pendant la sieste.  
+Remarque : un torchon posé sur le coussin ou l’oreiller au tissage aéré pas trop fin ni trop plat permet au front de moins transpirer.  
 Une des meilleures positions est assise sur une chaise de bar, avec sa barre en dessous pour que les pieds soit plus libre de tensions d’appuis.
-Cette position permet une récupération optimale d’énergie avec moins de pression de contact avec trop de muscles, alors que dans le lit trop de muscles sont compressés.
-On pourrait aussi inventer une chaise spéciale avec un support pour poser sa tête pour une sieste de repli régénérant.
-892
-Amalgame d’imitations
-Quand on compare quelqu’un à un animal, cela plait plus ou moins selon que l’on privilégie la beauté, l’intelligence ou les capacités plus ou moins positives ou que l’on met une volonté de nuire.
-Si on associe quelqu’un à un singe et l’autre à un chat, certains vont penser qu’on discrimine l’ethnie du singe sauf que le singe est plus intelligent et plus fort que le chat, donc on discrimine l’ethnie du chat sauf que le chat est plus beau et plus rapide que le singe. 
-Tu es agile comme un singe : c’est positif, tu es intelligent comme un singe : c’est perçu négativement, normal car c’est discriminant.
-On peut se déguiser en singe et faire le singe (ex : fête de Mardis gras), ça ne veut pas dire que l’on est raciste contre ceux que les mauvaises personnes ont associés en ce moquant d’eux, les singes peuvent être de differentes couleurs et formes de visage.
-Il y a certaines fois des malentendus alors que l’on n’avait pas vu qu’il y avait cette personne à côtés en faisant tel acte et qui se sent viser, des enfants imitent un animal sans voir une personne qui est passé qui se sent viser. 
-Avec certaines personnes on peut proposer un fruit mais avec l’autre il est interdit par peur de racisme. 
-A cause de la méchanceté historique d’un certain nombre, ils restreignent la liberté des autres qui n’ont pas d’intention de nuire sans vérifier l’intention, l’innocence universelle d’un acte neutre peut être perçue plus ou moins négativement sur une planète ou une autre selon les circonstances de l’histoire. 
-A cause d’imitations malveillantes, ils font l’amalgame de tout le monde, si à chaque fois il y a un méchant qui fait un accent ou se déguise en quelque chose alors les autres n’ont plus le droit dans leur raisonnement d’imiter car on les associe aux méchants, ils ne font plus la distinction entre la forme et le fond de la pensée. 
-A partir de combien de pourcentage de gens négatifs qui le font cela prouve que c’est raciste, la réponse du pourcentage n’est pas une preuve absolue car un cas particulier pourra avoir raison pour son cas précis qui n’était pas pour nuire. 
+Cette position permet une récupération optimale d’énergie avec moins de pression de contact avec trop de muscles, alors que dans le lit trop de muscles sont compressés.  
+On pourrait aussi inventer une chaise spéciale avec un support pour poser sa tête pour une sieste de repli régénérant.  
+892  
+Amalgame d’imitations  
+Quand on compare quelqu’un à un animal, cela plait plus ou moins selon que l’on privilégie la beauté, l’intelligence ou les capacités plus ou moins positives ou que l’on met une volonté de nuire.  
+Si on associe quelqu’un à un singe et l’autre à un chat, certains vont penser qu’on discrimine l’ethnie du singe sauf que le singe est plus intelligent et plus fort que le chat, donc on discrimine l’ethnie du chat sauf que le chat est plus beau et plus rapide que le singe.  
+Tu es agile comme un singe : c’est positif, tu es intelligent comme un singe : c’est perçu négativement, normal car c’est discriminant.  
+On peut se déguiser en singe et faire le singe (ex : fête de Mardis gras), ça ne veut pas dire que l’on est raciste contre ceux que les mauvaises personnes ont associés en ce moquant d’eux, les singes peuvent être de différentes couleurs et formes de visage.  
+Il y a certaines fois des malentendus alors que l’on n’avait pas vu qu’il y avait cette personne à côtés en faisant tel acte et qui se sent viser, des enfants imitent un animal sans voir une personne qui est passé qui se sent viser.  
+Avec certaines personnes on peut proposer un fruit mais avec l’autre il est interdit par peur de racisme.  
+A cause de la méchanceté historique d’un certain nombre, ils restreignent la liberté des autres qui n’ont pas d’intention de nuire sans vérifier l’intention, l’innocence universelle d’un acte neutre peut être perçue plus ou moins négativement sur une planète ou une autre selon les circonstances de l’histoire.  
+A cause d’imitations malveillantes, ils font l’amalgame de tout le monde, si à chaque fois il y a un méchant qui fait un accent ou se déguise en quelque chose alors les autres n’ont plus le droit dans leur raisonnement d’imiter car on les associe aux méchants, ils ne font plus la distinction entre la forme et le fond de la pensée.  
+A partir de combien de pourcentage de gens négatifs qui le font cela prouve que c’est raciste, la réponse du pourcentage n’est pas une preuve absolue car un cas particulier pourra avoir raison pour son cas précis qui n’était pas pour nuire.  
 
 Exemple : Si je me déguise en chat parce que j’aime les chats, suis-je raciste contre les chats ? Au lieu de faire une déduction, vérifiez l’intention.
-Il y en a qui confonde la vérité universelle alors, ils t’insultent et te prennent pour un con alors que l’exemple est parfaitement juste et veut faire réfléchir mais ils te dramatisent sans arguments valables pour démonter l’exemple en te critiquant à côté du sujet, retourne à l’école ils disent ou fou, va ouvrir un livre d’histoire, t’es pas éduqué, alors qu’avec 1121 proverbes je suis éduqué.
-Relisez ma devise 8 sur les 21 et arrêtez de faire des généralités.
-Comme dans la rue si on n’a pas envie de répondre, on te traite de raciste alors que ça n’avait pas de rapport.
-893
-Le sage est celui qui est capable de synthétiser le meilleur de tout.
-894
-Les femmes et les hommes doivent faire leurs besoins assis sur la cuvette WC et la refermer quand ils tirent la chasse, cela évite les accidents et la vapeur jaune de se déposer autour dans la pièce.
-895
+Il y en a qui confonde la vérité universelle alors, ils t’insultent et te prennent pour un con alors que l’exemple est parfaitement juste et veut faire réfléchir mais ils te dramatisent sans arguments valables pour démonter l’exemple en te critiquant à côté du sujet, retourne à l’école ils disent ou fou, va ouvrir un livre d’histoire, t’es pas éduqué, alors qu’avec 1121 proverbes je suis éduqué.  
+Relisez ma devise 8 sur les 21 et arrêtez de faire des généralités.  
+Comme dans la rue si on n’a pas envie de répondre, on te traite de raciste alors que ça n’avait pas de rapport.  
+893  
+Le sage est celui qui est capable de synthétiser le meilleur de tout.  
+894  
+Les femmes et les hommes doivent faire leurs besoins assis sur la cuvette WC et la refermer quand ils tirent la chasse, cela évite les accidents et la vapeur jaune de se déposer autour dans la pièce.  
+895  
 Il faut toujours faire des réserves de nourriture et d’argent pour être en sécurité et en cas de mauvaise tournure des événements.
-Mettre son argent sous différentes formes et choses et à différents endroits.
-896
-Une fleur sans sa tige ne peut s’élever dans les airs.
-897
-Une maison de pierre, de brique ou de béton d’au moins 40 cm d’épaisseur sont des maisons de qualités supérieures, en dessous de 30 cm de qualités inférieures.
-898
-Ce n’est pas à cause d’un événement malheureux du passé qu’il faut s’empêcher d’avancer et croire que le résultat sera le même, même s’il y a pleins d’idiots ou d’échecs.
-899
-Le Kung-fu est l’art du mouvement et de l’amélioration de tout notre corps avec tout ce que l’on trouve pour agiter toutes les beautés de l’art du combat.
-900
-Une planète idéale est composée de pleins de langages et de différentes races ou apparences.
+Mettre son argent sous différentes formes et choses et à différents endroits.  
+896  
+Une fleur sans sa tige ne peut s’élever dans les airs.  
+897  
+Une maison de pierre, de brique ou de béton d’au moins 40 cm d’épaisseur sont des maisons de qualités supérieures, en dessous de 30 cm de qualités inférieures. 
+898  
+Ce n’est pas à cause d’un événement malheureux du passé qu’il faut s’empêcher d’avancer et croire que le résultat sera le même, même s’il y a pleins d’idiots ou d’échecs.  
+899  
+Le Kung-fu est l’art du mouvement et de l’amélioration de tout notre corps avec tout ce que l’on trouve pour agiter toutes les beautés de l’art du combat.  
+900  
+Une planète idéale est composée de pleins de langages et de différentes races ou apparences.  
 
 Divine Corée
 
