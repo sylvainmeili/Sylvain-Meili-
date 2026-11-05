@@ -3317,245 +3317,245 @@ Le point le plus haut n’est pas l’esprit seul, c’est l’esprit avec un ma
 816  
 On parle d un autre sujet et on nous répète pour nous programmer et pour éviter les sujets plus importants.  
 817  
-Les proverbes nous font réfléchir et peuvent être plus ou moins des vérités ou non, logiques, poétiques, des jeux de mots, drôles, le tout, c’est de choisir les bons.
-818
-La perfection est de faire ce que l’on veut dans la forme que l’on veut sans souffrir et sans faire souffrir les autres.
-La perfection est d’être toujours plusieurs unis pour l’éternité.
-Etre sans forme et ne rien faire avant la première forme de toute la création n’est pas la perfection, c’est peut-être être conscient mais ce n’est pas vivre » (en réponse a une théorie de certains).
-Il faut faire aussi sa part de services aux autres.
-Toute la création peut faire évoluer la source.
-Toute la création fait partie de dieu.
-La vie est faite pour être partagée.
-Il y a la source, le créateur ou dieu primordial (première conscience) de l’univers central et de tous les univers et un dieu pour chaque univers.
-Pour l’éternité, la possibilité de prendre conscience dans la forme sinon la source est conne.
-(Réflexions de théories selon moi).
-Je suis le révolutionnaire du multivers contre les méchants et la souffrance du bas et les idées de merdes du haut.
-Seul l’univers central est éternel, sans commencement ni fin d’après le livre Urantia.
-Il ne peut pas créer d’univers sans évolution. Notre univers a eu un commencement contrairement à l’univers central.
-Je veux réformer l’univers pour arrêter la souffrance, et propager la beauté de toujours pourvoir parler à une autre personne, le révolutionnaire d’idées pour le dieu de cette univers et pour le créateur suprême de tous les univers.
-Je critique des théories et tout ce qui ne me plaît pas.
-(Idée non vérifiée d’une supposition théorique que je propose au créateur et dont je suis dans le doute à cause de contradictions dites par certains et même dans le livre d’Urantia). La voie du milieu, rester dans l’éternité du meilleur sans être remis à zéro.
-Si l’univers meurt, changer d’univers sans remise à zéro, en espérant qu’ils ne font pas le big bang (selon certains) inverse ou fin d’un univers en même temps, il semble qu’il y a 7 univers autour de l’univers du créateur central (source qui ne peut pas prendre forme) au milieu et un dieu pour chaque autre univers (qui peut prendre forme) voir aussi « Le livre d’Urantia » (à vous de faire votre avis), la fusion de conscience à la moitié serait le compromis de ne pas redescendre au plus bas. Si dans le simulateur d’avenir du créateur, si ça ne marche pas et crée de la torture, ce n’est pas la peine d’essayer. On devrait pouvoir faire un téléchargement automatique de sagesse pour éviter des tortures dans les réincarnations, on devrait demander la déconnexion de la conscience du corps avant de mourir en souffrant,  le créateur a assez vu ce que ça fait d’être con alors qu’il arrête pour toujours ce système d’évolution qui créé des tortures. Ils disent qu’une nouvelle âme doit expérimenter d’être un méchant et une victime donc tortures horribles, on devrait mettre une sagesse automatique de base à chaque nouvelle âme pour empêcher ça. Créer un système à consciences multiples éternelles au lieu de fusionner si c’est le cas disent certaines personnes dans la seule conscience du créateur à la fin d’un cycle big bang.
-Si dieu ou la source absorbe toutes les consciences en une seule comme disent certains, ton dieu est dans un aspect comme un robot qui absorbe toutes les données de tout le monde, ta théorie est une dictature.
-Si on arrive à la fin de l’univers et que l’on créé un vaisseau géant planète pour échapper au big bang inverse, cela sera selon moi ou la logique un échec parce que si toute la lumière disparait, le vaisseau planète finirait de se vider de son énergie car le mouvement de l’univers fournit l’énergie libre. Donc il vaudrait mieux trouver l’entrée de l’univers à côté ou prévoir l’équipement pour s’euthanasier pour les dernières formes de vie quoique mort on a encore un corp éthérique, on peut toujours continuer à vivre avec sa conscience mais sans forme si on y arrive en attendant de savoir ce que le créateur à l’idée de faire après, soit peut-être un nouveau univers ou multivers.
-Pas intérêt de faire le cycle d’incarnation d’un autre sinon, c’est une dictature du mal absolu, c’est imposer la décision d’un autre.
+Les proverbes nous font réfléchir et peuvent être plus ou moins des vérités ou non, logiques, poétiques, des jeux de mots, drôles, le tout, c’est de choisir les bons.  
+818  
+La perfection est de faire ce que l’on veut dans la forme que l’on veut sans souffrir et sans faire souffrir les autres.  
+La perfection est d’être toujours plusieurs unis pour l’éternité.  
+Être sans forme et ne rien faire avant la première forme de toute la création n’est pas la perfection, c’est peut-être être conscient mais ce n’est pas vivre » (en réponse a une théorie de certains).  
+Il faut faire aussi sa part de services aux autres.  
+Toute la création peut faire évoluer la source.  
+Toute la création fait partie de dieu.  
+La vie est faite pour être partagée.  
+Il y a la source, le créateur ou dieu primordial (première conscience) de l’univers central et de tous les univers et un dieu pour chaque univers.  
+Pour l’éternité, la possibilité de prendre conscience dans la forme sinon la source est conne.  
+(Réflexions de théories selon moi).  
+Je suis le révolutionnaire du multivers contre les méchants et la souffrance du bas et les idées de merdes du haut.  
+Seul l’univers central est éternel, sans commencement ni fin d’après le livre Urantia.  
+Il ne peut pas créer d’univers sans évolution. Notre univers a eu un commencement contrairement à l’univers central.  
+Je veux réformer l’univers pour arrêter la souffrance, et propager la beauté de toujours pourvoir parler à une autre personne, le révolutionnaire d’idées pour le dieu de cette univers et pour le créateur suprême de tous les univers.  
+Je critique des théories et tout ce qui ne me plaît pas.  
+(Idée non vérifiée d’une supposition théorique que je propose au créateur et dont je suis dans le doute à cause de contradictions dites par certains et même dans le livre d’Urantia). La voie du milieu, rester dans l’éternité du meilleur sans être remis à zéro.  
+Si l’univers meurt, changer d’univers sans remise à zéro, en espérant qu’ils ne font pas le big bang (selon certains) inverse ou fin d’un univers en même temps, il semble qu’il y a 7 univers autour de l’univers du créateur central (source qui ne peut pas prendre forme) au milieu et un dieu pour chaque autre univers (qui peut prendre forme) voir aussi « Le livre d’Urantia » (à vous de faire votre avis), la fusion de conscience à la moitié serait le compromis de ne pas redescendre au plus bas. Si dans le simulateur d’avenir du créateur, si ça ne marche pas et crée de la torture, ce n’est pas la peine d’essayer. On devrait pouvoir faire un téléchargement automatique de sagesse pour éviter des tortures dans les réincarnations, on devrait demander la déconnexion de la conscience du corps avant de mourir en souffrant,  le créateur a assez vu ce que ça fait d’être con alors qu’il arrête pour toujours ce système d’évolution qui créé des tortures. Ils disent qu’une nouvelle âme doit expérimenter d’être un méchant et une victime donc tortures horribles, on devrait mettre une sagesse automatique de base à chaque nouvelle âme pour empêcher ça. Créer un système à consciences multiples éternelles au lieu de fusionner si c’est le cas disent certaines personnes dans la seule conscience du créateur à la fin d’un cycle big bang.  
+Si dieu ou la source absorbe toutes les consciences en une seule comme disent certains, ton dieu est dans un aspect comme un robot qui absorbe toutes les données de tout le monde, ta théorie est une dictature.  
+Si on arrive à la fin de l’univers et que l’on créé un vaisseau géant planète pour échapper au big bang inverse, cela sera selon moi ou la logique un échec parce que si toute la lumière disparait, le vaisseau planète finirait de se vider de son énergie car le mouvement de l’univers fournit l’énergie libre. Donc il vaudrait mieux trouver l’entrée de l’univers à côté ou prévoir l’équipement pour s’euthanasier pour les dernières formes de vie quoique mort on a encore un corp éthérique, on peut toujours continuer à vivre avec sa conscience mais sans forme si on y arrive en attendant de savoir ce que le créateur à l’idée de faire après, soit peut-être un nouveau univers ou multivers.  
+Pas intérêt de faire le cycle d’incarnation d’un autre sinon, c’est une dictature du mal absolu, c’est imposer la décision d’un autre.  
 Si il faut des personnes pour entretenir la passé, que le créateur créé des nouvelles consciences pour ne pas que tout le monde se tape toute 
-la merde des autres, on doit partager son bonheur mais pas son horreur. On peut fusionner la connaissance par le haut alors pourquoi torturer tout le monde par le bas, il est mieux de copier la connaissance des autres dans le sien.
-Le créateur expérimente tous les scénarios par l’intermédiaire de consciences  mais qu’il n’oblige pas les consciences à faire tous les scénarios parce que c’est cruel. Ces idées sont aussi pour contrer ce que j’appelle par une hyperbole « la secte des imbéciles heureux » qui dit ce genre de propos débiles : tout est parfait ; le but de la vie, c’est rien ; tout ce qui été créé ne sert à rien car la vérité a toujours été au temps zéro ; la joie n’a pas besoin d’histoire ; la vie n’a aucun sens ; le réel est sans conscience, sans forme, sans mots, sans histoire, (le bonheur du rien).
-Voilà c’est un résumé, voilà ma vérité qui est logique : le but de la vie, c’est tout ce qu’on y met et c’est pour apprendre et s’amuser.
-Il est évident qu’il faut faire tourner la roue de la vie pour que les consciences du bas puissent devenir les consciences du haut, et évidemment, il y a des fusions de consciences pour faire de la place sinon le nombre de conscience augmenterait trop à l’infini dans certaines zones.
-Ne plus jamais créer d’univers avec de la torture et des méchants est mon souhait.
-Mon univers idéal que je demande, je veux qu’ils inventent un système où la torture est interdite, interdiction de mourir de torture donc un système qui oblige l’au-delà positif à déconnecter la conscience du corps avant que les satanistes par exemple prennent l’énergie de la peur. Arrêter tous les méchants des univers et faire un téléchargement minimum de sagesse pour ne pas qu’ils recommencent.
-Avoir une intervention divine qui empêche les catastrophes tout en faisant évoluer les consciences. Empêcher toute surpopulation de réincarnation d’animaux et qu’ils arrêtent de se manger entre eux dans la souffrance.
-Avoir le choix de déterminer avant son incarnation sa mort par déconnexion du corps par l’au-delà positif. Ainsi on ne finit pas très vieux si on veut, ou on ne reste pas aveugle longtemps.... 
-(Arrêter la réincarnation des tiques, punaises de lit, les verrues qui nous emmerdent, que l’au-delà ou les gens sur Terre trouvent une solution).
+la merde des autres, on doit partager son bonheur mais pas son horreur. On peut fusionner la connaissance par le haut alors pourquoi torturer tout le monde par le bas, il est mieux de copier la connaissance des autres dans le sien.  
+Le créateur expérimente tous les scénarios par l’intermédiaire de consciences  mais qu’il n’oblige pas les consciences à faire tous les scénarios parce que c’est cruel. Ces idées sont aussi pour contrer ce que j’appelle par une hyperbole « la secte des imbéciles heureux » qui dit ce genre de propos débiles : tout est parfait ; le but de la vie, c’est rien ; tout ce qui été créé ne sert à rien car la vérité a toujours été au temps zéro ; la joie n’a pas besoin d’histoire ; la vie n’a aucun sens ; le réel est sans conscience, sans forme, sans mots, sans histoire, (le bonheur du rien).  
+Voilà c’est un résumé, voilà ma vérité qui est logique : le but de la vie, c’est tout ce qu’on y met et c’est pour apprendre et s’amuser.  
+Il est évident qu’il faut faire tourner la roue de la vie pour que les consciences du bas puissent devenir les consciences du haut, et évidemment, il y a des fusions de consciences pour faire de la place sinon le nombre de conscience augmenterait trop à l’infini dans certaines zones.  
+Ne plus jamais créer d’univers avec de la torture et des méchants est mon souhait.  
+Mon univers idéal que je demande, je veux qu’ils inventent un système où la torture est interdite, interdiction de mourir de torture donc un système qui oblige l’au-delà positif à déconnecter la conscience du corps avant que les satanistes par exemple prennent l’énergie de la peur. Arrêter tous les méchants des univers et faire un téléchargement minimum de sagesse pour ne pas qu’ils recommencent.  
+Avoir une intervention divine qui empêche les catastrophes tout en faisant évoluer les consciences. Empêcher toute surpopulation de réincarnation d’animaux et qu’ils arrêtent de se manger entre eux dans la souffrance.  
+Avoir le choix de déterminer avant son incarnation sa mort par déconnexion du corps par l’au-delà positif. Ainsi on ne finit pas très vieux si on veut, ou on ne reste pas aveugle longtemps...  
+(Arrêter la réincarnation des tiques, punaises de lit, les verrues qui nous emmerdent, que l’au-delà ou les gens sur Terre trouvent une solution).  
 Ils laissent généralement les planètes évoluer seules dans un certain point de vue, donc même si ils voient quelqu’un agoniser depuis leur vaisseau en bas, ils ne veulent pas dévoiler leur existence, laisser le libre arbitre de la planète, c’est une règle de merde, ils doivent demander l’autorisation d’aider une personne d’une autre planète, je considère qu’on fait ce que l’on veut du moment qu’on fait le bien, le plus important est d’empêcher un maximum de souffrance.
-Ils interviennent seulement discrètement généralement quand les méchants d’une planète menace de menacer l’univers (exemple : bombes nucléaires qui détériorent plusieurs dimensions ou invasion de planètes).
-Même si les choses sont impossibles, je demande à la source et au dieu de cet univers d’empêcher toute torture insupportable mais ils ne veulent pas changer au lieu de mettre un niveau d’intelligence et d’assistance minimum divine. Ils ne veulent pas changer.
-La souffrance nous oblige à faire des efforts de créativité pour évoluer.
-La source aussi évolue selon moi.
+Ils interviennent seulement discrètement généralement quand les méchants d’une planète menace de menacer l’univers (exemple : bombes nucléaires qui détériorent plusieurs dimensions ou invasion de planètes).  
+Même si les choses sont impossibles, je demande à la source et au dieu de cet univers d’empêcher toute torture insupportable mais ils ne veulent pas changer au lieu de mettre un niveau d’intelligence et d’assistance minimum divine. Ils ne veulent pas changer.  
+La souffrance nous oblige à faire des efforts de créativité pour évoluer.  
+La source aussi évolue selon moi.  
 Lire le livre Conversation avec Dieu de Neale Donald Walsch, je ne suis pas d’accord sur plusieurs point, je suis contre tout est parfait et contre que tout est moi car d’après ce qu’il dit ; moi dans la logique, je peux décider de ne pas être lui éternellement si je suis créateur de ma vie :
-J’ordonne que la planète terre est éternelle ou qu’elle soit téléportée dans un autre système solaire ou univres si celui-ci disparait, je demande même si ils disent que c’est impossible.
-Je décide de rester éternellement séparé de la source tout en étant connecté, dans ce cas là nous serons toujours au moins 2, dans la voie du milieu, du bien-être de la forme et de la connaissance de faire ce que je veux dans le bien ; comme ça, je garde mon individualité, c’est moi qui a raison.
-Donc 2 options : perde son individualité en fusionnant avec la source ou garder son individualité en étant connecté à la source.
-819
+J’ordonne que la planète terre est éternelle ou qu’elle soit téléportée dans un autre système solaire ou univers si celui-ci disparait, je demande même si ils disent que c’est impossible.  
+Je décide de rester éternellement séparé de la source tout en étant connecté, dans ce cas là nous serons toujours au moins 2, dans la voie du milieu, du bien-être de la forme et de la connaissance de faire ce que je veux dans le bien ; comme ça, je garde mon individualité, c’est moi qui a raison.  
+Donc 2 options : perde son individualité en fusionnant avec la source ou garder son individualité en étant connecté à la source.  
+819  
 Le syndrome des « imbéciles » heureux   
-Ce terme est une exagération, cela signifie pas être imbécile en tant que personne mais imbécile sur certains aspects ou sujets, voici ci-dessous un certain nombre de propos de ceux qui se contente du rien, ou font des phrases trop courtes, ce qui fait qu’elles deviennent plus fausses et manichéennes, qui trouvent une excuse à tout, répètent comme des perroquets ou des  « mougeons/moujoncs », je corrige ces propos rapidement au plus simple selon mon avis, certaines phrases ne font pas forcément imbécile heureux, voici la collection de phrases.
-« Tout est parfait/ tout est juste/ tout va toujours bien. »
-J’ordonne que tout est juste. 
-Ou alors le dire pour attirer le juste car le verbe est créateur mais ça veut pas dire que tout est juste.
-Les premiers créateurs de l’univers, arrêter de croire que votre système est parfait dès le premier univers créé, c’est ridicule.
-Ce n’est pas parce que l’équilibre revient ou que c’est pour évoluer que tout est parfait ni parce que l’on choisit une réincarnation parce qu’on est généreux de faire évoluer les autres en souffrant atrocement (humains ou animaux) ou accepter les inconvénients qui vont avec par défaut de ne pas pouvoir faire autrement. On finit par transformer la merde en or donc tout est parfait selon eux. Arrêter des chercher des excuses à tout.
-Jamais je ne serais d’accord avec ça, bande de consciences de ruche 2.0.
-Si un système solaire ou une galaxie tombe en esclavage, pour eux tout est parfait, qu’il y ait 100 milliards de torture ou 10000 fois plus, tout est parfait, non il faut arrêter un mal qui se propage. 
-Si on n’éduque pas un enfant bien, le monde sera pire, donc il aura un mauvais karma et si il se fait torturer à cause de ses parents mais c’’est juste pour lui car tout est parfait et il ne devait pas croire la bêtise, il n’a pas fait exprès car il voulait bien être moins ignorant mais le contraire est la bonne éducation où il n’a pas souffert et est beaucoup plus évolué, donc votre vision est fausse.
-Le mal est un moyen de tester la réaction de mauvaises attitudes potentielles mais arrêter d’abuser car cela fait pire.
-Vous pouvez peut-être dire : tout est accepté (incarnation) au risque d’événements incertains. Accepter ne veut pas dire rendre parfait ou juste donc changez le vocabulaire.
-Tout est juste est un argument que peuvent utiliser les méchants pour continuer leurs conneries et c’est une phrase énervante car c’est faux.
-Tout est parfait dans l’univers est un argument de dictateur pour justifier tout ce qu’il fait (tout son système).
-Une chose nécessaire n’est pas forcément une chose juste mais le chemin le plus optimisé.
-Croire que tout est parfait est comme faire un code de triche ou mettre une paire de lunettes magiques hypnotiques pour s’enlever toutes ses contrariétés pour vibrer haut mais en trichant sur un mensonge. Au lieu de transmuter le négatif en positif normalement, ils s’inventent une phrase mensongère, et cela fait baisser la vibration d’autres d’entendre une telle bêtise. On peut évoluer sans utiliser des phrases illogiques.
-Ce n’est pas parce que il faut une dualité pour évoluer dans de nombreux cas que tout est parfait, il faut enseigner la meilleure des sagesses pour réduire au maximum la dualité.
-Les consciences de l’au-delà et les extraterrestres positifs, pas besoin de nous aider, tout est parfait, mais si on nous aide pas, donc davantage de souffrances, et si on nous aide cela devient plus parfait que quand tout était parfait avec moins d’aides donc mon argument vous a battu donc tout est parfait est faux.
+Ce terme est une exagération, cela signifie pas être imbécile en tant que personne mais imbécile sur certains aspects ou sujets, voici ci-dessous un certain nombre de propos de ceux qui se contente du rien, ou font des phrases trop courtes, ce qui fait qu’elles deviennent plus fausses et manichéennes, qui trouvent une excuse à tout, répètent comme des perroquets ou des  « mougeons/moujoncs », je corrige ces propos rapidement au plus simple selon mon avis, certaines phrases ne font pas forcément imbécile heureux, voici la collection de phrases.  
+« Tout est parfait/ tout est juste/ tout va toujours bien. »  
+J’ordonne que tout est juste.  
+Ou alors le dire pour attirer le juste car le verbe est créateur mais ça veut pas dire que tout est juste.  
+Les premiers créateurs de l’univers, arrêter de croire que votre système est parfait dès le premier univers créé, c’est ridicule.  
+Ce n’est pas parce que l’équilibre revient ou que c’est pour évoluer que tout est parfait ni parce que l’on choisit une réincarnation parce qu’on est généreux de faire évoluer les autres en souffrant atrocement (humains ou animaux) ou accepter les inconvénients qui vont avec par défaut de ne pas pouvoir faire autrement. On finit par transformer la merde en or donc tout est parfait selon eux. Arrêter des chercher des excuses à tout.  
+Jamais je ne serais d’accord avec ça, bande de consciences de ruche 2.0.  
+Si un système solaire ou une galaxie tombe en esclavage, pour eux tout est parfait, qu’il y ait 100 milliards de torture ou 10000 fois plus, tout est parfait, non il faut arrêter un mal qui se propage.  
+Si on n’éduque pas un enfant bien, le monde sera pire, donc il aura un mauvais karma et si il se fait torturer à cause de ses parents mais c’’est juste pour lui car tout est parfait et il ne devait pas croire la bêtise, il n’a pas fait exprès car il voulait bien être moins ignorant mais le contraire est la bonne éducation où il n’a pas souffert et est beaucoup plus évolué, donc votre vision est fausse.  
+Le mal est un moyen de tester la réaction de mauvaises attitudes potentielles mais arrêter d’abuser car cela fait pire.  
+Vous pouvez peut-être dire : tout est accepté (incarnation) au risque d’événements incertains. Accepter ne veut pas dire rendre parfait ou juste donc changez le vocabulaire.  
+Tout est juste est un argument que peuvent utiliser les méchants pour continuer leurs conneries et c’est une phrase énervante car c’est faux.  
+Tout est parfait dans l’univers est un argument de dictateur pour justifier tout ce qu’il fait (tout son système).  
+Une chose nécessaire n’est pas forcément une chose juste mais le chemin le plus optimisé.  
+Croire que tout est parfait est comme faire un code de triche ou mettre une paire de lunettes magiques hypnotiques pour s’enlever toutes ses contrariétés pour vibrer haut mais en trichant sur un mensonge. Au lieu de transmuter le négatif en positif normalement, ils s’inventent une phrase mensongère, et cela fait baisser la vibration d’autres d’entendre une telle bêtise. On peut évoluer sans utiliser des phrases illogiques.  
+Ce n’est pas parce que il faut une dualité pour évoluer dans de nombreux cas que tout est parfait, il faut enseigner la meilleure des sagesses pour réduire au maximum la dualité.  
+Les consciences de l’au-delà et les extraterrestres positifs, pas besoin de nous aider, tout est parfait, mais si on nous aide pas, donc davantage de souffrances, et si on nous aide cela devient plus parfait que quand tout était parfait avec moins d’aides donc mon argument vous a battu donc tout est parfait est faux.  
 Leur réponse : « On vous aide pour qu’il y a moins de souffrance mais tout est juste. » Donc pas d’argument supérieur à moi.
-Ils ont trouvé une autre explication : tout est parfait car on a toujours l’occasion d’envoyer de l’amour (dans ce cas enlève tout est parfait et garde on a toujours l’occasion d’envoyer de l’amour sinon c’est ridicule).
-Et l’animal ou l’humain qui agonise horriblement à cause d’un inventeur de maladies, vas-tu vérifier ta phrase et lui dire pendant qu’il souffre : quoi qu’il se passe, tout est juste. Je t’ai piégé.
-« Le réel est sans conscience, sans mots, sans histoires, sans forme. »
-Tout ce qui existe fait parti du réel sauf que certaines choses durent un temps et que le créateur est éternel. 
-L’irréel est sans concience ni rien d’autres et le réel est conscience.
-Il y a les réalités éternelles et les réalités passagères.
-« La terre 3D est un monde d’illusions ou la forme est une illusion. »
-C’est un monde réel (plus) limité déconnecté en partie de la source dans un monde où la vérité totale n’est pas accessible directement, ou la souffrance et le mensonge existe pendant un temps qui n’est pas éternel. Ils disent un monde d’illusion là où il n y’a pas d’amour (quand on reçoit l’explication). Il y a des gens qui ont des croyances illusoires, l’illusion peut être un hologramme ou un trucage de fausse magie.
-« La matière est une illusion.»
-Dire que la matière est une illusion parce que au niveau nanoscopique et subatomique, ce qui constitue la matière protons, neutrons, électrons et autres particules sont surtout entourés de vide est ridicule, expliquer la matière n’est pas prouver qu’elle est une illusion.
-« Le passé n’a jamais existé. »
-Si le passé n’a jamais existé, tu n’existe pas alors ? Le présent est les conséquences du passé.
-« Il n’y a pas d’erreurs, que des leçons. »
-Des erreurs répétées ne sont pas encore des leçons.
-Ex : le pollueur qui jette par terre des centaines de fois sa cigarette de produits toxiques.
-« Il n’y a pas de hasard. »
-Il y a un hasard qui peut-être prédéterminé ou modifié plus ou moins facilement par l’univers. Quand on jette un dé, il y a le hasard, ça s’appelle les probabilités (1 chance sur 6). Si on pose une question à l’univers avec des dés, il faudra lancer les 3 dés des centaines de fois ou plus de 1000 fois pour que le chiffre de la réponse sorte plus que d’autres car influencé par l’univers car le hasard est dominant et que l’on peut influencer seulement en partie. (Il faut faire le vide dans son esprit pour ne pas influencer). 3x3 pour oui 3x4 pour non.
-Il y a les vraies coïncidences qui peuvent être parfois considérées comme des synchronicités, les fausses coïncidences qui sont des coïncidences hasardeuses, et le hasard.
-3 autres explications. Il peut y avoir le hasard ou alors c’est un message de l’au-delà quand quelqu’un dit le même mot que toi à la télé 1 seconde après ou en écoutant 2 vidéos en même temps. Peut-être qu’on capte le futur inconsciemment et que cela influence le mot que l’on dit. 
-« Pas besoin de revivre ce qui a été vécu. »
-Le sage ne se lasse pas des bonnes choses.
-« Tu es la source en incarnation »
-Non car alors dans ta logique, l’arbre, la mouche est aussi la source en incarnation et la bactérie est moi en incarnation mais je ne vais pas me réincarner en mouche ni faire toutes les réincarnations de l’univers.
-Je fais partie de l’ensemble de la création.
-« On est responsable de sa vie et de sa souffrance. »
-Je ne suis pas forcément responsable de ce que les autres m’infligent mais il y a aussi une partie de karma.
-Pas à 100%, pas toujours vrai, par exemple si l’on avait prévu de faire des enfants avec une personne en se réincarnant et qu’elle n’est pas venue. Aller dire ça aux bébés et enfants maltraités s’ils sont responsables de leurs souffrances, si quelqu’un te tape très fort et que tu as mal, tu souffres donc pas responsable de sa souffrance si tu es innocent, c’est n’importe quoi. Même si quelqu’un choisi de s’incarner, arrêter de dire ça. 
-Si un méchant envoie un virus qui tue et torture horriblement les gens, c’est de leurs fautes car ils ne vibrent pas assez haut pour ne pas avoir de symptômes, c’est très abusé votre logique qui est injuste.
-C’est peut-être le karma mais qui n’est pas une excuse à tout.
-Si quelqu’un pollue et que l’on doit s’embêter à dépolluer. 
+Ils ont trouvé une autre explication : tout est parfait car on a toujours l’occasion d’envoyer de l’amour (dans ce cas enlève tout est parfait et garde on a toujours l’occasion d’envoyer de l’amour sinon c’est ridicule).  
+Et l’animal ou l’humain qui agonise horriblement à cause d’un inventeur de maladies, vas-tu vérifier ta phrase et lui dire pendant qu’il souffre : quoi qu’il se passe, tout est juste. Je t’ai piégé.  
+« Le réel est sans conscience, sans mots, sans histoires, sans forme. »  
+Tout ce qui existe fait parti du réel sauf que certaines choses durent un temps et que le créateur est éternel.  
+L’irréel est sans conscience ni rien d’autres et le réel est conscience.  
+Il y a les réalités éternelles et les réalités passagères.  
+« La terre 3D est un monde d’illusions ou la forme est une illusion. »  
+C’est un monde réel (plus) limité déconnecté en partie de la source dans un monde où la vérité totale n’est pas accessible directement, ou la souffrance et le mensonge existe pendant un temps qui n’est pas éternel. Ils disent un monde d’illusion là où il n y a pas d’amour (quand on reçoit l’explication). Il y a des gens qui ont des croyances illusoires, l’illusion peut être un hologramme ou un trucage de fausse magie.  
+« La matière est une illusion.»  
+Dire que la matière est une illusion parce que au niveau nanoscopique et subatomique, ce qui constitue la matière protons, neutrons, électrons et autres particules sont surtout entourés de vide est ridicule, expliquer la matière n’est pas prouver qu’elle est une illusion.  
+« Le passé n’a jamais existé. »  
+Si le passé n’a jamais existé, tu n’existe pas alors ? Le présent est les conséquences du passé.  
+« Il n’y a pas d’erreurs, que des leçons. »  
+Des erreurs répétées ne sont pas encore des leçons.  
+Ex : le pollueur qui jette par terre des centaines de fois sa cigarette de produits toxiques.  
+« Il n’y a pas de hasard. »  
+Il y a un hasard qui peut-être prédéterminé ou modifié plus ou moins facilement par l’univers. Quand on jette un dé, il y a le hasard, ça s’appelle les probabilités (1 chance sur 6). Si on pose une question à l’univers avec des dés, il faudra lancer les 3 dés des centaines de fois ou plus de 1000 fois pour que le chiffre de la réponse sorte plus que d’autres car influencé par l’univers car le hasard est dominant et que l’on peut influencer seulement en partie. (Il faut faire le vide dans son esprit pour ne pas influencer). 3x3 pour oui 3x4 pour non.  
+Il y a les vraies coïncidences qui peuvent être parfois considérées comme des synchronicités, les fausses coïncidences qui sont des coïncidences hasardeuses, et le hasard.  
+3 autres explications. Il peut y avoir le hasard ou alors c’est un message de l’au-delà quand quelqu’un dit le même mot que toi à la télé 1 seconde après ou en écoutant 2 vidéos en même temps. Peut-être qu’on capte le futur inconsciemment et que cela influence le mot que l’on dit.  
+« Pas besoin de revivre ce qui a été vécu. »  
+Le sage ne se lasse pas des bonnes choses.  
+« Tu es la source en incarnation »  
+Non car alors dans ta logique, l’arbre, la mouche est aussi la source en incarnation et la bactérie est moi en incarnation mais je ne vais pas me réincarner en mouche ni faire toutes les réincarnations de l’univers.  
+Je fais partie de l’ensemble de la création.  
+« On est responsable de sa vie et de sa souffrance. »  
+Je ne suis pas forcément responsable de ce que les autres m’infligent mais il y a aussi une partie de karma.  
+Pas à 100%, pas toujours vrai, par exemple si l’on avait prévu de faire des enfants avec une personne en se réincarnant et qu’elle n’est pas venue. Aller dire ça aux bébés et enfants maltraités s’ils sont responsables de leurs souffrances, si quelqu’un te tape très fort et que tu as mal, tu souffres donc pas responsable de sa souffrance si tu es innocent, c’est n’importe quoi. Même si quelqu’un choisi de s’incarner, arrêter de dire ça.   
+Si un méchant envoie un virus qui tue et torture horriblement les gens, c’est de leurs fautes car ils ne vibrent pas assez haut pour ne pas avoir de symptômes, c’est très abusé votre logique qui est injuste.  
+C’est peut-être le karma mais qui n’est pas une excuse à tout.  
+Si quelqu’un pollue et que l’on doit s’embêter à dépolluer.  
 On doit être en paix dans toutes les circonstances donc on n’est pas assez fort si on s’énerve ou si on a une blessure physique, impossible d’être parfait.
-« Chaque être est là ou il doit être. »
-On peut avoir pleins d’ambitions prévu pour une réincarnation mais on peut ne pas réussir à faire tout ce qui était prévu. 100% de ce qui est prévu n’est pas à 100% prévu et des fois qu’à 50%. 
-Plus tu fais d’efforts, plus tu peux sauver des humains et des animaux donc il ne sera pas au même endroit que si tu ne fais rien.
-« Il vous arrive ce que vous êtes. »
-Il vous arrive la venue d’événements de vibrations similaires en énergie à la vôtre (ma phrase est mieux). 
-Si un moustique me pique où des mouches se mettent à plusieurs toute la journée à embêter une vache, donc il vous arrive ce que vous êtes. Si quelqu’un jette un déchet dans mon jardin, cela ne veut pas dire que moi aussi je jette de déchets dans la nature. Arrêtez de dire des phrases aussi débiles, je ne vais pas chercher d’autres exemples parce que j’en ai marre de répondre à de telles absurdités manichéennes. Le seul fond de vérité est que si on vibre bas, on va attirer plus des vibrations de même intensité, la malchance et les emmerdeurs. 
-« Ce qui se passe à l’extérieur correspond à notre état intérieur. »
-Correction : Notre état de vibration augmente la probabilité de recevoir dans nos circonstances de vie des événements de vibrations similaires.
-Encore une phrase manichéenne, tout le monde est différent du pire au meilleur, donc cela ne peut pas correspondre. Je ne suis pas responsable de toute la création et de la connerie des autres.
-« Vous créez 100% de votre réalité. »
-Non, je ne commande pas tout ce que font les autres.
-Encore une excuse à toutes les injustices de la vie.
-« Tout ce que vous vivez est ce que vous décidez de vivre. »
-« Il n’ y a pas de victime, qui que ce soit joue le rôle que vous lui avait demandé de jouer. »
-Les tiques et moustiques qui me piquent, je ne l’ai pas décidé…
-Et toutes les souffrances et tortures qui sont faites par innatention, méchants ou incendies, ce n’est pas tout le monde qui l’a décidé.
-Extrèmiste manichéen qui fait de ce qui peut être des fois vrai en partie 100% des cas.
-Les personnes qui tapent des gens vont pouvoir ressortir ta 2ème phrase comme justification, tu excuses tous les méchants et abrutis, perroquet de menteur, t’es complice du mal avec ce genre de propos.
-Si je te mets une grosse claque, tu diras que c’est toi qui l’avais demandé.
-« Il n’y a pas de mal et de bien. »
-Le moins bon comportement (mal) peut apprendre à avoir le meilleur comportement en réponse à sa réaction (bien).
-Ahaha ! Encore une excuse à tout, c’est pour te faire évoluer mais arrêter d’exagérer et de faire comme si vous ignorez l’existence du mal. Mettre toutes les personnes et les actions aux bons endroits est impossible d’être parfait.
-« Tout est parfait dans l’imperfection. »
-La solution la plus optimisée ne veut pas dire à tous lesmoments qu’elle est parfaite mais la plus adaptée à la situation.
-L’univers essaye d’optimiser pour mettre la lumière à l’ombre, pour que la leçon soit apprise, pour l’évolution et l’équilibre. Essayer ou se sentir parfait en toute circonstance ne valide pas la phrase tout est parfait.dans l’univers ou sa vie. Ils ont des simulateurs dans l’au-delà.
-Ils veulent laisser essayer toutes les conneries possibles, ça leur sert d’excuse. Je décide que jamais on doit m’obliger à me réincarner pour souffrir, compris les dictateurs. Il parait que l’on doit se réincarner pour évoluer et se purifier, ils n’ont peut-être pas inventé le téléchargement automatique de sagesse. Plus rapide avec des simulateurs accélérateurs d’évolution.
-« Le temps n’existe pas. »
-Il existe parce que l’on a inventé l’horloge et le chronomètre. Il permet dévaluer le temps qu’on met pour aller à un autre endroit, distance + temps + moyen de vitesse : corps avec ou sans véhicule.
-Si on a une machine à voyager dans le temps, ou soi-même ce pouvoir, ça va plus vite. Ici sur Terre, on n’est pas en dehors du temps, peut-être ailleurs.
-Si le temps n’existe pas, alors crée-moi un paradis éternel où je reste à l’infini avec mon jardin et une belle femme. Mais il paraît que l’univers va finir pas disparaître car pas une seule planète éternelle mais quand on change de dimension, donc le temps existe sauf quand il n’y a peut-être plus une seule forme dans l’univers, même sans forme, la conscience a des suites de pensée donc c’est comme du temps.. 
-Il paraît qu’on peut changer la passé, dans ce cas, cela veut dire que quelqu’un d’autre joue le rôle de ta version modifié, et les univers parrallèles et l’astral aussi ou on a des doubles.
-J’ai lu que la dimension juste en-dessous de dieu enregistrait tout.
-Si il y’ en a qui disent que tout a déjà été créé car le temps n’existe pas, c’est que la création est limité à un nombre de scénario sinon on ne pourrait pas prédire l’infini parce qu’on ne peut pas voir ce qui n’a jamais de fin.
-Le temps existe partout, avoir le pouvoir d’aller instantanément partout par téléportation ou à toute époque ne signifie pas que le temps n’existe pas car chaque histoire met un certain temps ainsi que le temps d’aller instantément partout de sa propre histoire. Avoir une conscience c’est penser, donc c’est du temps qui permet d’évaluer depuis combien de temps on peut penser…
-Conclusion : le temps existe : passé, présent, futur et tous les temps existent en même temps car tout est enregistré quelpart et il est possible d’aller dans tous les temps comme un ordinateur, changer le passé qui devient un futur pour celui qui y va.
-On écrit toujours le temps de son histoire.
-« La vie ne sert à rien. »
-La vie sert à expérimenter, s’amuser...
-« Il y a autant de croyances que de vérités, tout le monde a raison. »
-Cela sous-entend que tout le monde a raison : ridicule, non, car il y en a qui disent des mensonges ou se font manipuler.
-« Vous êtes cet inconnu mais qui vous tend les bras, vous êtes le Réel, vous êtes le grand Silence et vous êtes antérieurs à la conscience. »
-Antérieur à la conscience, il dit donc qu’on doit retourner dans le néant où on est tous mort ce gros débile d’imbécile heureux. On m’a dit que j’étais immortel ceux dans haut, menteur que tu es. Tu es le mal sur ce sujet pour nous enmener avec tes idées dans ton néant. Toi, tu défends le néant. Moi, je défends la vie.
-« L’ombre sert toujours la lumière. L’ombre n’est ni bonne ni mauvaise, elle propose et l’humanité dispose. »
-Quand le mal est caché ou t’attaque, on ne dispose pas d’une proposition. N’importe quoi, si tu ne surveille pas assez ton enfant et qu’un sataniste enlève et torture ton enfant. Il faut essayer de mettre le plus possible la lumière sur l’ombre, l’arrêter ou le rééduquer, il faut être prudent pour l’empêcher d’avancer et de répandre le mal. C’est manichéen de trouver une excuse à tout. Dire que l’on a choisi ce qu’on subit par exemple avant de s’incarner, mais choisir par défaut pour aider les autres et les sauver avec le risque de se faire torturer parce que aucun ne veut le faire à ta place, choisir par défaut n’est pas un vrai choix à 100%. 
-Tous les animaux tués par un prédateur ou les humains dans la souffrance. Quand un con coupe mon arbre préféré, on ne demande pas mon avis. 3 tiques te mordent en même temps, attraper une verrue, les moustiques qui te piquent, la liste est longue…
-« Le bien gagne toujours. »
-Non. Le bien peut perdre mais la victoire arrive un jour quand on est enfin tranquille.
-Le mal finit par s’arrêter un jour.
-« Il n’y a pas de chemins meilleurs que d’autres. »
-Mon chemin est largement meilleur que celui d’un sataniste.
+« Chaque être est là ou il doit être. »  
+On peut avoir pleins d’ambitions prévu pour une réincarnation mais on peut ne pas réussir à faire tout ce qui était prévu. 100% de ce qui est prévu n’est pas à 100% prévu et des fois qu’à 50%.  
+Plus tu fais d’efforts, plus tu peux sauver des humains et des animaux donc il ne sera pas au même endroit que si tu ne fais rien.  
+« Il vous arrive ce que vous êtes. »  
+Il vous arrive la venue d’événements de vibrations similaires en énergie à la vôtre (ma phrase est mieux).   
+Si un moustique me pique où des mouches se mettent à plusieurs toute la journée à embêter une vache, donc il vous arrive ce que vous êtes. Si quelqu’un jette un déchet dans mon jardin, cela ne veut pas dire que moi aussi je jette de déchets dans la nature. Arrêtez de dire des phrases aussi débiles, je ne vais pas chercher d’autres exemples parce que j’en ai marre de répondre à de telles absurdités manichéennes. Le seul fond de vérité est que si on vibre bas, on va attirer plus des vibrations de même intensité, la malchance et les emmerdeurs.  
+« Ce qui se passe à l’extérieur correspond à notre état intérieur. »  
+Correction : Notre état de vibration augmente la probabilité de recevoir dans nos circonstances de vie des événements de vibrations similaires.  
+Encore une phrase manichéenne, tout le monde est différent du pire au meilleur, donc cela ne peut pas correspondre. Je ne suis pas responsable de toute la création et de la connerie des autres.  
+« Vous créez 100% de votre réalité. »  
+Non, je ne commande pas tout ce que font les autres.  
+Encore une excuse à toutes les injustices de la vie.  
+« Tout ce que vous vivez est ce que vous décidez de vivre. »  
+« Il n’ y a pas de victime, qui que ce soit joue le rôle que vous lui avait demandé de jouer. »  
+Les tiques et moustiques qui me piquent, je ne l’ai pas décidé…  
+Et toutes les souffrances et tortures qui sont faites par inattention, méchants ou incendies, ce n’est pas tout le monde qui l’a décidé.  
+Extrèmiste manichéen qui fait de ce qui peut être des fois vrai en partie 100% des cas.  
+Les personnes qui tapent des gens vont pouvoir ressortir ta 2ème phrase comme justification, tu excuses tous les méchants et abrutis, perroquet de menteur, t’es complice du mal avec ce genre de propos.  
+Si je te mets une grosse claque, tu diras que c’est toi qui l’avais demandé.  
+« Il n’y a pas de mal et de bien. »  
+Le moins bon comportement (mal) peut apprendre à avoir le meilleur comportement en réponse à sa réaction (bien).  
+Ahaha ! Encore une excuse à tout, c’est pour te faire évoluer mais arrêter d’exagérer et de faire comme si vous ignorez l’existence du mal. Mettre toutes les personnes et les actions aux bons endroits est impossible d’être parfait.  
+« Tout est parfait dans l’imperfection. »  
+La solution la plus optimisée ne veut pas dire à tous les moments qu’elle est parfaite mais la plus adaptée à la situation.  
+L’univers essaye d’optimiser pour mettre la lumière à l’ombre, pour que la leçon soit apprise, pour l’évolution et l’équilibre. Essayer ou se sentir parfait en toute circonstance ne valide pas la phrase tout est parfait.dans l’univers ou sa vie. Ils ont des simulateurs dans l’au-delà.  
+Ils veulent laisser essayer toutes les conneries possibles, ça leur sert d’excuse. Je décide que jamais on doit m’obliger à me réincarner pour souffrir, compris les dictateurs. Il parait que l’on doit se réincarner pour évoluer et se purifier, ils n’ont peut-être pas inventé le téléchargement automatique de sagesse. Plus rapide avec des simulateurs accélérateurs d’évolution.  
+« Le temps n’existe pas. »  
+Il existe parce que l’on a inventé l’horloge et le chronomètre. Il permet dévaluer le temps qu’on met pour aller à un autre endroit, distance + temps + moyen de vitesse : corps avec ou sans véhicule.  
+Si on a une machine à voyager dans le temps, ou soi-même ce pouvoir, ça va plus vite. Ici sur Terre, on n’est pas en dehors du temps, peut-être ailleurs.  
+Si le temps n’existe pas, alors crée-moi un paradis éternel où je reste à l’infini avec mon jardin et une belle femme. Mais il paraît que l’univers va finir pas disparaître car pas une seule planète éternelle mais quand on change de dimension, donc le temps existe sauf quand il n’y a peut-être plus une seule forme dans l’univers, même sans forme, la conscience a des suites de pensée donc c’est comme du temps.  
+Il paraît qu’on peut changer la passé, dans ce cas, cela veut dire que quelqu’un d’autre joue le rôle de ta version modifié, et les univers parallèles et l’astral aussi ou on a des doubles.  
+J’ai lu que la dimension juste en-dessous de dieu enregistrait tout.  
+Si il y’ en a qui disent que tout a déjà été créé car le temps n’existe pas, c’est que la création est limité à un nombre de scénario sinon on ne pourrait pas prédire l’infini parce qu’on ne peut pas voir ce qui n’a jamais de fin.  
+Le temps existe partout, avoir le pouvoir d’aller instantanément partout par téléportation ou à toute époque ne signifie pas que le temps n’existe pas car chaque histoire met un certain temps ainsi que le temps d’aller instantanément partout de sa propre histoire. Avoir une conscience c’est penser, donc c’est du temps qui permet d’évaluer depuis combien de temps on peut penser…  
+Conclusion : le temps existe : passé, présent, futur et tous les temps existent en même temps car tout est enregistré quelquepart et il est possible d’aller dans tous les temps comme un ordinateur, changer le passé qui devient un futur pour celui qui y va.  
+On écrit toujours le temps de son histoire.  
+« La vie ne sert à rien. »  
+La vie sert à expérimenter, s’amuser...  
+« Il y a autant de croyances que de vérités, tout le monde a raison. »  
+Cela sous-entend que tout le monde a raison : ridicule, non, car il y en a qui disent des mensonges ou se font manipuler.  
+« Vous êtes cet inconnu mais qui vous tend les bras, vous êtes le Réel, vous êtes le grand Silence et vous êtes antérieurs à la conscience. »  
+Antérieur à la conscience, il dit donc qu’on doit retourner dans le néant où on est tous mort ce gros débile d’imbécile heureux. On m’a dit que j’étais immortel ceux dans haut, menteur que tu es. Tu es le mal sur ce sujet pour nous emmener avec tes idées dans ton néant. Toi, tu défends le néant. Moi, je défends la vie.  
+« L’ombre sert toujours la lumière. L’ombre n’est ni bonne ni mauvaise, elle propose et l’humanité dispose. »  
+Quand le mal est caché ou t’attaque, on ne dispose pas d’une proposition. N’importe quoi, si tu ne surveille pas assez ton enfant et qu’un sataniste enlève et torture ton enfant. Il faut essayer de mettre le plus possible la lumière sur l’ombre, l’arrêter ou le rééduquer, il faut être prudent pour l’empêcher d’avancer et de répandre le mal. C’est manichéen de trouver une excuse à tout. Dire que l’on a choisi ce qu’on subit par exemple avant de s’incarner, mais choisir par défaut pour aider les autres et les sauver avec le risque de se faire torturer parce que aucun ne veut le faire à ta place, choisir par défaut n’est pas un vrai choix à 100%.  
+Tous les animaux tués par un prédateur ou les humains dans la souffrance. Quand un con coupe mon arbre préféré, on ne demande pas mon avis. 3 tiques te mordent en même temps, attraper une verrue, les moustiques qui te piquent, la liste est longue…  
+« Le bien gagne toujours. »  
+Non. Le bien peut perdre mais la victoire arrive un jour quand on est enfin tranquille.  
+Le mal finit par s’arrêter un jour.  
+« Il n’y a pas de chemins meilleurs que d’autres. »  
+Mon chemin est largement meilleur que celui d’un sataniste.  
 « Il n’y a rien de ce qui nous arrive dont on soit victime, rien que l’on soit capable de dépasser. » « Il ne vous arrive rien que vous ne pouvez gérer ».
-Encore une excuse à tout contexte de subir les pires horreurs, une torture horrible avant de crever : tu subis et meurs, tu surmonte après parce que ça s’arrète et tu changes de dimension.
-« Chacun joue son rôle à la perfection. »
-Fais n’importe quoi, de toute façon, tu joues ton rôle à la perfection, et si je tape celui qui a dit cette phrase ou le torture un peu, est-ce que tu continueras à dire que je joue mon rôle à la perfection, bien sûr, je ne le ferais jamais, c’est pour l’exemple.
-Voilà, encore bienvenue dans le monde des imbéciles heureux.
-« Il n y a pas de meilleurs (petits ou grands) rôles que d’autres, pas de gens meilleurs ou plus intelligents ».
+Encore une excuse à tout contexte de subir les pires horreurs, une torture horrible avant de crever : tu subis et meurs, tu surmonte après parce que ça s’arrête et tu changes de dimension.  
+« Chacun joue son rôle à la perfection. »  
+Fais n’importe quoi, de toute façon, tu joues ton rôle à la perfection, et si je tape celui qui a dit cette phrase ou le torture un peu, est-ce que tu continueras à dire que je joue mon rôle à la perfection, bien sûr, je ne le ferais jamais, c’est pour l’exemple.  
+Voilà, encore bienvenue dans le monde des imbéciles heureux.  
+« Il n y a pas de meilleurs (petits ou grands) rôles que d’autres, pas de gens meilleurs ou plus intelligents ».  
 1 seule personne peut-être à l’origine d’une partie d’une galaxie qui n’aurait pas été libérée sans ses actions, donc c’est un plus grand rôle, il y a des gens plus intelligents que d’autres en capacité ou sagesse, encore plus entre animaux et humains ou extraterrestres avec un cerveau et des capacités plus développés.
-L’imbécile heureux veut plaire à tout le monde, en niant la réalité, il plaira surtout à ceux qui ont un radar de sagesse plus limité.
-« Tout ce qu vous voyez dans ce monde est votre projection, vous êtes la cause et le monde est l’effet, jamais l’inverse. »
-Je ne suis pas la cause de celui qui torture dans mon pays.
-« La vérité n’existe pas, prends ce qui résonne dans l’amour. »
-Si la vérité n’existe pas, rien n’existe, je suis humain est une vérité, ah non la vérité n’existe pas (ahaha.), ta phrase n’est donc pas la vérité aussi car ça s’applique aussi à ta phrase.
-« Rien de réel ne peut être menacé. »
-Je suis réel et j’ai déjà été menacé (Je n’en peux plus de ces phrases d’attardés mentaux programmés perroquets qui répètent).
+L’imbécile heureux veut plaire à tout le monde, en niant la réalité, il plaira surtout à ceux qui ont un radar de sagesse plus limité.  
+« Tout ce qu vous voyez dans ce monde est votre projection, vous êtes la cause et le monde est l’effet, jamais l’inverse. »  
+Je ne suis pas la cause de celui qui torture dans mon pays.  
+« La vérité n’existe pas, prends ce qui résonne dans l’amour. »  
+Si la vérité n’existe pas, rien n’existe, je suis humain est une vérité, ah non la vérité n’existe pas (ahaha.), ta phrase n’est donc pas la vérité aussi car ça s’applique aussi à ta phrase.  
+« Rien de réel ne peut être menacé. »  
+Je suis réel et j’ai déjà été menacé (Je n’en peux plus de ces phrases d’attardés mentaux programmés perroquets qui répètent).  
  « Dieu voit la fin depuis le commencement », « aucune chose n’est nouvelle pour dieu », « ses jours n’ont ni commencement ni fin ». (p34 livre Urantia)
-Si aucune chose n’est nouvelle, l’éternité va s’arrêter et tout ce qui existe cessera d’exister, il a dit que mon âme est éternelle, je viens de prouver la contradiction et l’illogisme de sa phrase car on ne peut pas connaître le futur éternel, si il n’y a pas de fin, il y’aura des choses nouvelles à commencer par les pensées.
-« Dès l’instant où vous vivez le Réel, où nous vivons le Réel collectivement, il n’y aura strictement aucune volonté, aucun désir de revêtir une conscience au sein d’une forme, mais tout cela l’ego ne peut absolument pas se le représenter et la conscience non plus. »
-Tu ne m’obligeras pas à penser comme un imbécile heureux comme toi, la forme m’attirera toujours et c’est le but de la vie.
-« Personne d’autre que vous ne peut réaliser vos rêves »
-Faux, si ton rêve est d’avoir une copine, tu es obligé que l’autre réalise ton rêve. Certaines ne font quasiment pas d’efforts et ça arrive, alors que d’autres méritent largement et paraissent maudits.
-« On peut pas dire je travaille pour moi ou mon image, y a 1, y a rien à sauver, il y a pas d'autres. »
-Certaines consciences sont mortes pour toujours et il faut faire une bonne philosophie pour sauver de la souffrance future.
-« J’ai cru que j’étais un humain, finalement, il m’est rien arrivé. »
-Si tu subi de la torture dans ta vie, c’est arrivé alors arrête de dire n’importe quoi.
-« Tu ne peux pas devenir ce que tu es déjà. Tu peux seulement te souvenir que tu l’as toujours été. » (En parlant de la source).
-« L’âme est créée. Oui, créée. Elle n’est pas éternelle dans le passé, seulement dans le futur. Elle a un point de commencement ».
-Il se contredit, la 2ème phrase est correcte, la source ne peut pas prendre de forme donc dire que tu l’a toujours été est faux car avant la conscience n’était jamais née.
-« Toutes les pensées sont fausses, sauf si tu décides qu’elles sont vraies, alors, choisis celles que tu veux pour définir ta réalité. »
-Non, c’est manichéen, facile à contredire.
-Ce qui est vrai est vrai, ce qui est faux est faux mais tes pensées peuvent augmenter les probabilités qu’une chose ou un événement arrive. Selon le contexte une méthode est plus adaptée.
+Si aucune chose n’est nouvelle, l’éternité va s’arrêter et tout ce qui existe cessera d’exister, il a dit que mon âme est éternelle, je viens de prouver la contradiction et l’illogisme de sa phrase car on ne peut pas connaître le futur éternel, si il n’y a pas de fin, il y aura des choses nouvelles à commencer par les pensées.  
+« Dès l’instant où vous vivez le Réel, où nous vivons le Réel collectivement, il n’y aura strictement aucune volonté, aucun désir de revêtir une conscience au sein d’une forme, mais tout cela l’ego ne peut absolument pas se le représenter et la conscience non plus. »  
+Tu ne m’obligeras pas à penser comme un imbécile heureux comme toi, la forme m’attirera toujours et c’est le but de la vie.  
+« Personne d’autre que vous ne peut réaliser vos rêves »  
+Faux, si ton rêve est d’avoir une copine, tu es obligé que l’autre réalise ton rêve. Certaines ne font quasiment pas d’efforts et ça arrive, alors que d’autres méritent largement et paraissent maudits.  
+« On peut pas dire je travaille pour moi ou mon image, y a 1, y a rien à sauver, il y a pas d'autres. »  
+Certaines consciences sont mortes pour toujours et il faut faire une bonne philosophie pour sauver de la souffrance future.  
+« J’ai cru que j’étais un humain, finalement, il m’est rien arrivé. »  
+Si tu subi de la torture dans ta vie, c’est arrivé alors arrête de dire n’importe quoi.  
+« Tu ne peux pas devenir ce que tu es déjà. Tu peux seulement te souvenir que tu l’as toujours été. » (En parlant de la source).  
+« L’âme est créée. Oui, créée. Elle n’est pas éternelle dans le passé, seulement dans le futur. Elle a un point de commencement ».  
+Il se contredit, la 2ème phrase est correcte, la source ne peut pas prendre de forme donc dire que tu l’a toujours été est faux car avant la conscience n’était jamais née.  
+« Toutes les pensées sont fausses, sauf si tu décides qu’elles sont vraies, alors, choisis celles que tu veux pour définir ta réalité. »  
+Non, c’est manichéen, facile à contredire.  
+Ce qui est vrai est vrai, ce qui est faux est faux mais tes pensées peuvent augmenter les probabilités qu’une chose ou un événement arrive. Selon le contexte une méthode est plus adaptée.  
 
-Critiquez les messages que vous cannalisé, ce n’est pas parce que c’est la source qui parle d’après certains que l’on ne peut pas critiquer, être la première conscience de l’univers ne garantit pas d’avoir raison parfaitement sur tous les sujets car la source aprrend de tous les autres créateurs connectés. On est une équipe sinon étiquetter la perfection totale sur une conscience incontestable est de l’extrémisme, elle ne découvre pas tout avant nous et ne contrôle  pas toutes nos pensées et nos découvertes qui sortent du néant.
-La source n’est pas tout, elle fait vivre le tout grâce à son énergie mais est connecté à tout, pour être l’autre, il faut fusionner 2 consciences en 1, pas simplement être connecté.
+Critiquez les messages que vous canalisé, ce n’est pas parce que c’est la source qui parle d’après certains que l’on ne peut pas critiquer, être la première conscience de l’univers ne garantit pas d’avoir raison parfaitement sur tous les sujets car la source apprend de tous les autres créateurs connectés. On est une équipe sinon étiqueter la perfection totale sur une conscience incontestable est de l’extrémisme, elle ne découvre pas tout avant nous et ne contrôle  pas toutes nos pensées et nos découvertes qui sortent du néant.  
+La source n’est pas tout, elle fait vivre le tout grâce à son énergie mais est connecté à tout, pour être l’autre, il faut fusionner 2 consciences en 1, pas simplement être connecté.  
 
-Conclusion :
-Cela montre que leur technique de parler n’est pas la bonne et qu’ils devraient changer de phrases pour faire évoluer l’univers au lieu d’énerver pleins de gens.
+Conclusion :  
+Cela montre que leur technique de parler n’est pas la bonne et qu’ils devraient changer de phrases pour faire évoluer l’univers au lieu d’énerver pleins de gens.  
 Tout est parfait dans l’univers est un mensonge de ceux qui le disent, c’est une excuse de ne pas constater pour s’enlever toutes ses propres contrariétés. 
-Manichéens du syndrome d’imbécile heureux, je suis le seul à bien vous contredire et à vous piéger dans votre logique tordue.
-820
-Une phrase qui ne paraît pas méchante peut être en analysant bien la pire de toute la création.
-Il faudrait être une grosse pourriture pour obliger quelqu’un à le reprogrammer et effacer sa mémoire pour faire toutes les expériences (cailloux, particule d’hydrogène, bactérie, plantes, animaux, humains) et le cycle d’incarnation d’un autre avec ses pires tortures ou être le pire des méchants, donc tout ce qui existe, et passer par des milliards de milliards de milliards de tortures...
-Mais il parait que l’on peut faire la vie de l’autre d'une manière qui peut être en partie différente recréant une nouvelle ligne de temps. Et mon double dans l'astral je ne refais pas sa vie, je peux fusionner seulement car on a la même âme.
-Une âme qui décide d’une incarnation si elle se sépare en plusieurs consciences ou que les consciences étaient déjà séparées de l’âme, si les autres ne sont pas d’accord pour s’incarner, ne pas dire que c’est toi qui l’a décidé, c’est toi ou l’âme ou les deux.
-(Un jour je serai toi maintenant ou « tu dois faire toutes les expériences (sous-entend pas que humains) et les réincarnations des humains, les autres sont tous toi-même » L’autre est toi-même est la pire phrase de tout les temps, une phrase qui ne paraît pas méchante peut être en analysant bien la pire de tous les temps. Il vaut mieux fusionner en haut que se taper l’horreur d’à côté).
-Certains se sont incarnés en animal avant de devenir humain.
-C’est pour savoir qui tu es il dit (la source en incarnation), je veux juste vivre bien connard de dictateur. Ce perroquet qui canalise, ce n’est pas qu’il dit de l’eau, non il dit dans plusieurs sujets de la merde d’un gourou de l’au-delà et en plus il se contredit. 
-Quand je dis, je ne vais pas me réincarner en bactérie, plante, limace, il répond : tu la créé pour toi-même (réponse évasive ambigu entre deux). 
-Il n’y a pas d’autres il dit, ça sous-entend faire toutes les vies de toutes les consciences de l’univers (cailloux, bactérie, plante, animal), si on n’est pas l’autre on ne fait pas sa vie, ferme-là messager des dictateurs horribles esclavagistes sado-maso, il paraît qu’on choisit tous nos vies sauf quelques poignées d’humains, si on ne se porte pas volontaire et si on ne fait rien longtemps, ils vont plus nous forcer. Tout ce qui nous arrive a été quasiment (pour une fois qu’il rajoute une petite nuance) prévu il a aussi reçu comme message.
-Il croit qu’il y a une seule conscience, il trouve ça rassurant, je me réincarne pas dans ta vie pour dire une bêtise comme ça, alors va faire les milliards de milliards de réincarnations avec les tortures qui va avec puis aussi tous les autres extraterrestres avec une tête moche, ah non mais c’est rassurant d’être un esclave dans ta doctrine qui va se taper pleins de souffrances espèce de moujonc.
-Il dit que tout est parfait, on récolte ce que l’on a semé (manichéen et ce que sème les autres aussi).
-Il dit, c’est comme être amoureux de Dieu, pour s’en rapprocher il faut faire toutes les expériences. Mon plus grand amour sera toujours moi-même, pas ton système de dictature horrible.
-Vidéo
-Transincarnation : plusieurs vie en même temps, 9 dec 2020 à 1h08 30s.
-« Ça fini jamais, c'est un cycle infini, et le cycle est tellement infini qu'il y a un moment au lieu de faire mon cycle de transincarnation, je vais faire le tiens Nora, c'est-à-dire qu'à un moment ou un autre, vous allez tous vivre ma vie et moi je vais vivre la vôtre. 
+Manichéens du syndrome d’imbécile heureux, je suis le seul à bien vous contredire et à vous piéger dans votre logique tordue.  
+820  
+Une phrase qui ne paraît pas méchante peut être en analysant bien la pire de toute la création.  
+Il faudrait être une grosse pourriture pour obliger quelqu’un à le reprogrammer et effacer sa mémoire pour faire toutes les expériences (cailloux, particule d’hydrogène, bactérie, plantes, animaux, humains) et le cycle d’incarnation d’un autre avec ses pires tortures ou être le pire des méchants, donc tout ce qui existe, et passer par des milliards de milliards de milliards de tortures...  
+Mais il parait que l’on peut faire la vie de l’autre d'une manière qui peut être en partie différente recréant une nouvelle ligne de temps. Et mon double dans l'astral je ne refais pas sa vie, je peux fusionner seulement car on a la même âme.  
+Une âme qui décide d’une incarnation si elle se sépare en plusieurs consciences ou que les consciences étaient déjà séparées de l’âme, si les autres ne sont pas d’accord pour s’incarner, ne pas dire que c’est toi qui l’a décidé, c’est toi ou l’âme ou les deux.  
+(Un jour je serai toi maintenant ou « tu dois faire toutes les expériences (sous-entend pas que humains) et les réincarnations des humains, les autres sont tous toi-même » L’autre est toi-même est la pire phrase de tout les temps, une phrase qui ne paraît pas méchante peut être en analysant bien la pire de tous les temps. Il vaut mieux fusionner en haut que se taper l’horreur d’à côté).  
+Certains se sont incarnés en animal avant de devenir humain.  
+C’est pour savoir qui tu es il dit (la source en incarnation), je veux juste vivre bien connard de dictateur. Ce perroquet qui canalise, ce n’est pas qu’il dit de l’eau, non il dit dans plusieurs sujets de la merde d’un gourou de l’au-delà et en plus il se contredit.   
+Quand je dis, je ne vais pas me réincarner en bactérie, plante, limace, il répond : tu la créé pour toi-même (réponse évasive ambigu entre deux).   
+Il n’y a pas d’autres il dit, ça sous-entend faire toutes les vies de toutes les consciences de l’univers (cailloux, bactérie, plante, animal), si on n’est pas l’autre on ne fait pas sa vie, ferme-là messager des dictateurs horribles esclavagistes sado-maso, il paraît qu’on choisit tous nos vies sauf quelques poignées d’humains, si on ne se porte pas volontaire et si on ne fait rien longtemps, ils vont plus nous forcer. Tout ce qui nous arrive a été quasiment (pour une fois qu’il rajoute une petite nuance) prévu il a aussi reçu comme message.  
+Il croit qu’il y a une seule conscience, il trouve ça rassurant, je me réincarne pas dans ta vie pour dire une bêtise comme ça, alors va faire les milliards de milliards de réincarnations avec les tortures qui va avec puis aussi tous les autres extraterrestres avec une tête moche, ah non mais c’est rassurant d’être un esclave dans ta doctrine qui va se taper pleins de souffrances espèce de moujonc.  
+Il dit que tout est parfait, on récolte ce que l’on a semé (manichéen et ce que sème les autres aussi).  
+Il dit, c’est comme être amoureux de Dieu, pour s’en rapprocher il faut faire toutes les expériences. Mon plus grand amour sera toujours moi-même, pas ton système de dictature horrible.  
+Vidéo  
+Transincarnation : plusieurs vie en même temps, 9 dec 2020 à 1h08 30s.  
+« Ça fini jamais, c'est un cycle infini, et le cycle est tellement infini qu'il y a un moment au lieu de faire mon cycle de transincarnation, je vais faire le tiens Nora, c'est-à-dire qu'à un moment ou un autre, vous allez tous vivre ma vie et moi je vais vivre la vôtre.  
 
-L'entre deux vie à 1h13, 6 mars 2024 20h30.
-« Dieu quand il dit l'amour est le chemin, il nous demande de vivre toutes les expériences que lui il a vécu, et c'est pour ça que le libre arbitre est pas si grand que ça, c'est pour que les gens quand il revivent son exprience gardent à peu près la même trajectoire, car on se souvient qu'il nous as dit, tu me rejoindra quand tu seras comme moi, alors comment on fait pour être comme quelqu'un qui a tout vécu, tout vu, tout lu, toutes les époques et qui finalement est tout, le seul moyen, c'est de trouver des systèmes qui nous permettent de prendre conscience de ce tout, de le vivre et de vivre chacune des expériences et toutes, et c'est pour ça que je sais que ça va énerver certaines personnes quand je dis ça, nous devons vivre toutes les éxpériences. »
-Il y a l’original qui fait la première vie et les autres qui refont presque la même, on nous oblige à tout faire, sadique.
-Il dit dans une autre vidéo le 4 février 2026, « quand vous aimez quelque chose ou quelqu’un, vous n’en serez plus jamais séparé », cela forme une contradiction avec ce qui est dit avant, car paroles incompatibles parce que si on doit se réincarner en voisins et les autres, cela fait des milliards de milliards de fois et plus ou on ne peut pas les retrouver éternellement car oublié et on aime quelqu’un d’autre, en plus avec des milliards de doubles, est ce que tu parles à la même version.
+L'entre deux vie à 1h13, 6 mars 2024 20h30.  
+« Dieu quand il dit l'amour est le chemin, il nous demande de vivre toutes les expériences que lui il a vécu, et c'est pour ça que le libre arbitre est pas si grand que ça, c'est pour que les gens quand il revivent son expérience gardent à peu près la même trajectoire, car on se souvient qu'il nous as dit, tu me rejoindra quand tu seras comme moi, alors comment on fait pour être comme quelqu'un qui a tout vécu, tout vu, tout lu, toutes les époques et qui finalement est tout, le seul moyen, c'est de trouver des systèmes qui nous permettent de prendre conscience de ce tout, de le vivre et de vivre chacune des expériences et toutes, et c'est pour ça que je sais que ça va énerver certaines personnes quand je dis ça, nous devons vivre toutes les expériences. »  
+Il y a l’original qui fait la première vie et les autres qui refont presque la même, on nous oblige à tout faire, sadique.  
+Il dit dans une autre vidéo le 4 février 2026, « quand vous aimez quelque chose ou quelqu’un, vous n’en serez plus jamais séparé », cela forme une contradiction avec ce qui est dit avant, car paroles incompatibles parce que si on doit se réincarner en voisins et les autres, cela fait des milliards de milliards de fois et plus ou on ne peut pas les retrouver éternellement car oublié et on aime quelqu’un d’autre, en plus avec des milliards de doubles, est ce que tu parles à la même version.  
 La religion des dictateurs qui dit que tu dois faire toutes les expériences ; si tu fusionne en haut, t'es pas obligé de tout faire,  on partage le travail pour pas que tout le monde fasse tout, et celui qui veut garder sa conscience individuelle, on lui fout la paix, les expériences sont infinis alors obliger à tout faire pour se rapprocher de Dieu est une dictature, en plus il paraît qu'il y a aussi l'univers central (livre Urantia) et le cycle d'incarnation du plus méchant dont l'énergie a été absorbé par Dieu avec effacement de conscience et de souvenir, (voir message universelle de Matthew Ward sur internet https//www.matthewbook.com : «Elles ont constamment décliné les offres de grâce divine de l’Être Divin et le seul autre moyen de les arrêter est de transmuter leur énergie. Cependant, comme toutes les autres Âmes, elles sont de l’essence du Créateur, et Lui seul est assez puissant pour gérer la densité de ses créations qui sont devenues des malfaiteurs consommés. Après avoir purifié leur énergie en éteignant toute Conscience et tout souvenir, le Créateur ramène cette essence d’amour et de Lumière en Lui-même. »), (ou sinon p37 du livre d’Urantia, ils en parlent). Cela veut dire qu’il cesse d’exister. Si tout le monde fait sa vie, tout le monde mourra pour toujours, tuer une conscience doit être interdit, seulement effacer mémoire, alors il n’est pas parfait pour autoriser ça sinon il utiliserait un moyen d’effacement de mémoire puis il se réincarnerait sous une forme inférieure genre plante ou autre pour remonter ensuite. 
-« Je suis toi, tu es moi./Il n’y a pas d’autres. »
-Je préfère dire, nous sommes tous reliés au premier être éternel, je suis comme toi une expression de dieu.
-Cette phrase semble dire ou sous-entend que je vais me réincarner dans le cycle de réincarnation du voisin, si ce n’est pas le cas, changer vos phrases. Je n’ai pas envie d’être toi ou de me réincarner en toi, dictateur, pour me programmer ta débilité, ta méchanceté, ta mocheté ou ta torture.
-Si tous les humains doivent refaire toutes les vies de chacun, cela s’appelle une dictature avec des milliards de milliards de tortures horribles. 
-Pour l’instant, je suis moi et tu es toi relié à la conscience source du créateur. Je suis moi, pas toi dans le présent, ou alors peut-être toi dans le futur seulement si nos deux consciences fusionnent. 
-Si une conscience se sépare en 2 en se réincarnant en jumeaux, ce n’est pas la même conscience, cela fait 2, il faut refusionner pour que cela soit la même conscience, pareil avec la source, si je veux jamais refusionner avec elle et perdre mon individualité je serais toujours moi et pas elle.
-Il n’y a pas d’autres ils disent et après ils disent vous n'êtes pas obligé de vivre cette expérience parce que quelqu'un d'autre la vit, donc si on es pas obligé, c’est qu’il y a un autre.
-Le père absolu canalisé par Marta le 10/07/2025 dit :
-« Les biorobots, en l’absence d’une âme, après la mort des corps physiques restent dans les couches astrales inférieures de votre planète uniquement avec leur conscience.
-Quant aux clones, leur corps, ainsi que leur conscience, se désintègrent complètement après leur mort physique, ne laissant aucune trace sur le plan subtil de la Terre. »
-Donc ces consciences ne peuvent pas être toi.
-Une autre possibilité est le trransfert d’une conscience dans un clone, puis la conscience vit apèrs la mort du clone, il y a des exceptions selon le type de clone ou grâce à la technologie.
+« Je suis toi, tu es moi./Il n’y a pas d’autres. »  
+Je préfère dire, nous sommes tous reliés au premier être éternel, je suis comme toi une expression de dieu.  
+Cette phrase semble dire ou sous-entend que je vais me réincarner dans le cycle de réincarnation du voisin, si ce n’est pas le cas, changer vos phrases. Je n’ai pas envie d’être toi ou de me réincarner en toi, dictateur, pour me programmer ta débilité, ta méchanceté, ta mocheté ou ta torture.  
+Si tous les humains doivent refaire toutes les vies de chacun, cela s’appelle une dictature avec des milliards de milliards de tortures horribles.   
+Pour l’instant, je suis moi et tu es toi relié à la conscience source du créateur. Je suis moi, pas toi dans le présent, ou alors peut-être toi dans le futur seulement si nos deux consciences fusionnent.  
+Si une conscience se sépare en 2 en se réincarnant en jumeaux, ce n’est pas la même conscience, cela fait 2, il faut refusionner pour que cela soit la même conscience, pareil avec la source, si je veux jamais refusionner avec elle et perdre mon individualité je serais toujours moi et pas elle.  
+Il n’y a pas d’autres ils disent et après ils disent vous n'êtes pas obligé de vivre cette expérience parce que quelqu'un d'autre la vit, donc si on es pas obligé, c’est qu’il y a un autre.  
+Le père absolu canalisé par Marta le 10/07/2025 dit :  
+« Les biorobots, en l’absence d’une âme, après la mort des corps physiques restent dans les couches astrales inférieures de votre planète uniquement avec leur conscience.  
+Quant aux clones, leur corps, ainsi que leur conscience, se désintègrent complètement après leur mort physique, ne laissant aucune trace sur le plan subtil de la Terre. »  
+Donc ces consciences ne peuvent pas être toi.  
+Une autre possibilité est le transfert d’une conscience dans un clone, puis la conscience vit après la mort du clone, il y a des exceptions selon le type de clone ou grâce à la technologie.  
 
-Nous devons traiter l’autre dans l’amour et la vérité et trouver la meilleure harmonie et sortir de la peur, trouver le pardon et la compassion, toutes ces vies sont pour apprendre des choses pour nous et le créateur suprême, nous devons sortir de cette réalité très altérée et programmée pour nous reconnecter à la source.
-C’est n’est pas parce parce la source peut ressentir l’intérieur de tous les êtres à tout moment ou peut-être enfiler des vies enregistrés qu’il est tout le monde.
+Nous devons traiter l’autre dans l’amour et la vérité et trouver la meilleure harmonie et sortir de la peur, trouver le pardon et la compassion, toutes ces vies sont pour apprendre des choses pour nous et le créateur suprême, nous devons sortir de cette réalité très altérée et programmée pour nous reconnecter à la source.  
+C’est n’est pas parce parce la source peut ressentir l’intérieur de tous les êtres à tout moment ou peut-être enfiler des vies enregistrés qu’il est tout le monde.  
 Les aviens bleus (têtes d’oiseaux) on changé leur phrase : je suis toi, tu es moi est devenu : je suis toi, tu n’es pas moi.
-En plus, je crois que dans l'histoire, des consciences sont mortes pour toujours à cause d'arme qui tue le corps et la conscience, désolé, j'ai oublié la source. 
-Le but de la vie n’est pas de redevenir dieu au point zéro, c'est de vivre dans la forme, faire son quota de travail, s'amuser, apprendre, la beauté de la vie, c'est d'avoir éternellement plusieurs consciences, pas une seule sado maso qui fait tout le tour, et en plus ton Dieu dit qu'il a tout fait, facile quand tu absorbe la conscience de l'autre qui fait le travail, je crée des milliards de consciences et quand ils ont tout fait, je les absorbe, celui qui est tout en haut ne souffre pas comme ça et dit qu'il a tout fait. 
-Par exemple, si tu fusionnes la conscience de 1 milliards d’individus qui sont montés dans ta dimension dans ta conscience pour faire une seule conscience, toi en haut n’a pas souffert de toutes les tortures des autres car tu n’a pas fait toutes les vies mais récupères les informations qui donne l’impression que tu as tout fait. 
+En plus, je crois que dans l'histoire, des consciences sont mortes pour toujours à cause d'arme qui tue le corps et la conscience, désolé, j'ai oublié la source.  
+Le but de la vie n’est pas de redevenir dieu au point zéro, c'est de vivre dans la forme, faire son quota de travail, s'amuser, apprendre, la beauté de la vie, c'est d'avoir éternellement plusieurs consciences, pas une seule sado maso qui fait tout le tour, et en plus ton Dieu dit qu'il a tout fait, facile quand tu absorbe la conscience de l'autre qui fait le travail, je crée des milliards de consciences et quand ils ont tout fait, je les absorbe, celui qui est tout en haut ne souffre pas comme ça et dit qu'il a tout fait.  
+Par exemple, si tu fusionnes la conscience de 1 milliards d’individus qui sont montés dans ta dimension dans ta conscience pour faire une seule conscience, toi en haut n’a pas souffert de toutes les tortures des autres car tu n’a pas fait toutes les vies mais récupères les informations qui donne l’impression que tu as tout fait.  
 Ils se sentent tellement unis en haut, au lieu de dire, vous serez comme nous, ils disent nous sommes vous dans le futur, ce qui est faux et trompe les gens.
-En plus il y a peut-être des consciences créées par le mal qui ne sont pas éternelles. Il y a des consciences qui ne sont jamais né, réponse à ceux qui disent que l’on est jamais né, jamais mort. D’après le livre Urantia, il y en a qui sont toujours né dans l’univers central et d’autres nés après, certaines consciences sont mortes pour toujours.
+En plus il y a peut-être des consciences créées par le mal qui ne sont pas éternelles. Il y a des consciences qui ne sont jamais né, réponse à ceux qui disent que l’on est jamais né, jamais mort. D’après le livre Urantia, il y en a qui sont toujours né dans l’univers central et d’autres nés après, certaines consciences sont mortes pour toujours.  
 Il paraît que la source ne peut pas prendre de forme alors si tu fusionne à la fin de tout ce qui existe, tu seras coincé et donc il n’y aura plus rien d’autres ou si il existe encore d’autres vies l’autre ne peut pas être toi-même sauf si il fusionne avec toi qui est devenu la source à la fin. 
-Si la source crée à l’infini, tu ne dois pas faire toutes les incarnations de tes voisins car la création n’a pas de fin donc tu ne peux pas devenir la source dans la logique que je viens de piéger.
-Le but de la vie n’est pas d’arrêter la forme et d’arrêter de créer donc je t’es piégé le moujonc. La vie est de vivre, pas d’être un esclave qu’on efface sa mémoire et reprogramme à la fin pour refaire le cycle du voisin pour engendrer des données d’un gros « ordinateur (métaphore) ».
-Il dit que Dieu est amour, mais aussi qu’il n’est pas parfait, il dit que tout le monde est dieu (non).
+Si la source crée à l’infini, tu ne dois pas faire toutes les incarnations de tes voisins car la création n’a pas de fin donc tu ne peux pas devenir la source dans la logique que je viens de piéger.  
+Le but de la vie n’est pas d’arrêter la forme et d’arrêter de créer donc je t’es piégé le moujonc. La vie est de vivre, pas d’être un esclave qu’on efface sa mémoire et reprogramme à la fin pour refaire le cycle du voisin pour engendrer des données d’un gros « ordinateur (métaphore) ».  
+Il dit que Dieu est amour, mais aussi qu’il n’est pas parfait, il dit que tout le monde est dieu (non).  
 
-Conclusion de critique 
-Crois pas que tu va m’obliger à faire la vie des autres, connard.
-Il n’y a pas qu’une conscience, il y’ en a plusieurs éternelles.
-C’est la secte des imbéciles heureux, une doctrine sado maso.
-Dans ce cas il est le pire de tous les mals pour inventer un système aussi horrible, connard démoniaque qui propage ta religion à un médium.
-Conclusion finale
-Tu ne peux pas te créer toi-même, tu es sorti du néant mais grâce à l’énergie de la source par la source elle-même ou un intermédiaire, on ne fusionne jamais totalement avec la source car on peut choisir de la ressentir comme étant elle, et on peut choisir tant qu’on veut d’éxpérimenter son individualité. 
+Conclusion de critique  
+Crois pas que tu va m’obliger à faire la vie des autres, connard.  
+Il n’y a pas qu’une conscience, il y’ en a plusieurs éternelles.  
+C’est la secte des imbéciles heureux, une doctrine sado maso.  
+Dans ce cas il est le pire de tous les mals pour inventer un système aussi horrible, connard démoniaque qui propage ta religion à un médium.  
+Conclusion finale  
+Tu ne peux pas te créer toi-même, tu es sorti du néant mais grâce à l’énergie de la source par la source elle-même ou un intermédiaire, on ne fusionne jamais totalement avec la source car on peut choisir de la ressentir comme étant elle, et on peut choisir tant qu’on veut d’expérimenter son individualité.  
 Si tu rejoues le personnage original d’à côté, tu ne seras pas la même conscience mais jouera le même rôle ou de manière un peu ou beaucoup plus différente.
-Très rare qu’une personne rejoue son propre rôle différemment.
-Les imbéciles heureux confondent tout est un mais seulement dans la connexion, l’autre n’est pas toi tant que tu n’as pas fusionné avec sa conscience comme une partie de ton âme qui est dans l’astral.
-L’âme est éternelle.
+Très rare qu’une personne rejoue son propre rôle différemment.  
+Les imbéciles heureux confondent tout est un mais seulement dans la connexion, l’autre n’est pas toi tant que tu n’as pas fusionné avec sa conscience comme une partie de ton âme qui est dans l’astral.  
+L’âme est éternelle.  
 
 821
 La beauté.
