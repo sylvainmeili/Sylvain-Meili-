@@ -2789,381 +2789,381 @@ Une chose dans une bonne proportion n’est pas mauvaise mais peut se rendre né
 699  
 Ce n’est pas parce que tout finit un jour vers le rééquilibre et que l’on fait des erreurs pour évoluer que tout est juste.  
 
-700
-Education utopique
-(Pour le bonheur, il faut le bien, le beau, la vérité).
-Les essentiels
-Cultiver la paix et l’amour spirituel (car de basses vibrations ou la peur engendre plus de malheurs planétaires et cela a un effet domino). 
-S’instruire : connaissance et sagesse. Connaître assez la nature.
-Chercher la vérité.
-Augmenter sa conscience, vibrer haut=meilleure vibration planétaire).
-Contribuer au bien du monde et possiblement à son amélioration.
-Ne pas faire d’un ou plusieurs cas une généralité (famille, communauté, groupe…) et pas d’une généralité 100% des cas.
-Ne pas croire aveuglément ce qui est dit, réfléchir, douter, penser logique et confirmer quand c’est possible.
-Connaître toutes les sortes de pièges et techniques de manipulations pour les éviter.
-Savoir reconnaître ses erreurs.
-Parler de manière la plus juste avec des mots postifs.
-Avoir des pensées en accord avec les mots et les faits. 
-Bien se comporter dans ses rêves.
-Respecter le consentement et le non-consentement dans l’équilibre de la vie.
-Ne pas se moquer des autres sans leur consentement (humour).
-Ne pas gueuler, et ne pas taper.
-Expliquer les choses à ses enfants avec des arguments.
-Restreindre un temps sa liberté en cas de mauvais comportement récidiviste.
-Partager, ne pas gaspiller, ne pas trop gâter, apprendre le mérite, ne pas se venger, éclairer, arrêter un mal.
-Bien ranger sa maison et prendre soin des objets.
-Ne pas polluer la planète (elle a une conscience).
-Se laver correctement.
-Se nourrir sainement.
-Savoir cuisiner quelques repas.
-Avoir une activité physique suffisante.
-Rendre ses enfants autonomes.
-Prendre soin de son corps et améliorer de façon naturelle si l’on peut son ADN.
-Travailler un minimum et s’amuser.
-Améliorer le bien-être de tout ce qui existe.
+700  
+Éducation utopique  
+(Pour le bonheur, il faut le bien, le beau, la vérité).  
+Les essentiels  
+Cultiver la paix et l’amour spirituel (car de basses vibrations ou la peur engendre plus de malheurs planétaires et cela a un effet domino).  
+S’instruire : connaissance et sagesse. Connaître assez la nature.  
+Chercher la vérité.  
+Augmenter sa conscience, vibrer haut=meilleure vibration planétaire).  
+Contribuer au bien du monde et possiblement à son amélioration.  
+Ne pas faire d’un ou plusieurs cas une généralité (famille, communauté, groupe…) et pas d’une généralité 100% des cas.  
+Ne pas croire aveuglément ce qui est dit, réfléchir, douter, penser logique et confirmer quand c’est possible.  
+Connaître toutes les sortes de pièges et techniques de manipulations pour les éviter.  
+Savoir reconnaître ses erreurs.  
+Parler de manière la plus juste avec des mots positifs.  
+Avoir des pensées en accord avec les mots et les faits.  
+Bien se comporter dans ses rêves.  
+Respecter le consentement et le non-consentement dans l’équilibre de la vie.  
+Ne pas se moquer des autres sans leur consentement (humour).  
+Ne pas gueuler, et ne pas taper.  
+Expliquer les choses à ses enfants avec des arguments.  
+Restreindre un temps sa liberté en cas de mauvais comportement récidiviste.  
+Partager, ne pas gaspiller, ne pas trop gâter, apprendre le mérite, ne pas se venger, éclairer, arrêter un mal.  
+Bien ranger sa maison et prendre soin des objets.  
+Ne pas polluer la planète (elle a une conscience).  
+Se laver correctement.  
+Se nourrir sainement.  
+Savoir cuisiner quelques repas.  
+Avoir une activité physique suffisante.  
+Rendre ses enfants autonomes.  
+Prendre soin de son corps et améliorer de façon naturelle si l’on peut son ADN.  
+Travailler un minimum et s’amuser.  
+Améliorer le bien-être de tout ce qui existe.  
 
-Les facultatifs
-Connaître la nature pour mieux apprécier sa beauté et la protéger.
-Pratiquer les arts martiaux, la gym ou la danse pour faire de son corps le plus beau des jouets.
-Savoir chanter.
-Rester d’une beauté naturelle. 
-Ne pas bouger son visage dans tous les sens, cela fait pousser les rides.
-Essayer un instrument de musique.
-Être assez bon en sport.
-Se coiffer tout seul.
-Parler au moins deux langues.
-Sauvegarder ses données précieuses en double.
+Les facultatifs  
+Connaître la nature pour mieux apprécier sa beauté et la protéger.  
+Pratiquer les arts martiaux, la gym ou la danse pour faire de son corps le plus beau des jouets.  
+Savoir chanter.  
+Rester d’une beauté naturelle.  
+Ne pas bouger son visage dans tous les sens, cela fait pousser les rides.  
+Essayer un instrument de musique.  
+Être assez bon en sport.  
+Se coiffer tout seul.  
+Parler au moins deux langues.  
+Sauvegarder ses données précieuses en double.  
 
-701
-Accepter des expériences négatives pour s’incarner ne veut pas dire qu’elles sont justes pour nous parce que l’on ne peut pas programmer toutes les circonstances et éviter ce que l’on ne veut pas.
-702
-Dire qu’il n’y a pas d’erreurs dans la vie et qu’il n’y a que des leçons est une fausse excuse car la perfection n’existe pas partout donc il y aura toujours des erreurs qui ne sont pas toutes des leçons. 
-On sait qu’il faut faire quelque chose mais les erreurs d’inattention ou d’oubli comme éteindre lumière ou autres choses se répètent dans la vie. Quand on se réincarne, on oublie donc on refait des erreurs.
-703
-L’erreur est la probabilité des circonstances sans forcément être une leçon.
-704
-Le plus grand explorateur est celui qui partage ses découvertes.
-705
-Pour un grand optimiste il n’y a pas de mocheté, il n’y a que des choses de moins en moins belles.
-706
-Donner la solution ne donne pas forcément la leçon à celui qui la reçoit s’il ne veut pas faire la leçon.
-707
-Voyage
-On voyage plus en apprenant qu’en faisant le tour du monde. (Dans le cas où tu voyages beaucoup mais que tu apprends beaucoup moins que quelqu’un qui voyage peu mais apprends beaucoup en s’insruisant.)
-Le voyage dans le temps existe.
-Théorie : Si tu voyage dans le temps et va rencontrer ton toi du passé et lui parlé, si tu ne te souviens pas avoir eu cette conversation, soit une autre conscience rejoue ton rôle en s’incarnant sinon tu ne pourrais pas te parler sans l’avoir vécu soit tu es dans un univers parallèle.
-708
-L’accoutumance nous rend moins objectif dans les coutumes et traditions du moujonc programmé qui répète comme les traditions cruelles démoniaques d’excision du clitoris des femmes pour enlever le plaisir pour qu’elles soient fidèles et vierges avant le mariage et d’autres arguments à la con. La circoncision du prépuce des hommes est grave sans demander la permission de l’enfant et cela enlève la protection et le confort surtout quand ils ont de quoi se laver sauf les pays de sécheresses ou c’est soi-disant pour empêcher des maladies mais cela est une excuse dont je reste méfiant.
+701  
+Accepter des expériences négatives pour s’incarner ne veut pas dire qu’elles sont justes pour nous parce que l’on ne peut pas programmer toutes les circonstances et éviter ce que l’on ne veut pas.  
+702  
+Dire qu’il n’y a pas d’erreurs dans la vie et qu’il n’y a que des leçons est une fausse excuse car la perfection n’existe pas partout donc il y aura toujours des erreurs qui ne sont pas toutes des leçons.  
+On sait qu’il faut faire quelque chose mais les erreurs d’inattention ou d’oubli comme éteindre lumière ou autres choses se répètent dans la vie. Quand on se réincarne, on oublie donc on refait des erreurs.  
+703  
+L’erreur est la probabilité des circonstances sans forcément être une leçon.  
+704  
+Le plus grand explorateur est celui qui partage ses découvertes.  
+705  
+Pour un grand optimiste il n’y a pas de mocheté, il n’y a que des choses de moins en moins belles.  
+706  
+Donner la solution ne donne pas forcément la leçon à celui qui la reçoit s’il ne veut pas faire la leçon.  
+707  
+Voyage  
+On voyage plus en apprenant qu’en faisant le tour du monde. (Dans le cas où tu voyages beaucoup mais que tu apprends beaucoup moins que quelqu’un qui voyage peu mais apprends beaucoup en s’instruisant).    
+Le voyage dans le temps existe.  
+Théorie : Si tu voyage dans le temps et va rencontrer ton toi du passé et lui parlé, si tu ne te souviens pas avoir eu cette conversation, soit une autre conscience rejoue ton rôle en s’incarnant sinon tu ne pourrais pas te parler sans l’avoir vécu soit tu es dans un univers parallèle.  
+708  
+L’accoutumance nous rend moins objectif dans les coutumes et traditions du moujonc programmé qui répète comme les traditions cruelles démoniaques d’excision du clitoris des femmes pour enlever le plaisir pour qu’elles soient fidèles et vierges avant le mariage et d’autres arguments à la con. La circoncision du prépuce des hommes est grave sans demander la permission de l’enfant et cela enlève la protection et le confort surtout quand ils ont de quoi se laver sauf les pays de sécheresses ou c’est soi-disant pour empêcher des maladies mais cela est une excuse dont je reste méfiant.  
 L’accoutumance pour avoir une copine augmente beaucoup plus les chances à la faculté, au travail ou dans un club que sur internet ou demander dans la rue.
-Empêcher d’avoir une copine avant le mariage est emprisonnant, frustrant et est une dictature.
-709
-On régénère une forêt en la laissant vieillir, pas en la faisant rajeunir.
-710
-L’arbre c’est le contraire de l’Humain, plus il est gros et vieux, mieux c’est.
-711
-Le sage ne peut montrer tout son savoir aux ignorants car cela peut créer plus de désordre, c’est toute une stratégie pour faire évoluer le monde.
-712
-Les plus beaux vêtements sont ceux qui se rapprochent de la forme du corps.
-713
-Trop chercher la perfection des notes à l’école nous met dans une prison.
-714
-Être plus célèbre ne veut pas forcément dire être plus important.
-715
-Ne mettez pas de cadeau en plus sans prévenir quand on achète quelque chose car on peut ne pas savoir quoi en faire, cela nous encombre et si on le jette à la poubelle cela fait du gâchis.
-716
-Gagne ta liberté en te remplissant la tête.
-717
-Même ne rien faire c’est faire quelque chose (penser, se reposer, respirer, rêver).
-718
-Avoir envie de rien en étant heureux, c’est fort mais c’est aussi idiot.
-719
-L’idiot adhère aux accusations sans vérifier.
-720
-Ma conscience d’âme individuelle m’appartient.
-721
-Quand quelqu’un utilise une méthode inhabituelle pour te parler, ça peut être une blague mais ça peut aussi être sérieux.
-722
-Dans la montagne forestière, il y a plus de ruisseaux et rivières et donc plus de nature à visiter car dans la plaine, la nature a moins de surface pour s’accrocher.
-723
-Dieu ne sait pas tout mais se connecte à tout pour tout savoir.
-724
-Si on peut en même temps ou en gagnant du temps arriver au même résultat d’évolution ou mieux, il est plus important d’enfreindre le libre arbitre que de laisser se produire une torture horrible de quelqu’un et d’autres sur une autre planète en libre évolution où il est soi-disant interdit d’intervenir. 
-725
-Aux pires du mal, il faut leur effacer la mauvaise mémoire ou transmuter mais pas les tuer totalement car la vie doit être éternelle dans la réincarnation et au-delà. 
-726
-L’amour inconditionnel à 100% n’existe pas mais il faut s’en rapprocher suffisamment dans l’équilibre.
-727
-L’univers ne doit permettre aucune guerre dans l’univers car il faut supprimer les grandes souffrances, quand on sait ce que ça fait, on ne doit plus jamais le permettre.
-728
-Quand un enfant capricieux fait sa crise, imite-le peut-être et explique, l’effet miroir éclaire son comportement et il voit mieux sa bêtise. Parler aussi des gens plus malheureux que soi dans le monde est un bon exemple.
-729
-Les conséquences modifient l’efficacité de l’acte en fonction des circonstances.
-730
-L’égo, ça nous permet de ne pas être l’esclave des autres, savoir dire non, donner assez d’importance à soi-même, il faut garder un égo équilibré sans vouloir dominer les autres et en faisant suffisamment de services aux autres.
-731
-La perfection, c’est pouvoir expérimenter tout ce que l’on veut sans faire de mal aux autres.
-732
-La sagesse n’est pas d’accepter toutes les règles universelles sans réfléchir et sans explications, c’est de chercher à améliorer ce qui n’existe pas encore.
-733
-L’amour a tort quand il envoie plus à ceux qui ont trop alors qu’il pourrait à la place envoyer aux plus faibles ou à un endroit qui fait évoluer.
-734
-Construire des cabanes d’habitation dans la forêt n’a rien d écologique surtout dans un pays déjà trop bâti avec plus de 100 habitants au km², car cela fragmente la forêt sauvage et la distance d’espace vide sans habitation humaine où l’on se retrouve dans la véritable nature diminue encore. Il faut éviter de trop miter la nature.
-735
-Le paradis n’est pas dans l’amour sans forme et sans nom, le paradis est dans l’amour qui prend sa forme dans la multiplicité éternelle.
-La plus haute forme d’amour est d’avoir une copine, le paradis est au milieu. Refuser l’amour physique sous prétexte que c’est bas est être un esprit coincé. Une bonne chose n’est pas plus bas qu’une autre bonne chose, cela dépend des goûts de chacun, c’est vivre et s’amuser.
-L’imbécile heureux voudra aller dans le néant sans forme en béatitude de mort vivant.
-736
-Le but n’est pas de devenir le dieu du commencement de l’infini avant, c’est d’avoir toutes les options débloquées et garder la forme pour ceux qui le souhaite.
-737
-On ne vit pas pour qu’à la fin les options débloquées disparaissent.
-738
-Dieu peut nous remercier du divertissement, et nous aussi pour ce qu’il nous permet de faire.
-739
-La perfection, c’est de pouvoir aussi goûter à l’imperfection.
-740
-L’amour inconditionnel doit être tempéré à ceux qui ont trop et à ceux qui t’embêtent.
-741
-Plusieurs sortes de peur : la peur pour s’amuser, la peur qui empêche la bêtise ou pour se sauver plus vite, la peur de la souffrance et la peur pathologique.
-742
-Dans un souhait à l’univers, ne demande pas la manière de l’avoir mais de l’avoir avec la possibilité de différentes manières.
+Empêcher d’avoir une copine avant le mariage est emprisonnant, frustrant et est une dictature.  
+709  
+On régénère une forêt en la laissant vieillir, pas en la faisant rajeunir.  
+710  
+L’arbre c’est le contraire de l’Humain, plus il est gros et vieux, mieux c’est.  
+711  
+Le sage ne peut montrer tout son savoir aux ignorants car cela peut créer plus de désordre, c’est toute une stratégie pour faire évoluer le monde.  
+712  
+Les plus beaux vêtements sont ceux qui se rapprochent de la forme du corps.  
+713  
+Trop chercher la perfection des notes à l’école nous met dans une prison.  
+714  
+Être plus célèbre ne veut pas forcément dire être plus important.  
+715  
+Ne mettez pas de cadeau en plus sans prévenir quand on achète quelque chose car on peut ne pas savoir quoi en faire, cela nous encombre et si on le jette à la poubelle cela fait du gâchis.  
+716  
+Gagne ta liberté en te remplissant la tête.  
+717  
+Même ne rien faire c’est faire quelque chose (penser, se reposer, respirer, rêver).  
+718  
+Avoir envie de rien en étant heureux, c’est fort mais c’est aussi idiot.  
+719  
+L’idiot adhère aux accusations sans vérifier.  
+720  
+Ma conscience d’âme individuelle m’appartient.  
+721  
+Quand quelqu’un utilise une méthode inhabituelle pour te parler, ça peut être une blague mais ça peut aussi être sérieux.  
+722  
+Dans la montagne forestière, il y a plus de ruisseaux et rivières et donc plus de nature à visiter car dans la plaine, la nature a moins de surface pour s’accrocher.  
+723  
+Dieu ne sait pas tout mais se connecte à tout pour tout savoir.  
+724  
+Si on peut en même temps ou en gagnant du temps arriver au même résultat d’évolution ou mieux, il est plus important d’enfreindre le libre arbitre que de laisser se produire une torture horrible de quelqu’un et d’autres sur une autre planète en libre évolution où il est soi-disant interdit d’intervenir.  
+725  
+Aux pires du mal, il faut leur effacer la mauvaise mémoire ou transmuter mais pas les tuer totalement car la vie doit être éternelle dans la réincarnation et au-delà.  
+726  
+L’amour inconditionnel à 100% n’existe pas mais il faut s’en rapprocher suffisamment dans l’équilibre.  
+727  
+L’univers ne doit permettre aucune guerre dans l’univers car il faut supprimer les grandes souffrances, quand on sait ce que ça fait, on ne doit plus jamais le permettre.  
+728  
+Quand un enfant capricieux fait sa crise, imite-le peut-être et explique, l’effet miroir éclaire son comportement et il voit mieux sa bêtise. Parler aussi des gens plus malheureux que soi dans le monde est un bon exemple.  
+729  
+Les conséquences modifient l’efficacité de l’acte en fonction des circonstances.  
+730  
+L’égo, ça nous permet de ne pas être l’esclave des autres, savoir dire non, donner assez d’importance à soi-même, il faut garder un égo équilibré sans vouloir dominer les autres et en faisant suffisamment de services aux autres.  
+731  
+La perfection, c’est pouvoir expérimenter tout ce que l’on veut sans faire de mal aux autres.  
+732  
+La sagesse n’est pas d’accepter toutes les règles universelles sans réfléchir et sans explications, c’est de chercher à améliorer ce qui n’existe pas encore.  
+733  
+L’amour a tort quand il envoie plus à ceux qui ont trop alors qu’il pourrait à la place envoyer aux plus faibles ou à un endroit qui fait évoluer.  
+734  
+Construire des cabanes d’habitation dans la forêt n’a rien d écologique surtout dans un pays déjà trop bâti avec plus de 100 habitants au km², car cela fragmente la forêt sauvage et la distance d’espace vide sans habitation humaine où l’on se retrouve dans la véritable nature diminue encore. Il faut éviter de trop miter la nature.  
+735  
+Le paradis n’est pas dans l’amour sans forme et sans nom, le paradis est dans l’amour qui prend sa forme dans la multiplicité éternelle.  
+La plus haute forme d’amour est d’avoir une copine, le paradis est au milieu. Refuser l’amour physique sous prétexte que c’est bas est être un esprit coincé. Une bonne chose n’est pas plus bas qu’une autre bonne chose, cela dépend des goûts de chacun, c’est vivre et s’amuser.  
+L’imbécile heureux voudra aller dans le néant sans forme en béatitude de mort vivant.  
+736  
+Le but n’est pas de devenir le dieu du commencement de l’infini avant, c’est d’avoir toutes les options débloquées et garder la forme pour ceux qui le souhaite.  
+737  
+On ne vit pas pour qu’à la fin les options débloquées disparaissent.  
+738  
+Dieu peut nous remercier du divertissement, et nous aussi pour ce qu’il nous permet de faire.  
+739  
+La perfection, c’est de pouvoir aussi goûter à l’imperfection.  
+740  
+L’amour inconditionnel doit être tempéré à ceux qui ont trop et à ceux qui t’embêtent.  
+741  
+Plusieurs sortes de peur : la peur pour s’amuser, la peur qui empêche la bêtise ou pour se sauver plus vite, la peur de la souffrance et la peur pathologique.  
+742  
+Dans un souhait à l’univers, ne demande pas la manière de l’avoir mais de l’avoir avec la possibilité de différentes manières.  
 743
-Le but de la vie pour ceux qui le souhaite est de compléter le programme primordial de dieu pour créer le meilleur paradis pour chacun dans le respect des autres.
-744
-L’univers est un bijou à polir.
-745
-Pas besoin d’être maniaque d’une règle quand on ne dérange pas les autres.
-746
-Il est ridicule de s’enlever des plaisirs quand cela n’abaisse pas les autres et que l’univers continue de fonctionner en équilibre.
-747
-Le programme de la première conscience de dieu s’est reprogrammé en se multipliant et en se divisant pour se reprogrammer en se recomplétant accompagné des autres consciences individuelles éternelles.
-748
-La société sera évoluée quand on pourra se permettre de travailler 20 heures par semaine et avoir 12 semaines sur 52 de vacances soit 1 semaine par mois.
-Quand les bonnes circonstances et la société seront optimisé et en paix, on pourra aussi travailler plus selon le contexte et si l’on compte les choses utiles pour la société en dehors de son travail principal.
-cela peut prendre des milliers d’années ou des centaines d’années ou moins cela le monde où l’on est (voir 858).
-749
-Quand on a un jardin, il faut cultiver une partie de sa nourriture au lieu de l’acheter car cela fait des emballages, rajoute du travail à la société et pollue.
-750
-L’amour inconditionnel est dans la tempérance de l’équilibre.
-L’amour inconditionnel n’importe où ne veut pas dire la meilleure décision car il faut aimer de façon à ce que l’autre ne soit pas trop dépendant des autres ou qu’il puisse évoluer.
+Le but de la vie pour ceux qui le souhaite est de compléter le programme primordial de dieu pour créer le meilleur paradis pour chacun dans le respect des autres.  
+744  
+L’univers est un bijou à polir.  
+745  
+Pas besoin d’être maniaque d’une règle quand on ne dérange pas les autres.  
+746  
+Il est ridicule de s’enlever des plaisirs quand cela n’abaisse pas les autres et que l’univers continue de fonctionner en équilibre.  
+747  
+Le programme de la première conscience de dieu s’est reprogrammé en se multipliant et en se divisant pour se reprogrammer en se recomplétant accompagné des autres consciences individuelles éternelles.  
+748  
+La société sera évoluée quand on pourra se permettre de travailler 20 heures par semaine et avoir 12 semaines sur 52 de vacances soit 1 semaine par mois.  
+Quand les bonnes circonstances et la société seront optimisé et en paix, on pourra aussi travailler plus selon le contexte et si l’on compte les choses utiles pour la société en dehors de son travail principal.  
+cela peut prendre des milliers d’années ou des centaines d’années ou moins cela le monde où l’on est (voir 858).  
+749  
+Quand on a un jardin, il faut cultiver une partie de sa nourriture au lieu de l’acheter car cela fait des emballages, rajoute du travail à la société et pollue.  
+750  
+L’amour inconditionnel est dans la tempérance de l’équilibre.  
+L’amour inconditionnel n’importe où ne veut pas dire la meilleure décision car il faut aimer de façon à ce que l’autre ne soit pas trop dépendant des autres ou qu’il puisse évoluer.  
 
-Une journée idéale 
-en famille
+Une journée idéale   
+en famille  
 
-Je me réveille, la lumière m’annonce une journée idéale.
-Petit déjeuner serein avec toute la famille.
-Petite promenade dans le jardin parfait.
-Séance de loisirs et de jeux, aujourd’hui, c’est concours de tir à l’arc.
-À midi, c’est festin de délices avec une frite mayonnaise et un gâteau chocolat à la crème vanille.
-Ensuite une petite sieste avec la femme parfaite dans le petit pavillon au bord des fleurs et de l’eau.
-Un petit morceau de pain de la veille et nous admirons les poissons percer l’air de l’eau cristalline.
-Faisons maintenant place à une séance d’arts martiaux et d’acrobaties des enfants.
-Quel grand spectacle, mon apprentissage a laissé place à de grands talents.
-Petit goûter de 16h, cornets de glace et jus de fruits.
-Nous nous mettons en famille à jouer à un jeu de société au pavillon.
-19h est arrivé, dernier repas : des bonnes pâtes.
-Dernière activité du soir ensemble : séance cinéma.
-Nous regagnons tous nos chambres.
-La journée est finie, devinez ce que sera demain.
+Je me réveille, la lumière m’annonce une journée idéale.  
+Petit déjeuner serein avec toute la famille.  
+Petite promenade dans le jardin parfait.  
+Séance de loisirs et de jeux, aujourd’hui, c’est concours de tir à l’arc.  
+À midi, c’est festin de délices avec une frite mayonnaise et un gâteau chocolat à la crème vanille.  
+Ensuite une petite sieste avec la femme parfaite dans le petit pavillon au bord des fleurs et de l’eau.  
+Un petit morceau de pain de la veille et nous admirons les poissons percer l’air de l’eau cristalline.  
+Faisons maintenant place à une séance d’arts martiaux et d’acrobaties des enfants.  
+Quel grand spectacle, mon apprentissage a laissé place à de grands talents.  
+Petit goûter de 16h, cornets de glace et jus de fruits.  
+Nous nous mettons en famille à jouer à un jeu de société au pavillon.  
+19h est arrivé, dernier repas : des bonnes pâtes.  
+Dernière activité du soir ensemble : séance cinéma.  
+Nous regagnons tous nos chambres.  
+La journée est finie, devinez ce que sera demain.  
 
-Sylvain Meili (2019 : n°13)
+Sylvain Meili (2019 : n°13)  
 
-751
-Le meilleur philosophe n’est pas forcément celui qui a les meilleures notes à l’école.
-Le philosophe peu s’orienter vers une tendance d'avantage romanesque ou vers une approche plutôt proverbes.
-Le meilleur romanesque ne garantit pas d’être meilleur que le proverbiale.
-752
-Toute personne devrait avoir le droit de connaître le nom de ses parents biologiques au moins à 18 ans, et ainsi pouvoir faire son arbre généalogique.
-753
-On se doit de préserver sa langue et de ne pas inventer trop de mots qui existent déjà, de ne pas parler à l’envers ou avec des phrases ou expressions illogiques.
-« Chaque âme qui existe maintenant, ait jamais existé et existera jamais,» il dit jamais existé pour dire toujours, c’est illogique.
-« Une des plus belles chansons que j’ai jamais entendues »,  
-tu peux pas savoir qu’elle est belle si t’as jamais entendu, enlève jamais.
-« Trop beau, trop bon », ça sous-entend que tu veux qu’il soit un peu moins beau ou bon, trop veut dire excès, alors c’est pas logique.
-« Il y a personne » pour dire qu’il y a zéro personne, alors que logiquement ça devrait dire le contraire.
-C’est « nom et prénom » pour ne pas le nommer. Ne le cite pas si c’est pour dire que tu ne le nomme pas.
-754
-On peut être un peu imparfait avec des plus grandes qualités que celui qui est parfait mais ne faisant que peu de choses avec un bas niveau de loisirs ou qui n’améliore pas l’univers.
-755
-Il est ridicule de ne pas vouloir aimer quelqu’un seulement à cause d’un prénom que l’on n’aime pas, on peut essayer de lui demander de l’appeler autrement.
-756
-Une des spécificités de l’imbécile est de trouver des défauts aux autres qui n’en sont pas.
-757
-L’idiot te dit de baisser le ton alors que c’est lui qui hausse le ton et te menace.
-758
-Si tu dis de baisser le ton, aie la sagesse de parler moins fort que lui et de façon plus agréable, sinon tu ne peux pas te permettre de donner des leçons de morale.
-759
-Si on essaye des idées même en se trompant quand il manque des arguments contre nos idées, on peut avoir au-moins le mérite d’essayer à condition de vouloir nuire le moins possible aux autres.
-760
-L’excellence est dans la tolérance de ce que l’on peut faire.
-761
-Dans l’éternité, l’autre peut devenir le reflet de sa propre beauté.
-762
-La perfection n’est pas être dans la félicité, la perfection est de pouvoir assouvir tous ses désirs dans l’équilibre.
-763
-Les médiums peuvent canaliser des vérités et des mensonges, un philosophe peut être beaucoup plus sage qu’un médium.
-764
+751  
+Le meilleur philosophe n’est pas forcément celui qui a les meilleures notes à l’école.  
+Le philosophe peu s’orienter vers une tendance d'avantage romanesque ou vers une approche plutôt proverbes.  
+Le meilleur romanesque ne garantit pas d’être meilleur que le proverbiale.  
+752  
+Toute personne devrait avoir le droit de connaître le nom de ses parents biologiques au moins à 18 ans, et ainsi pouvoir faire son arbre généalogique.  
+753  
+On se doit de préserver sa langue et de ne pas inventer trop de mots qui existent déjà, de ne pas parler à l’envers ou avec des phrases ou expressions illogiques.  
+« Chaque âme qui existe maintenant, ait jamais existé et existera jamais,» il dit jamais existé pour dire toujours, c’est illogique.  
+« Une des plus belles chansons que j’ai jamais entendues »,    
+tu peux pas savoir qu’elle est belle si t’as jamais entendu, enlève jamais.  
+« Trop beau, trop bon », ça sous-entend que tu veux qu’il soit un peu moins beau ou bon, trop veut dire excès, alors c’est pas logique.  
+« Il y a personne » pour dire qu’il y a zéro personne, alors que logiquement ça devrait dire le contraire.  
+C’est « nom et prénom » pour ne pas le nommer. Ne le cite pas si c’est pour dire que tu ne le nomme pas.  
+754  
+On peut être un peu imparfait avec des plus grandes qualités que celui qui est parfait mais ne faisant que peu de choses avec un bas niveau de loisirs ou qui n’améliore pas l’univers.  
+755  
+Il est ridicule de ne pas vouloir aimer quelqu’un seulement à cause d’un prénom que l’on n’aime pas, on peut essayer de lui demander de l’appeler autrement.  
+756  
+Une des spécificités de l’imbécile est de trouver des défauts aux autres qui n’en sont pas.  
+757  
+L’idiot te dit de baisser le ton alors que c’est lui qui hausse le ton et te menace.  
+758  
+Si tu dis de baisser le ton, aie la sagesse de parler moins fort que lui et de façon plus agréable, sinon tu ne peux pas te permettre de donner des leçons de morale.  
+759  
+Si on essaye des idées même en se trompant quand il manque des arguments contre nos idées, on peut avoir au-moins le mérite d’essayer à condition de vouloir nuire le moins possible aux autres.  
+760  
+L’excellence est dans la tolérance de ce que l’on peut faire.  
+761  
+Dans l’éternité, l’autre peut devenir le reflet de sa propre beauté.  
+762  
+La perfection n’est pas être dans la félicité, la perfection est de pouvoir assouvir tous ses désirs dans l’équilibre.  
+763  
+Les médiums peuvent canaliser des vérités et des mensonges, un philosophe peut être beaucoup plus sage qu’un médium.  
+764  
 La dimension humaine n’est que la couche d’un au-delà multidimensionnel. 
-Quand on est dans une dimension élevé, on peut aller voir dans les dimensions plus basses, celui qui est dans le bas astral ne peut pas visiter plus haut dans l’astral  tant qu’on l’aide pas ou qu’il n’élève pas sa vibration.
+Quand on est dans une dimension élevé, on peut aller voir dans les dimensions plus basses, celui qui est dans le bas astral ne peut pas visiter plus haut dans l’astral  tant qu’on l’aide pas ou qu’il n’élève pas sa vibration.  
 Les dimensions, c’est comme les fréquences radio, ce n’est pas parce que cela ne se voit pas que cela n’existe pas (ceux qui croit pas à la vie après la mort).
-Il ya aussi des dimensions 3d parallèles donc univers parallèles.
-765
-Le mal alourdit le monde.
-766
-Après la première conscience de l’univers, la vérité ne s’arrête pas au point de départ.
-767
-Ne pas dire trop sur tout ce que l’on possède ou reçoit aux personnes moins chanceuses, trop bavardes ou incompatibles pour ne pas susciter de problèmes comme la jalousie, la convoitise, le vol ou le rejet.
-768
-Quand on peut avoir mieux sans abaisser les autres, il est ridicule d’y renoncer.
-769
+Il y a aussi des dimensions 3d parallèles donc univers parallèles.  
+765  
+Le mal alourdit le monde.  
+766  
+Après la première conscience de l’univers, la vérité ne s’arrête pas au point de départ.  
+767  
+Ne pas dire trop sur tout ce que l’on possède ou reçoit aux personnes moins chanceuses, trop bavardes ou incompatibles pour ne pas susciter de problèmes comme la jalousie, la convoitise, le vol ou le rejet.  
+768  
+Quand on peut avoir mieux sans abaisser les autres, il est ridicule d’y renoncer.  
+769  
 Fonctionnement du multivers : conscience d’amour, énergie, connaissance, expérimentations et plaisirs en équilibre vers évolution, expansion et rétractation.
-770
-Toute la vérité doit respecter l’équilibre.
-771
-Celui qui souffre peut s’expliquer par plusieurs raisons, sa vibration n’est pas assez élevée et il attire donc les mauvaises énergies, son karma : les meilleurs places se méritent, il a choisi une vie difficile pour évoluer plus vite, des missions pour faire évoluer les autres, à cause des circonstances des autres, pour éviter un plus grand malheur ou à cause de ses décisions dans cette vie.
-772
-Avec le bien et le mal, le concept de conséquences peut rendre malléable la définition du bien et du mal.
-773
-Le libre arbitre
-L’école et la religion
-On peut enseigner la philosophie qui concerne la vie terrestre mais dès que cela concerne dieu, la réincarnation et l’au-delà, c’est une infraction du libre arbitre si il n y a pas de confrontation des religions en cous ou en débat. Je pense qu’il  faut confronter au moins 3 doctrines où il y a présence de sujets de l’au-delà. 
-La confrontation des idées permet d’éclairer en partie ce qui est le meilleur.
-Si une école enseigne seulement une religion, cela est contre le libre arbitre, elle est autorisée seulement si c’est une option en accès libre.
+770  
+Toute la vérité doit respecter l’équilibre.  
+771  
+Celui qui souffre peut s’expliquer par plusieurs raisons, sa vibration n’est pas assez élevée et il attire donc les mauvaises énergies, son karma : les meilleurs places se méritent, il a choisi une vie difficile pour évoluer plus vite, des missions pour faire évoluer les autres, à cause des circonstances des autres, pour éviter un plus grand malheur ou à cause de ses décisions dans cette vie.  
+772  
+Avec le bien et le mal, le concept de conséquences peut rendre malléable la définition du bien et du mal.  
+773  
+Le libre arbitre  
+L’école et la religion  
+On peut enseigner la philosophie qui concerne la vie terrestre mais dès que cela concerne dieu, la réincarnation et l’au-delà, c’est une infraction du libre arbitre si il n y a pas de confrontation des religions en cous ou en débat. Je pense qu’il  faut confronter au moins 3 doctrines où il y a présence de sujets de l’au-delà.  
+La confrontation des idées permet d’éclairer en partie ce qui est le meilleur.  
+Si une école enseigne seulement une religion, cela est contre le libre arbitre, elle est autorisée seulement si c’est une option en accès libre.  
 
-Le pur libre arbitre, c’est quand on a toutes les connaissances pour choisir les bonnes décisions et que les autres n’enfreignent pas le tien selon moi.
-La loi du libre arbitre de l’univers ne fait pas de différence elle s’exerce pour les plus évolués et les moins évolués.
-774
-Faire l’effort d’expliquer les choses peut éviter des rebellions.
-775
-Les mauvaises pensées font diminuer sa propre énergie et celle du monde.
-Interdire les mauvaises pensées empêche l'évolution du comportement de faire face à elles avec sagesse (une société télépathe qui efface les mauvaises pensées avec une machine est comme tricher pour faire croire que la société est évoluée, c'est une illusion, la sagesse est de pouvoir se confronter aux mauvaises pensées sans agir en violence).
-Si cette société a un faible taux de delinquance, ce n'est pas par sagesse, c'est par la fuite, il faut étudier la philosophie pour être évolué, pas fuire en utilisant une machine.
-Une paix par la sagesse est plus solide qu’une paix par des circonstances mais des bonnes circonstances peuvent aussi faire evoluer la sagesse.
-776
-Un égo équilibré est la voie du paradis.
-777
-Se rapprocher de dieu, les révélations : oui mais avec toutes les bonnes options.
-Imagination d’un paradis
-Un homme et sa femme (ou inversement, égalité).
-Prendre l’apparence que l’on veut (métamorphe) ou ne garder que sa conscience sans forme quand on veut, se rapetissir, grandir.
-Le plaisir du corps et de la nourriture.
-Accès aux annales akashiques pour revoir ou revivre des parties de toutes ses vies.
-Se faire plaisirs de tous les plaisirs de la création enregistrés dans l’ordinateur quantique de l’univers tel que la musique, le sport, les jeux vidéo, le cinéma, les photos, la peinture, la littérature, les objets…
-Pouvoir matérialiser et dématérialiser ce que l’on veut dans le respect pour s’amuser.
-Et en bonus toutes les capacités surnaturelles comme voler, la télépathie, traverser les murs, la télékinésie, la téléportation, les yeux qui font jumelle optique, changer de fréquence vibratoire : ce qui permet a quelqu’un qui t’attaque de passer à travers ton corps et de ne pas te toucher, voir les probabilités de lignes de temps, la bilocation…
-Pouvoir avoir une maison beaucoup plus grande que le réel visible.
-Pouvoir se promener sur la Terre à toutes les époques reconstituées dans l’akashique ou les hologrammes.
-Voyager dans les dimensions de l’univers à travers un écran ou en y allant dans le respect et s’il n’y a pas trop de monde au même endroit.
-Un peu de temps de travail pour aider le collectif ou gérer les univers et un temps pour le plaisir et l’expérimentation.
+Le pur libre arbitre, c’est quand on a toutes les connaissances pour choisir les bonnes décisions et que les autres n’enfreignent pas le tien selon moi.  
+La loi du libre arbitre de l’univers ne fait pas de différence elle s’exerce pour les plus évolués et les moins évolués.  
+774  
+Faire l’effort d’expliquer les choses peut éviter des rebellions.  
+775  
+Les mauvaises pensées font diminuer sa propre énergie et celle du monde.  
+Interdire les mauvaises pensées empêche l'évolution du comportement de faire face à elles avec sagesse (une société télépathe qui efface les mauvaises pensées avec une machine est comme tricher pour faire croire que la société est évoluée, c'est une illusion, la sagesse est de pouvoir se confronter aux mauvaises pensées sans agir en violence).  
+Si cette société a un faible taux de délinquance, ce n'est pas par sagesse, c'est par la fuite, il faut étudier la philosophie pour être évolué, pas fuir en utilisant une machine.  
+Une paix par la sagesse est plus solide qu’une paix par des circonstances mais des bonnes circonstances peuvent aussi faire évoluer la sagesse.  
+776  
+Un égo équilibré est la voie du paradis.  
+777  
+Se rapprocher de dieu, les révélations : oui mais avec toutes les bonnes options.  
+Imagination d’un paradis  
+Un homme et sa femme (ou inversement, égalité).  
+Prendre l’apparence que l’on veut (métamorphe) ou ne garder que sa conscience sans forme quand on veut, se rapetisser, grandir.  
+Le plaisir du corps et de la nourriture.  
+Accès aux annales akashiques pour revoir ou revivre des parties de toutes ses vies.  
+Se faire plaisirs de tous les plaisirs de la création enregistrés dans l’ordinateur quantique de l’univers tel que la musique, le sport, les jeux vidéo, le cinéma, les photos, la peinture, la littérature, les objets…  
+Pouvoir matérialiser et dématérialiser ce que l’on veut dans le respect pour s’amuser.  
+Et en bonus toutes les capacités surnaturelles comme voler, la télépathie, traverser les murs, la télékinésie, la téléportation, les yeux qui font jumelle optique, changer de fréquence vibratoire : ce qui permet a quelqu’un qui t’attaque de passer à travers ton corps et de ne pas te toucher, voir les probabilités de lignes de temps, la bilocation…  
+Pouvoir avoir une maison beaucoup plus grande que le réel visible.  
+Pouvoir se promener sur la Terre à toutes les époques reconstituées dans l’akashique ou les hologrammes.  
+Voyager dans les dimensions de l’univers à travers un écran ou en y allant dans le respect et s’il n’y a pas trop de monde au même endroit.  
+Un peu de temps de travail pour aider le collectif ou gérer les univers et un temps pour le plaisir et l’expérimentation.  
 
-La mort : 
-le renouveau dans l’au-delà
- et les 4 saisons
+La mort :   
+le renouveau dans l’au-delà  
+et les 4 saisons  
 
-Si la mort est comme le printemps, il fleurit de sa nouvelle jeunesse.
-Si la mort est comme l’été, il regagne la douce chaleur de son nouveau feuillage.
-Si la mort est comme l’automne, il prend toutes ses couleurs. 
-Si la mort est comme l’hiver, que son passage soit recouvert d’une belle neige.
+Si la mort est comme le printemps, il fleurit de sa nouvelle jeunesse.  
+Si la mort est comme l’été, il regagne la douce chaleur de son nouveau feuillage.  
+Si la mort est comme l’automne, il prend toutes ses couleurs.  
+Si la mort est comme l’hiver, que son passage soit recouvert d’une belle neige.  
 
-Sylvain Meili (2019 : n°14)
+Sylvain Meili (2019 : n°14)  
 
-Poème d’un empereur à sa déesse
+Poème d’un empereur à sa déesse  
 
-Quel magnifique plaisir de délice,
-d’avoir une si grande admiratrice.
-La douceur de ta voix et de tes mots,
-sont si tendrement chauds.
-Ta silhouette aux courbes dansantes,
-fait de toi une femme encore plus fascinante.
-Tes chansons élèvent notre vie à l’unisson,
-sur ce pont de bonheur et d’adoration.
-Que nos consciences soient toujours de dieu séparées mais connectées,
-pour toujours nous admirer.
-Si l’univers disparaissait,
-j’espère rejoindre un autre univers et toujours faire vivre ce que l’on partageait.
+Quel magnifique plaisir de délice,  
+d’avoir une si grande admiratrice.  
+La douceur de ta voix et de tes mots,  
+sont si tendrement chauds.  
+Ta silhouette aux courbes dansantes,  
+fait de toi une femme encore plus fascinante.  
+Tes chansons élèvent notre vie à l’unisson,  
+sur ce pont de bonheur et d’adoration.  
+Que nos consciences soient toujours de dieu séparées mais connectées,  
+pour toujours nous admirer.  
+Si l’univers disparaissait,  
+j’espère rejoindre un autre univers et toujours faire vivre ce que l’on partageait.  
 
-Sylvain Meili (2020 : n°15)
+Sylvain Meili (2020 : n°15)  
 
-Poème d’une déesse à son empereur
+Poème d’une déesse à son empereur  
 
-Quel beau plaisir de te lire,
-tes poèmes qui me font frémir.
-C’est l’élégance de tes paroles,
-qui fait de ma vie un survole.
-Pas besoin de beaucoup de mots,
-car ils m’apportent les plus jolis flots.
-Sans me sentir à toi enchainée,
-je te laisse sereinement partir un temps et aller. 
-Tes absences auront toujours un retour,
-rien ne peut abaisser notre amour.
-Tu m’as donné les recettes du paradis,
-comme une étoile qui brille si fort dans mon cœur ravi.
+Quel beau plaisir de te lire,  
+tes poèmes qui me font frémir.  
+C’est l’élégance de tes paroles,  
+qui fait de ma vie un survole.  
+Pas besoin de beaucoup de mots,  
+car ils m’apportent les plus jolis flots.  
+Sans me sentir à toi enchainée,  
+je te laisse sereinement partir un temps et aller.  
+Tes absences auront toujours un retour,  
+rien ne peut abaisser notre amour.  
+Tu m’as donné les recettes du paradis,  
+comme une étoile qui brille si fort dans mon cœur ravi.  
 
-Sylvain Meili (2020 : n°16)
+Sylvain Meili (2020 : n°16)  
 
-Divine Chine
+Divine Chine  
 
-Peuple de Chine,
-source de la beauté divine.
-Déployant son talent,
-qui est tellement grand.
-Chaque personne est une écaille du dragon,
-qui consolide l’unité de la nation.
-Ce pays antique,
-est sublimation esthétique.
-En regardant les plus belles montagnes du monde,
-le bonheur nous inonde.
-Les montagnes dansent et sautent dans les nuages, 
-et nous ravissent avec leurs temples qui subliment le paysage. 
-Ses toits arqués vers la lumière appellent à la sagesse du ciel,
-avec leurs courbes fières et fraternelles.
-Des plus beaux pics où les plus beaux arbres se balancent dans l’air,
-jusqu’aux rochers sculptés comme des fleurs de pierre.
-La grande muraille majestueuse,
-arpentant les pics traversant et les courbes nuageuses.
-Les pagodes à chaque étage, 
-sont comme un épisode des vertus du sage.
-Ses jardins ressemblent au paradis,
-enchantant notre cœur ébloui.
-Son Kung-fu est fort comme une montagne,
-avec son art légendaire, en splendeur il gagne.
-Sa gracieuse musique,
-prend des élans épiques.
-Ses costumes ancestraux sont élégance,
-et inspirent la romance.
-Que sa culture soit éternellement présence,
-pour dans l’infini beauté de la vie étaler sa magnificence.
+Peuple de Chine,  
+source de la beauté divine.  
+Déployant son talent,  
+qui est tellement grand.  
+Chaque personne est une écaille du dragon,  
+qui consolide l’unité de la nation.  
+Ce pays antique,  
+est sublimation esthétique.  
+En regardant les plus belles montagnes du monde,  
+le bonheur nous inonde.  
+Les montagnes dansent et sautent dans les nuages,  
+et nous ravissent avec leurs temples qui subliment le paysage.  
+Ses toits arqués vers la lumière appellent à la sagesse du ciel,  
+avec leurs courbes fières et fraternelles.  
+Des plus beaux pics où les plus beaux arbres se balancent dans l’air,  
+jusqu’aux rochers sculptés comme des fleurs de pierre.  
+La grande muraille majestueuse,  
+arpentant les pics traversant et les courbes nuageuses.  
+Les pagodes à chaque étage,  
+sont comme un épisode des vertus du sage.  
+Ses jardins ressemblent au paradis,  
+enchantant notre cœur ébloui.  
+Son Kung-fu est fort comme une montagne,  
+avec son art légendaire, en splendeur il gagne.  
+Sa gracieuse musique,  
+prend des élans épiques.  
+Ses costumes ancestraux sont élégance,  
+et inspirent la romance.  
+Que sa culture soit éternellement présence,  
+pour dans l’infini beauté de la vie étaler sa magnificence.  
 
-(Lignes 11 et 12 : ajout alternatif extrait du poème Divin Vietnam).
+(Lignes 11 et 12 : ajout alternatif extrait du poème Divin Vietnam).  
 
-Sylvain Meili (2020 : n°17)
+Sylvain Meili (2020 : n°17)  
 
-Le Kung-fu légendaire
+Le Kung-fu légendaire  
 
-Cet art légendaire nous entraîne au plus bel imaginaire.
-Au milieu des cinq éléments de la nature, trouver l’équilibre de dieu (la source).
-La voie du milieu, exercer autant sa gauche que sa droite et un ying yang centré pour trouver les bons choix.
-Des collines jusqu’aux montagnes boisées escarpées sont l’idéal pour s’unir à l’élévation de l’énergie et de la virtuosité de l’art martial de Chine.
+Cet art légendaire nous entraîne au plus bel imaginaire.  
+Au milieu des cinq éléments de la nature, trouver l’équilibre de dieu (la source).  
+La voie du milieu, exercer autant sa gauche que sa droite et un ying yang centré pour trouver les bons choix.  
+Des collines jusqu’aux montagnes boisées escarpées sont l’idéal pour s’unir à l’élévation de l’énergie et de la virtuosité de l’art martial de Chine.  
 
-La souplesse des plus belles postures en finesse.
-L’endurance aux éléments avec persévérance.
-La rapidité dans le vent transpercé.
-La force qui comme une montagne se renforce.
-La technique s’étalant dans des spectacles épiques.
-L’esthétisme donnant un idéalisme.
+La souplesse des plus belles postures en finesse.  
+L’endurance aux éléments avec persévérance.  
+La rapidité dans le vent transpercé.  
+La force qui comme une montagne se renforce.  
+La technique s’étalant dans des spectacles épiques.  
+L’esthétisme donnant un idéalisme.  
 
-Ses beaux costumes antiques font rayonner le Kung-fu d’étincelances, avec ses chorégraphies de combats, d’acrobaties, de postures et de sauts.
-Dragon, tigre ou autres styles inspirés d’animaux ou non s’échangent leurs habilités dans de belles démonstrations.
-Dix-huit armes classiques et multitudes d’autres maniées par d’extraordinaires combattants nous séduisent de leurs contres et attaques favorites.
-Le bâton est le début pour la maîtrise des armes, il se déploie dans le vent comme un seul ou double tourbillon.
-Épées, lances, nunchakus, tri-bâtons, chaînes, fouets, cordes et autres projectiles virevoltent dans toutes directions pour nous émerveiller. 
-Des musiques harmonieuses et héroïques assistent un cheminement d’hommes et de femmes athlétiques.
+Ses beaux costumes antiques font rayonner le Kung-fu d’étincelances, avec ses chorégraphies de combats, d’acrobaties, de postures et de sauts.  
+Dragon, tigre ou autres styles inspirés d’animaux ou non s’échangent leurs habilités dans de belles démonstrations.  
+Dix-huit armes classiques et multitudes d’autres maniées par d’extraordinaires combattants nous séduisent de leurs contres et attaques favorites.  
+Le bâton est le début pour la maîtrise des armes, il se déploie dans le vent comme un seul ou double tourbillon.  
+Épées, lances, nunchakus, tri-bâtons, chaînes, fouets, cordes et autres projectiles virevoltent dans toutes directions pour nous émerveiller.  
+Des musiques harmonieuses et héroïques assistent un cheminement d’hommes et de femmes athlétiques.  
 
-Une philosophie et un art par la maîtrise et la technique du corps et de l’esprit.
-Au paradis, le Kung-fu volant existe et peut être possible dans une dimension plus légère et d’autres pouvoirs sont acquis.
+Une philosophie et un art par la maîtrise et la technique du corps et de l’esprit.  
+Au paradis, le Kung-fu volant existe et peut être possible dans une dimension plus légère et d’autres pouvoirs sont acquis.  
  
-Sylvain Meili (2020 : n°18)
+Sylvain Meili (2020 : n°18)  
 
-Derniers proverbes français inédits
+Derniers proverbes français inédits  
 
 778
 Les plus belles chaussures universelles doivent être proches de la forme du pied avec le bout arrondi, l’épaisseur du dessous du pied peux voyant et sans talonnette, les trous des lacets pas trop rapprochés. Elles doivent se rapprocher de la beauté d’un visage idéal. 
