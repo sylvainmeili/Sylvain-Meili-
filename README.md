@@ -3165,159 +3165,158 @@ Sylvain Meili (2020 : n°18)
 
 Derniers proverbes français inédits  
 
-778
-Les plus belles chaussures universelles doivent être proches de la forme du pied avec le bout arrondi, l’épaisseur du dessous du pied peux voyant et sans talonnette, les trous des lacets pas trop rapprochés. Elles doivent se rapprocher de la beauté d’un visage idéal. 
-779
-Il y a deux formes de nez parfait, le nez droit et le nez courbé vers le ciel avec les angles arrondis.
-780
-Ne pas épargner son argent ou le dépenser dans des choses irrécupérables ou non fondamentales pour faire vivre une image sociale maintient une forme d’esclavage et de dépendance auto-imposé. Ce n’est pas la voie d’une dépense raisonnée, c’est la voie du moujonc. Quand on est en couple, garder chacun son compte en banque pour ne pas risquer d’être volé, avoir le compte vidé ou être pris au piège d’un dictateur.
-781
-Erreurs de jugement
+778  
+Les plus belles chaussures universelles doivent être proches de la forme du pied avec le bout arrondi, l’épaisseur du dessous du pied peux voyant et sans talonnette, les trous des lacets pas trop rapprochés. Elles doivent se rapprocher de la beauté d’un visage idéal.  
+779  
+Il y a deux formes de nez parfait, le nez droit et le nez courbé vers le ciel avec les angles arrondis.  
+780  
+Ne pas épargner son argent ou le dépenser dans des choses irrécupérables ou non fondamentales pour faire vivre une image sociale maintient une forme d’esclavage et de dépendance auto-imposé. Ce n’est pas la voie d’une dépense raisonnée, c’est la voie du moujonc. Quand on est en couple, garder chacun son compte en banque pour ne pas risquer d’être volé, avoir le compte vidé ou être pris au piège d’un dictateur.  
+781  
+Erreurs de jugement  
 Avant de dire que quelqu’un a un égo surdimensionné, vérifie si c’est vrai ce qu’il a dit ou si il s’est surestimé sinon tais-toi si tu n’a pas d’arguments.
-Le constat d’une qualité n’est pas un excés d’égo sauf si on le dit trop de fois dans un certain contexte. Cc’est plus souvent accepté de dire qu’une personne est la meilleure mais quand c’est pour soi, on en fait un problème, et toi je peux dire tu as un excés d’égo pour croire que c’est toi qui a raison en disant que le meilleur c’est cette personne si je suis ta logique programmée. Mon avis sur moi-même est aussi un avis et je reconnais les domaines ou je suis moins fort.
-Si l’on reste juste à constater que l’on est le meilleur ou parmi les meilleurs ou simplement l’égal dans certains domaines (ex : philosophie), certains font l’amalgame en nous traitant de mégalomane narcissique, soit on les dérange par notre talent ou soient ils nous croient plus cons qu’on ne l’est, ils ne sont pas devins et ça reste en vain. 
-Ils disent : si tu le dis, c’est que tu ne l’est pas ou que c’est le contraire : comme si c’était la phrase qui annulait toutes les choses intelligentes dites dans un livre ou avant (ridicule argument). Même si il y a des gens qui se trouvent les meilleurs et sont assez cons, cela ne veut pas dire que c’est tout le monde pareil, il y a parfois des cas où ce sont vraiment les meilleurs.
-Il y’en a qui jugent avant de lire et n’ont pas d’arguments, prouvez que ces personnes sont meilleurs que moi au lieu de me rabaisser. 
-Il se permet de dire que lui est meilleur que moi, mais moi je n’ai pas le droit de dire que je suis meilleur que celui qu’il désigne, alors que j’ai plus d’arguments, il fait le même genre de phrase que moi mais rejette la faute sur moi. 0 humilité, toi aussi, tu crois que t’as raison, je te renvoie l’accusation. Il me rabaisse par rapport à un individu, moi aussi j’ai le droit de dire que je suis meilleur. Meilleur en romanesque ne veut pas dire meilleur en philosophie, non mais il a l’air de croîre que je dois mettre de la poésie et des métaphores quasi partout, je ne fais pas un roman, je préfère ma philosophie plutôt que celle de Nietzsche, j’ai le droit.
-Il n’aime pas qu’une personne qu’il trouve inférieure se considère au-dessus de lui le dramaturge. C’est lui qui fait beaucoup plus d’attaques négatives sur toi mais il se venge en faisant des pronostics négatifs sur ton futur (tu auras zéro impact sur la société, tu vas finir tout seul, sans amis : c’est pas encore le cas, 0 impact est manichéén, j’en ai déjà un peu et j’ai pas dit tout ce que j’ai fait), disant que tu lui a rien appris (ce qui est faux), en te rabaissant, en t’insultant d’autiste (vérifie la définition M. Moujonc, j’ai dragué une fois 23 asiatiques dehors dans la même journée) et de philosophe d’un gamin de 15 ans, (c’est pas bien de ci, de ça dans mon livre: il éxagère, 20 ans pour écrire mon livre, c’est plus que 15), il a mis 7/20 à mon 1er livre 383 proverbes français inédits (la plupart ont mis une bonne note), après 1121 proverbes il trouve ça fade, il me rajoute plus d’un an sur mon âge, il a peur et s’énerve plus que moi simplement parce que je me trouve meilleur, il critique surtout la forme, il croit que me sens faible et fais de la merde alors que je jense que je suis très fort, donc il fait des déductions fausses, que je ne suis pas assez ouvert d’esprit : plus que toi au vu de tous les sujets abordés dans mon livre). Au moins il trouve mes poèmes bons, certains trucs en philosophie intéressants, il m’encourage mais en disant des bêtises.
-Je ne vais pas changer les ¾ de mon livre pour lui plaire et rendre plus faux et moins conpréhensible tout ça pour faire beau.
+Le constat d’une qualité n’est pas un excès d’égo sauf si on le dit trop de fois dans un certain contexte. C’est plus souvent accepté de dire qu’une personne est la meilleure mais quand c’est pour soi, on en fait un problème, et toi je peux dire tu as un excès d’égo pour croire que c’est toi qui a raison en disant que le meilleur c’est cette personne si je suis ta logique programmée. Mon avis sur moi-même est aussi un avis et je reconnais les domaines ou je suis moins fort.  
+Si l’on reste juste à constater que l’on est le meilleur ou parmi les meilleurs ou simplement l’égal dans certains domaines (ex : philosophie), certains font l’amalgame en nous traitant de mégalomane narcissique, soit on les dérange par notre talent ou soient ils nous croient plus cons qu’on ne l’est, ils ne sont pas devins et ça reste en vain.  
+Ils disent : si tu le dis, c’est que tu ne l’est pas ou que c’est le contraire : comme si c’était la phrase qui annulait toutes les choses intelligentes dites dans un livre ou avant (ridicule argument). Même si il y a des gens qui se trouvent les meilleurs et sont assez cons, cela ne veut pas dire que c’est tout le monde pareil, il y a parfois des cas où ce sont vraiment les meilleurs.  
+Il y en a qui jugent avant de lire et n’ont pas d’arguments, prouvez que ces personnes sont meilleurs que moi au lieu de me rabaisser. 
+Il se permet de dire que lui est meilleur que moi, mais moi je n’ai pas le droit de dire que je suis meilleur que celui qu’il désigne, alors que j’ai plus d’arguments, il fait le même genre de phrase que moi mais rejette la faute sur moi. 0 humilité, toi aussi, tu crois que t’as raison, je te renvoie l’accusation. Il me rabaisse par rapport à un individu, moi aussi j’ai le droit de dire que je suis meilleur. Meilleur en romanesque ne veut pas dire meilleur en philosophie, non mais il a l’air de croire que je dois mettre de la poésie et des métaphores quasi partout, je ne fais pas un roman, je préfère ma philosophie plutôt que celle de Nietzsche, j’ai le droit.  
+Il n’aime pas qu’une personne qu’il trouve inférieure se considère au-dessus de lui le dramaturge. C’est lui qui fait beaucoup plus d’attaques négatives sur toi mais il se venge en faisant des pronostics négatifs sur ton futur (tu auras zéro impact sur la société, tu vas finir tout seul, sans amis : c’est pas encore le cas, 0 impact est manichéen, j’en ai déjà un peu et j’ai pas dit tout ce que j’ai fait), disant que tu lui a rien appris (ce qui est faux), en te rabaissant, en t’insultant d’autiste (vérifie la définition M. Moujonc, j’ai dragué une fois 23 asiatiques dehors dans la même journée) et de philosophe d’un gamin de 15 ans, (c’est pas bien de ci, de ça dans mon livre: il exagère, 20 ans pour écrire mon livre, c’est plus que 15), il a mis 7/20 à mon 1er livre 383 proverbes français inédits (la plupart ont mis une bonne note), après 1121 proverbes il trouve ça fade, il me rajoute plus d’un an sur mon âge, il a peur et s’énerve plus que moi simplement parce que je me trouve meilleur, il critique surtout la forme, il croit que me sens faible et fais de la merde alors que je pense que je suis très fort, donc il fait des déductions fausses, que je ne suis pas assez ouvert d’esprit : plus que toi au vu de tous les sujets abordés dans mon livre). Au moins il trouve mes poèmes bons, certains trucs en philosophie intéressants, il m’encourage mais en disant des bêtises.  
+Je ne vais pas changer les ¾ de mon livre pour lui plaire et rendre plus faux et moins compréhensible tout ça pour faire beau.  
 
-Ce qui est souligné est le type de comportement négligent des gens quant tu les contrarie, il faut vraiment résister à ce genre de personne.
-Pour que les gens soient plus juste à faire le constat d’un philosophe, j’ai inventé une méthode pour déterminer le meilleur philosophe, voir numéro 789, parce qu’ils manquent de compréhensions et de méthodes.
+Ce qui est souligné est le type de comportement négligent des gens quant tu les contrarie, il faut vraiment résister à ce genre de personne.  
+Pour que les gens soient plus juste à faire le constat d’un philosophe, j’ai inventé une méthode pour déterminer le meilleur philosophe, voir numéro 789, parce qu’ils manquent de compréhensions et de méthodes.  
 
-782
+782  
 Certains pays ont réalisé plus d’inventions que d’autres parce que les réincarnations de génies peuvent se faire connaître plus facilement à partir de ces pays.
-Dans les réincarnations, il est possible qu’un talent d’une autre vie soit bloqué pour qu’on fasse autre chose dans la prochaine vie.
-783
-Humain de base.
-La personne qui est dans la moyenne, banale, qui ne dépasse pas du troupeau, comme les autres, j’ai trouvé et inventer la dénomination d’humain de base.
-784
-Attention à ne pas mettre des vêtements trop serrant où cela fera apparaître des déformations, des creux ou des vergetures, cela peut aussi diminue l’énergie et favoriser les douleurs.
-785
-Mougeon/moujonc.
-Ceux qui suivent les autres du troupeau dans le bas niveau ou la médiocrité sont appelés les mougeons ou moujoncs (car ils font du brin, c’est en dessous du jonc et plus mou, donc au niveau de l’herbe, l’opposé du bambou qui est le maximum).
-Le moujonc suit de très près les autres, parfois à être trop collé dans une foule, cela fait des blessés ou des morts.
-(Moujonc est mon invention, mougeon existait déjà).
-786
-Préserver les races, c’est l’amour des différentes beautés égales dans le monde idéal (chacun ses goûts, on estimera toujours qu’il y’en a qui paraissent plus beaux que d’autres même au sein d’une race ou d’un type d’apparences).
-787
-Un peu de santé
-Sentir le vent à une température agréable est meilleur pour la santé qu’un air statique, il réduit l’humidité et donc les tensions et les nœuds musculaires. On peut utiliser un ventilateur.
-Les dents : mettre un composite blanc au creu des dents limite beaucoup la formation de caries.
-788
-Quand on achète une console de jeux vidéo ou peut-être d’autres choses, ne pas jeter la boîte mais les consciences de court terme n’ont pas conscience de l’utilité de la boite pour un futur rangement, un déménagement, un héritier ou une revente.
-789
-Déterminer le meilleur philosophe ou livre de philosophie
-Un riche vocabulaire plus ou moins rare et des phrases compliquées sont utilisés par certains et peuvent faire croire qu’ils sont les plus intelligents mais tendent à masquer sur certains préceptes qu’ils ne sont pas dans la vérité.
-Exemple : 1000 proverbes et réflexions.
-1er cas : phrases plus élaborées, compliquées (moins accessible aux très jeunes) et métaphores mais seulement 92% de vérités.
-2ème cas : plus de simplicités mais sujets plus diversifiés à 97 % de vérités.
-Le 2ème cas est meilleur pour faire évoluer mais si il dit certaines vérités difficiles à accepter pour l’époque ou l’individu, la lucidité du 2ème cas sera rabaissé par le mépris de ceux qui trouvent meilleur le 1er cas car il a trouvé plus de phrases complexes.
-Dans le pourcentage d’erreurs, on doit prendre aussi en compte que certaines peuvent être graves ou très aberrantes, par conséquent une très grosse erreur peut en valoir 2 plus petites.
-En plus du pourcentage d’erreurs, il doit être considéré leurs gravités.
-Le fond est plus important que la forme quand on sait dans l’histoire les idées suivis qui ont provoqué les pires horreurs. 
-Le fond, la forme, le pourcentage et la gravité des erreurs, ainsi que la diversité des sujets doivent être étudiés pour évaluer la qualité d’un philosophe, on peut ajouter la mise en scène artistique qui se chevauche notamment avec des poèmes philosophiques ou autres arts qui pourraient être empreints de philosophie.
+Dans les réincarnations, il est possible qu’un talent d’une autre vie soit bloqué pour qu’on fasse autre chose dans la prochaine vie.  
+783  
+Humain de base.  
+La personne qui est dans la moyenne, banale, qui ne dépasse pas du troupeau, comme les autres, j’ai trouvé et inventer la dénomination d’humain de base.  
+784  
+Attention à ne pas mettre des vêtements trop serrant où cela fera apparaître des déformations, des creux ou des vergetures, cela peut aussi diminue l’énergie et favoriser les douleurs.  
+785  
+Mougeon/moujonc.  
+Ceux qui suivent les autres du troupeau dans le bas niveau ou la médiocrité sont appelés les mougeons ou moujoncs (car ils font du brin, c’est en dessous du jonc et plus mou, donc au niveau de l’herbe, l’opposé du bambou qui est le maximum).  
+Le moujonc suit de très près les autres, parfois à être trop collé dans une foule, cela fait des blessés ou des morts.  
+(Moujonc est mon invention, mougeon existait déjà).  
+786  
+Préserver les races, c’est l’amour des différentes beautés égales dans le monde idéal (chacun ses goûts, on estimera toujours qu’il y en a qui paraissent plus beaux que d’autres même au sein d’une race ou d’un type d’apparences).  
+787  
+Un peu de santé  
+Sentir le vent à une température agréable est meilleur pour la santé qu’un air statique, il réduit l’humidité et donc les tensions et les nœuds musculaires. On peut utiliser un ventilateur.  
+Les dents : mettre un composite blanc au creux des dents limite beaucoup la formation de caries.  
+788  
+Quand on achète une console de jeux vidéo ou peut-être d’autres choses, ne pas jeter la boîte mais les consciences de court terme n’ont pas conscience de l’utilité de la boite pour un futur rangement, un déménagement, un héritier ou une revente.  
+789  
+Déterminer le meilleur philosophe ou livre de philosophie  
+Un riche vocabulaire plus ou moins rare et des phrases compliquées sont utilisés par certains et peuvent faire croire qu’ils sont les plus intelligents mais tendent à masquer sur certains préceptes qu’ils ne sont pas dans la vérité.  
+Exemple : 1000 proverbes et réflexions.  
+1er cas : phrases plus élaborées, compliquées (moins accessible aux très jeunes) et métaphores mais seulement 92% de vérités.  
+2ème cas : plus de simplicités mais sujets plus diversifiés à 97 % de vérités.  
+Le 2ème cas est meilleur pour faire évoluer mais si il dit certaines vérités difficiles à accepter pour l’époque ou l’individu, la lucidité du 2ème cas sera rabaissé par le mépris de ceux qui trouvent meilleur le 1er cas car il a trouvé plus de phrases complexes.  
+Dans le pourcentage d’erreurs, on doit prendre aussi en compte que certaines peuvent être graves ou très aberrantes, par conséquent une très grosse erreur peut en valoir 2 plus petites.  
+En plus du pourcentage d’erreurs, il doit être considéré leurs gravités.  
+Le fond est plus important que la forme quand on sait dans l’histoire les idées suivis qui ont provoqué les pires horreurs.  
+Le fond, la forme, le pourcentage et la gravité des erreurs, ainsi que la diversité des sujets doivent être étudiés pour évaluer la qualité d’un philosophe, on peut ajouter la mise en scène artistique qui se chevauche notamment avec des poèmes philosophiques ou autres arts qui pourraient être empreints de philosophie.  
+Le plus beau n’est pas celui qui a le plus joli costume mais le plus splendide corps, accompagné d’accessoires la sublimation en est magnifiée. (Réponse métaphorique pour créer le meilleur livre).  
+Le summum de l’union du corps, du costume et des accessoires aboutit à la quintessence de l’œuvre légendaire. (Si c’est possible).  
+Corps : vérité, costume : beauté, métaphore ou complexité des phrases, accessoires : toutes les inventions justifiées de différents arts pour soutenir toute l’œuvre.  
 
-Le plus beau n’est pas celui qui a le plus joli costume mais le plus splendide corps, accompagné d’accessoires la sublimation en est magnifiée. (Réponse métaphorique pour créer le meilleur livre).
-Le summum de l’union du corps, du costume et des accessoires aboutit à la quintessence de l’œuvre légendaire. (Si c’est possible).
-Corps : vérité, costume : beauté, métaphore ou complexité des phrases, accessoires : toutes les inventions justifiées de différents arts pour soutenir toute l’œuvre.
+Pour faire évoluer le plus rapidement, il faut être clair et ne pas parler trop longuement dans des phrases compliquées qui nous embrouillent et sont moins pertinentes.  
 
-Pour faire évoluer le plus rapidement, il faut être clair et ne pas parler trop longuement dans des phrases compliquées qui nous embrouillent et sont moins pertinentes.
-
-790
-Les différents classements de la philosophie
+790  
+Les différents classements de la philosophie  
 Le meilleur philosophe peut différer selon le point de vue d’approche systèmique de pensée. 
-Pour catégoriser le meilleur phiosophe, différents paramètres peuvent changer le classement.
-1. Le meilleur philosophe universel (le plus prés de la vérité sur le plus de sujets différents : 1 ou plusieurs livres)
-2. Le meilleure philosophe pour son œuvre (un livre : diversité des sujets, vérités, qualités (éloquence, poésies philosophiques et autres arts associés)
-3. Le meilleur philosophe toutes œuvres compilées d’une vie (quantité, qualité, vérités : plus subjective car pourcentages de vérités généralement un peu plus bas).
-4. Le meilleur philosophe sur 1 ou plusieurs sujets.
-Pour être dans les meilleurs philosophes au sens général selon moi.
-Il faut environ 1000 proverbes ou environ 1000 phrases plus ou moins développés.
-Les différents classements de la poésie
-Le meilleur poète.
-La meilleure œuvre de poésies.
-Le meilleur poème.
-Le meilleur poème sur un thème.
+Pour catégoriser le meilleur phiosophe, différents paramètres peuvent changer le classement.  
+1. Le meilleur philosophe universel (le plus prés de la vérité sur le plus de sujets différents : 1 ou plusieurs livres).  
+2. Le meilleure philosophe pour son œuvre (un livre : diversité des sujets, vérités, qualités (éloquence, poésies philosophiques et autres arts associés).  
+3. Le meilleur philosophe toutes œuvres compilées d’une vie (quantité, qualité, vérités : plus subjective car pourcentages de vérités généralement un peu plus bas).  
+4. Le meilleur philosophe sur 1 ou plusieurs sujets.  
+Pour être dans les meilleurs philosophes au sens général selon moi.  
+Il faut environ 1000 proverbes ou environ 1000 phrases plus ou moins développés.  
+Les différents classements de la poésie  
+Le meilleur poète.  
+La meilleure œuvre de poésies.  
+Le meilleur poème.  
+Le meilleur poème sur un thème.  
 
-Ne pas compter la notoriété ni l’impact historique pour déterminer le meilleur philosophe ou poète.
+Ne pas compter la notoriété ni l’impact historique pour déterminer le meilleur philosophe ou poète.  
 
-791
-Dormir sous un drap d’une couverture permet de laver plus facilement le drap que de dormir directement sous une énorme couette épaisse sans drap. 
-792
-Je n’accepte pas tout car je n’accepte pas que l’univers ne s’améliore pas de son injustice.
-793
-On ne doit pas obliger quiconque à vouvoyer une personne.
-Quand on s’adresse à une personne : c’est tu, pour plusieurs personnes : c’est vous, alors celui qui a inventé le vouvoiement pour parler à une personne qui a le statut de ne pas être assez proche ou de hiérarchie supérieur ou plus âgé aurait dû se taire car c’est une invention qui crée des embrouilles, on doit tous être égaux et ne pas faire de différence.
-794
-Il n’est pas bien de mettre des feuilles d’or mélangés à la nourriture, c’est gaspiller le métal le plus précieux, sinon sur toute la planète, cela commence à faire des kilos.
-795
-Celui qui a des douleurs et se plaint tout le temps devrait arrêter car il va crisper son visage et perdre de l’énergie, et sa mâchoire risque de faire contracter des douleurs dans tout le corps.
+791  
+Dormir sous un drap d’une couverture permet de laver plus facilement le drap que de dormir directement sous une énorme couette épaisse sans drap.   
+792  
+Je n’accepte pas tout car je n’accepte pas que l’univers ne s’améliore pas de son injustice.  
+793  
+On ne doit pas obliger quiconque à vouvoyer une personne.  
+Quand on s’adresse à une personne : c’est tu, pour plusieurs personnes : c’est vous, alors celui qui a inventé le vouvoiement pour parler à une personne qui a le statut de ne pas être assez proche ou de hiérarchie supérieur ou plus âgé aurait dû se taire car c’est une invention qui crée des embrouilles, on doit tous être égaux et ne pas faire de différence.  
+794  
+Il n’est pas bien de mettre des feuilles d’or mélangés à la nourriture, c’est gaspiller le métal le plus précieux, sinon sur toute la planète, cela commence à faire des kilos.  
+795  
+Celui qui a des douleurs et se plaint tout le temps devrait arrêter car il va crisper son visage et perdre de l’énergie, et sa mâchoire risque de faire contracter des douleurs dans tout le corps.  
 (Les gens qui pensent que les gens qui souffrent beaucoup physiquement sans que les douleurs soient visibles sont des menteurs sont des basses personnes).
-796
-Les relations peuvent mettre les plus mauvais au premier plan d’influence.
-797
-Celui qui stresse tes nerfs baisse ton énergie.
-798
-Maquillage
-Quand une miss beauté d’un pays sera élue sans maquillage, ça sera une beauté authentique qui aura le courage et la sagesse de montrer à toutes les autres qu’on est pas obligée d’être maquillée pour être la plus belle car le maquillage ne veut pas dire rendre plus belle et peut rendre aussi moins belle.
-C’est un peu comme un déguisement.
+796  
+Les relations peuvent mettre les plus mauvais au premier plan d’influence.  
+797  
+Celui qui stresse tes nerfs baisse ton énergie.  
+798  
+Maquillage  
+Quand une miss beauté d’un pays sera élue sans maquillage, ça sera une beauté authentique qui aura le courage et la sagesse de montrer à toutes les autres qu’on est pas obligée d’être maquillée pour être la plus belle car le maquillage ne veut pas dire rendre plus belle et peut rendre aussi moins belle.  
+C’est un peu comme un déguisement.  
 
-Les femmes programmées ne présentent pas une émission sans rouge à lèvres, comme si c’était interdit d’être naturel.
+Les femmes programmées ne présentent pas une émission sans rouge à lèvres, comme si c’était interdit d’être naturel.  
 
-Une femme parfaite qui met du maquillage ne peux faire que différent ou moins bien.
+Une femme parfaite qui met du maquillage ne peux faire que différent ou moins bien.  
 
-Le rouge à lèvre, c’est être moins jolie, le plus beau c’est d’être naturel, le maquillage peut cacher les défauts mais le rouge à lèvre c’est seulement changer la couleur.
-La couleur naturelle est la meilleure couleur.
-799
-Quand quelqu’un a l’intention de t’attaquer ou t’attaque, essayer de discuter, prévenir qu’on est gentil, cela peut éviter plus de mauvaises conséquences.
-800
-Les moujoncs laissent se coller leur chewing gum par terre, si seulement cette pâte à mâcher n’avait jamais été inventée.
-801
-Utiliser la logique plutôt que le pourcentage de gens d’accord.
-802
-A trop te soigner, tu t’affaiblis.
-803
-Le manipulateur parle d’un problème pour faire croire que le problème du même genre est mieux, même si les deux problèmes sont un piège, ils parlent du moins pire en faisant croire que c’est le pire pour nous faire croire que l’autre qui est le pire est mieux. 
-Le moujonc se dit : si cette solution paraît avoir bien moins de problème, je vais y aller, c’est une technique qu’utilise la propagande des dictateurs qui tiennent les médias.
-804
-La conscience sans possibilité de forme immédiate, c’est comme être à moitié vivant.
-805
-Un idiot très connu ou plus riche paraît plus légitime pour les faibles d’esprit qu’un intelligent peu connu.
-806
-Trop de gens beaux risquent d’engendrer une surpopulation s’ils ne sont pas assez sages. Il faut s’informer des impacts sur le monde avant de faire des enfants.
-807
-L’enfoiré pour ne pas dire qu’il a tort ment en espérant nous faire croire qu’il a rien fait de mal et reparle d’une bonne action qu’il nous a fait avant comme si ça lui donnait le droit de faire subir sa dictature ou le mal qu’il nous fait.
-808
-L’objectif est d’accéder au meilleur de l’univers éternellement.
-809
-Il n’y a pas de règle à être obliger de ne pas faire différemment et paraître bizarre quand on fait le bien.
-810
-Ne pas vouloir connaître quelqu’un parce qu’il s’y prend d’une manière différente en disant qu’on s’est pas vu ou qu’on se connaît pas est ridicule alors que ça pourrait être la meilleure personne de sa vie.
-811
-Le sage ne se lasse pas de la vie et des bonnes choses.
-812
-Pour décrisper un visage, écarter un peu sa bouche en allant un peu vers le bas, plus c’est fait longtemps, plus ça marche.
-813
-Il faut savoir où est le mauvais et le bon chemin pour prendre le bon chemin.
-814
-Jeter des choses et détérioration
-Des capricieux qui veulent changer la décoration en achetant une maison, un appartement ou changent d’avis polluent la planète en changeant le carrelage ou toute matière artificiel qui est balancé dans une décharge, qui n’est pas recycler ou qui finit dans la nature sauvage car quelqu’un ne veut pas payer la taxe de déchetterie ou par fainéantise.
-Tous les gens qui jettent des choses en bon état et sont détruites alors que cela fait partie du patrimoine, ou un meuble sculpté cassé à un endroit dont on peut récupérer une partie pour faire un autre, mais non ils sont pressés de se débarrasser.
-Les gens qui cassent des briques pour faire des arts martiaux sont des pollueurs et des gaspilleurs.
-Le pollueur renvoie ses cagettes vides en enroulant pleins de rouleaux de plastiques au lieu d’utiliser de la ficelle naturelle pour tout faire tenir, pareil pour d’autres choses, qu’ils arrêtent leurs méthodes polluantes pour faire tenir des paquets ensemble. 
-Maison abandonnée
-Une maison abandonnée dont le lierre va casser la vitre ou une maison déjà ouverte, entretenir la maison sans être propriétaire en attendant qu’un vrai propriétaire revienne est une bonne action contre la destruction du patrimoine, des meubles qui pourrissent donc dans le futur : plus d’arbres coupés faute d’avoir sauver ces meubles, plus la pollution.
-Se contenter d’entretenir sans rien changer de place, en laissant au maximum dans l’état d’avant.
-Ne pas taguer, c’est non respectueux et rajoute du travail de restauration et fait perdre plus d’argent, ce qui polluera plus la planète de ne pas envoyer son travail et son argent pour construire, aider ou sauvegarder plutôt que de réparer la bêtise des autres.
-Attention à faire ça discrètement pour éviter malentendu ou amalgame avec d’autres gens plus malveillants, ou trouver une manière plus sûre de prouver de ses bonnes intentions au cas où.
-Déchetterie
-Autoriser ceux qui travaillent dans les déchetteries à sauver un objet au lieu de sa destruction, il devra le signaler qu’il l’a prit genre autorisation de prendre pour soi un certain nombre d’objets par mois ou organisme agréé de sauvetage de vie supplémentaire.
-815
-Le point le plus haut n’est pas l’esprit seul, c’est l’esprit avec un maximum d’options.
-816
-On parle d un autre sujet et on nous répète pour nous programmer et pour éviter les sujets plus importants.
-817
+Le rouge à lèvre, c’est être moins jolie, le plus beau c’est d’être naturel, le maquillage peut cacher les défauts mais le rouge à lèvre c’est seulement changer la couleur.  
+La couleur naturelle est la meilleure couleur.  
+799  
+Quand quelqu’un a l’intention de t’attaquer ou t’attaque, essayer de discuter, prévenir qu’on est gentil, cela peut éviter plus de mauvaises conséquences.  
+800  
+Les moujoncs laissent se coller leur chewing gum par terre, si seulement cette pâte à mâcher n’avait jamais été inventée.  
+801  
+Utiliser la logique plutôt que le pourcentage de gens d’accord.  
+802  
+A trop te soigner, tu t’affaiblis.  
+803  
+Le manipulateur parle d’un problème pour faire croire que le problème du même genre est mieux, même si les deux problèmes sont un piège, ils parlent du moins pire en faisant croire que c’est le pire pour nous faire croire que l’autre qui est le pire est mieux.  
+Le moujonc se dit : si cette solution paraît avoir bien moins de problème, je vais y aller, c’est une technique qu’utilise la propagande des dictateurs qui tiennent les médias.  
+804  
+La conscience sans possibilité de forme immédiate, c’est comme être à moitié vivant.  
+805  
+Un idiot très connu ou plus riche paraît plus légitime pour les faibles d’esprit qu’un intelligent peu connu.  
+806  
+Trop de gens beaux risquent d’engendrer une surpopulation s’ils ne sont pas assez sages. Il faut s’informer des impacts sur le monde avant de faire des enfants.  
+807  
+L’enfoiré pour ne pas dire qu’il a tort ment en espérant nous faire croire qu’il a rien fait de mal et reparle d’une bonne action qu’il nous a fait avant comme si ça lui donnait le droit de faire subir sa dictature ou le mal qu’il nous fait.  
+808  
+L’objectif est d’accéder au meilleur de l’univers éternellement.  
+809  
+Il n’y a pas de règle à être obliger de ne pas faire différemment et paraître bizarre quand on fait le bien.  
+810  
+Ne pas vouloir connaître quelqu’un parce qu’il s’y prend d’une manière différente en disant qu’on s’est pas vu ou qu’on se connaît pas est ridicule alors que ça pourrait être la meilleure personne de sa vie.  
+811  
+Le sage ne se lasse pas de la vie et des bonnes choses.  
+812  
+Pour décrisper un visage, écarter un peu sa bouche en allant un peu vers le bas, plus c’est fait longtemps, plus ça marche.  
+813  
+Il faut savoir où est le mauvais et le bon chemin pour prendre le bon chemin.  
+814  
+Jeter des choses et détérioration  
+Des capricieux qui veulent changer la décoration en achetant une maison, un appartement ou changent d’avis polluent la planète en changeant le carrelage ou toute matière artificiel qui est balancé dans une décharge, qui n’est pas recycler ou qui finit dans la nature sauvage car quelqu’un ne veut pas payer la taxe de déchetterie ou par fainéantise.  
+Tous les gens qui jettent des choses en bon état et sont détruites alors que cela fait partie du patrimoine, ou un meuble sculpté cassé à un endroit dont on peut récupérer une partie pour faire un autre, mais non ils sont pressés de se débarrasser.  
+Les gens qui cassent des briques pour faire des arts martiaux sont des pollueurs et des gaspilleurs.  
+Le pollueur renvoie ses cagettes vides en enroulant pleins de rouleaux de plastiques au lieu d’utiliser de la ficelle naturelle pour tout faire tenir, pareil pour d’autres choses, qu’ils arrêtent leurs méthodes polluantes pour faire tenir des paquets ensemble.  
+Maison abandonnée  
+Une maison abandonnée dont le lierre va casser la vitre ou une maison déjà ouverte, entretenir la maison sans être propriétaire en attendant qu’un vrai propriétaire revienne est une bonne action contre la destruction du patrimoine, des meubles qui pourrissent donc dans le futur : plus d’arbres coupés faute d’avoir sauver ces meubles, plus la pollution.  
+Se contenter d’entretenir sans rien changer de place, en laissant au maximum dans l’état d’avant.  
+Ne pas taguer, c’est non respectueux et rajoute du travail de restauration et fait perdre plus d’argent, ce qui polluera plus la planète de ne pas envoyer son travail et son argent pour construire, aider ou sauvegarder plutôt que de réparer la bêtise des autres.  
+Attention à faire ça discrètement pour éviter malentendu ou amalgame avec d’autres gens plus malveillants, ou trouver une manière plus sûre de prouver de ses bonnes intentions au cas où.  
+Déchetterie  
+Autoriser ceux qui travaillent dans les déchetteries à sauver un objet au lieu de sa destruction, il devra le signaler qu’il l’a prit genre autorisation de prendre pour soi un certain nombre d’objets par mois ou organisme agréé de sauvetage de vie supplémentaire.  
+815  
+Le point le plus haut n’est pas l’esprit seul, c’est l’esprit avec un maximum d’options.  
+816  
+On parle d un autre sujet et on nous répète pour nous programmer et pour éviter les sujets plus importants.  
+817  
 Les proverbes nous font réfléchir et peuvent être plus ou moins des vérités ou non, logiques, poétiques, des jeux de mots, drôles, le tout, c’est de choisir les bons.
 818
 La perfection est de faire ce que l’on veut dans la forme que l’on veut sans souffrir et sans faire souffrir les autres.
