@@ -5861,1051 +5861,1052 @@ et le monde est jeu de séduction.
 
 Sylvain Meili (10 novembre 2025 : n°46)  
 
-9  poèmes codés
-sous chapitre : la dynastie Song
+9  poèmes codés  
+sous chapitre : la dynastie Song  
 
-47 : Le jardin impérial Genyue. (prose et 10 rimes suivie) 4+7=11, 238 (2 : couple de tout ce qui existe)
-48 : Education de la famille (anaphore) 4+8=12 (3), 172
-49 : Vacance des enfants à la fête des bateaux dragon (prose) 4+9=13 (4 : famille)
-50 : Rocher dragon et fleurs de pierres (rimes suivies) 5, 331
-51 : 18 sports et jeux chinois (double rime) 5+1=6 faces du jeu de dé. 18+269=287=17 divine chine=8
-52 : Divine chine impériale (rimes suivies) 5+2=7 (7 de divine chine) 63+39+88=190, 1+9=10
-53 : La forêt impériale des pics Song (rimes suivies) 5+3=8 forme de l’arbre et racines, 295
-54 : Empereur Huizong (acrostiche) 5+4=9 (empereur), 201
-55 : Double dragon (anaphore) 5+5=10 victoire en musique, 5 : les 2 dragons (femme et homme), 59+59=118=10
+47 : Le jardin impérial Genyue. (prose et 10 rimes suivie) 4+7=11, 238 (2 : couple de tout ce qui existe)  
+48 : Education de la famille (anaphore) 4+8=12 (3), 172  
+49 : Vacance des enfants à la fête des bateaux dragon (prose) 4+9=13 (4 : famille)  
+50 : Rocher dragon et fleurs de pierres (rimes suivies) 5, 331  
+51 : 18 sports et jeux chinois (double rime) 5+1=6 faces du jeu de dé. 18+269=287=17 divine chine=8  
+52 : Divine chine impériale (rimes suivies) 5+2=7 (7 de divine chine) 63+39+88=190, 1+9=10  
+53 : La forêt impériale des pics Song (rimes suivies) 5+3=8 forme de l’arbre et racines, 295  
+54 : Empereur Huizong (acrostiche) 5+4=9 (empereur), 201  
+55 : Double dragon (anaphore) 5+5=10 victoire en musique, 5 : les 2 dragons (femme et homme), 59+59=118=10  
 
-Le jardin impérial Genyue
+Le jardin impérial Genyue  
 
-Représenter le rêve : un aperçu du paradis, et les relier par la porte des deux mondes.
-Sous les 4 saisons tournoyantes de la nature, de la beauté des éléments de l’eau miroitante, la terre nourricière, des minéraux qui élèvent la montagne et la vie, les végétaux qui habillent le monde, les animaux qui nous accompagnent et des hommes et femmes qui sont les plus grands créateurs.
+Représenter le rêve : un aperçu du paradis, et les relier par la porte des deux mondes.  
+Sous les 4 saisons tournoyantes de la nature, de la beauté des éléments de l’eau miroitante, la terre nourricière, des minéraux qui élèvent la montagne et la vie, les végétaux qui habillent le monde, les animaux qui nous accompagnent et des hommes et femmes qui sont les plus grands créateurs.  
 
-Au nord est de la cité impériale de 2km2 est le songe idéalisé.
-Le tour extérieur est de plus de 3 km, environ 50 ha, plus long de 2 fois la largeur vers le nord.
-Le plus haut pic du grand envol Lifēng est surmonté d’un pavillon à 2 étages, octogonal au toit vert, colonnes rouges et rambardes en marbre blanc. 4 portes des 4 directions.
-108 pics qui sont comme des princesses admirées,
-et comme des princes pour les filles éblouies.
-Des milliers de pierres mystérieuses parsementent le parcours,
-à la complexité des formes les plus fantastiques. 
+Au nord est de la cité impériale de 2km2 est le songe idéalisé.  
+Le tour extérieur est de plus de 3 km, environ 50 ha, plus long de 2 fois la largeur vers le nord.  
+Le plus haut pic du grand envol Lifēng est surmonté d’un pavillon à 2 étages, octogonal au toit vert, colonnes rouges et rambardes en marbre blanc. 4 portes des 4 directions.  
+108 pics qui sont comme des princesses admirées,  
+et comme des princes pour les filles éblouies.  
+Des milliers de pierres mystérieuses parsementent le parcours,  
+à la complexité des formes les plus fantastiques.  
 
-Un sentier clair sculpté de pavés, avec des barrières et poteaux sensuels,
-accompagné de divers lanternes perchées et suspendues finit en pic sur le portique de l’entrée du ciel.
-L’empereur inventa les sacs à nuages en soie huilé d’eau,
-captés des montagnes avoisinantes pour être ramenés en cadeau. 
-Au jardin, au passage de l’empereur escorté par la sublime garde impériale et des demoiselles, la brume est lâchée,
-et le monde paraît démultiplié.
-En grimpant en haut du sommet, s’étale un monde dans les nuages,
-les oiseaux les traverse dans leurs jolis plumages.
-Le concert de l’empereur résonne et traverse les vapeurs flottantes, 
-les rochers surnaturels s’unissent dans leur corps d’alvéoles vibrantes.
-La vue plonge sur toute la ville, ses jardins, et étangs aux ponts perchés,
-ses murailles, ses pagodes et le grand temple impérial à double étage doré.
+Un sentier clair sculpté de pavés, avec des barrières et poteaux sensuels,  
+accompagné de divers lanternes perchées et suspendues finit en pic sur le portique de l’entrée du ciel.  
+L’empereur inventa les sacs à nuages en soie huilé d’eau,  
+captés des montagnes avoisinantes pour être ramenés en cadeau.  
+Au jardin, au passage de l’empereur escorté par la sublime garde impériale et des demoiselles, la brume est lâchée,  
+et le monde paraît démultiplié.  
+En grimpant en haut du sommet, s’étale un monde dans les nuages,  
+les oiseaux les traverse dans leurs jolis plumages.  
+Le concert de l’empereur résonne et traverse les vapeurs flottantes,  
+les rochers surnaturels s’unissent dans leur corps d’alvéoles vibrantes.  
+La vue plonge sur toute la ville, ses jardins, et étangs aux ponts perchés,  
+ses murailles, ses pagodes et le grand temple impérial à double étage doré.  
 
-Un martin pêcheur regarde la chute d’eau sur son perchoir de rocher dressé.
-Des chemins serpentent entre les étangs surmontés par des ponts arqués de pierres.
-Les rochers de fleurs de pierres sont au cheminement d’un musée vivant.
-Le rocher dragon en est le plus étincelant.
-Les nénuphars blancs sont le plongeoir des grenouilles vertes, certaines se cachent dans les roseaux.
-L’eau claire abrite de jolis poissons sur un monde de cailloux, gravières et montagnes aquatiques.
-Lors d’hivers très froids, la glace s’habille de bulles, de fils et disques de bulles formant parfois des nuages de milliers de perles d’eau, les fleurs de glaces qui poussent à partir des graines ailées tombés du charme sur le sommet sont comme les temples qui dépassent des nuages du monde aquatique.
-Des canards décorent la surface de l’eau.
-Double douceur avec un coin de mousses visité par un chat tigré au bord de l’eau.
-Les libellules sont la vitesse et les papillons la délicatesse.
+Un martin pêcheur regarde la chute d’eau sur son perchoir de rocher dressé.  
+Des chemins serpentent entre les étangs surmontés par des ponts arqués de pierres.  
+Les rochers de fleurs de pierres sont au cheminement d’un musée vivant.  
+Le rocher dragon en est le plus étincelant.  
+Les nénuphars blancs sont le plongeoir des grenouilles vertes, certaines se cachent dans les roseaux.  
+L’eau claire abrite de jolis poissons sur un monde de cailloux, gravières et montagnes aquatiques.  
+Lors d’hivers très froids, la glace s’habille de bulles, de fils et disques de bulles formant parfois des nuages de milliers de perles d’eau, les fleurs de glaces qui poussent à partir des graines ailées tombés du charme sur le sommet sont comme les temples qui dépassent des nuages du monde aquatique.  
+Des canards décorent la surface de l’eau.  
+Double douceur avec un coin de mousses visité par un chat tigré au bord de l’eau.  
+Les libellules sont la vitesse et les papillons la délicatesse.  
 
-Les fleurs convoitées font le miel des abeilles, ses formes et couleurs l’émerveillement de nos ballades entre l’onde et les arbres. 
+Les fleurs convoitées font le miel des abeilles, ses formes et couleurs l’émerveillement de nos ballades entre l’onde et les arbres.  
 
-Le saule étale ses cheveux devant le bambou et l’arbre tortillard.
-La glycine recouvre l’arche.
-Un chèvrefeuille est marié avec le prunier.
-Le lierre, les boules de gui dans les arbres et le houx de boules rouges, sont toujours verts en hiver pour nous réconforter.
-Un gros tronc mort reçoit dans un creux une plante fleurie.
-Un arbre multicentenaire est escaladé par un écureuil.
-Le cerisier rose explose sur le ciel bleu.
-La chouette d’un peuplier, curieuse d’un bruit se découvre à l’ancien gîte du pic.
-L’épicéa dragon qui caresse l’herbe reçoit la visite des enfants qui jouent au ballon.
-Des pins s’accrochent aux falaises et un se pose comme un bonsaï au bord de l’eau.
+Le saule étale ses cheveux devant le bambou et l’arbre tortillard.  
+La glycine recouvre l’arche.  
+Un chèvrefeuille est marié avec le prunier.  
+Le lierre, les boules de gui dans les arbres et le houx de boules rouges, sont toujours verts en hiver pour nous réconforter.  
+Un gros tronc mort reçoit dans un creux une plante fleurie.  
+Un arbre multicentenaire est escaladé par un écureuil.  
+Le cerisier rose explose sur le ciel bleu.  
+La chouette d’un peuplier, curieuse d’un bruit se découvre à l’ancien gîte du pic.  
+L’épicéa dragon qui caresse l’herbe reçoit la visite des enfants qui jouent au ballon.  
+Des pins s’accrochent aux falaises et un se pose comme un bonsaï au bord de l’eau.  
 
-Des grottes ornées de stalactites pour se rafraîchir.
-Un pavillon au bord de l’étang pour se détendre devant la vue sur l’île du petit Genyue.
-La vie défile au grès des saisons et des lumières, 
-dans d’incessantes nuances de couleurs et de sensations.
+Des grottes ornées de stalactites pour se rafraîchir.  
+Un pavillon au bord de l’étang pour se détendre devant la vue sur l’île du petit Genyue.  
+La vie défile au grès des saisons et des lumières,  
+dans d’incessantes nuances de couleurs et de sensations.  
 
-Genyue est le croisement des créatures et des dieux,
-au sein de l’ascension vers les immortels.
+Genyue est le croisement des créatures et des dieux,  
+au sein de l’ascension vers les immortels.  
 
-Sylvain Meili (12 novembre 2025 : n°47)
+Sylvain Meili (12 novembre 2025 : n°47)  
 
-Education de la famille
+Éducation de la famille  
 
-Mériter sa place, c’est faire honneur en contribuant assez au service national. 
-Que les rayons de tes actions établissent la roue de la clarté.
-Lire pour se cultiver de toutes les connaissances du monde.
-Que les idées soient sagesse et efficacité, les ailes radiantes de tes passages. 
-Essayer de nombreux sports et maintenir sa vivacité.
-Que l’amusement soit aussi force de vitalité comme une écume de perles.
-Edifier le bien-être des sens, des émotions étoilées.
-Que les arts et les beautés inspirent, vivent et soient le torrent d’argent qui polissent les bijoux de la vie.
+Mériter sa place, c’est faire honneur en contribuant assez au service national.  
+Que les rayons de tes actions établissent la roue de la clarté.  
+Lire pour se cultiver de toutes les connaissances du monde.  
+Que les idées soient sagesse et efficacité, les ailes radiantes de tes passages.  
+Essayer de nombreux sports et maintenir sa vivacité.  
+Que l’amusement soit aussi force de vitalité comme une écume de perles.  
+Édifier le bien-être des sens, des émotions étoilées.  
+Que les arts et les beautés inspirent, vivent et soient le torrent d’argent qui polissent les bijoux de la vie.  
 
-L’éventail de la vie s’ouvre et se referme, il rafraîchit des excès, 
+L’éventail de la vie s’ouvre et se referme, il rafraîchit des excès,  
 déploie ses talents et ses beautés, est une arme, une défense.  
 
-L’équilibre est la voie du juste cercle rayonnant de ses atouts.
+L’équilibre est la voie du juste cercle rayonnant de ses atouts.  
 
-Sylvain Meili (11 novembre 2025 : n°48)
+Sylvain Meili (11 novembre 2025 : n°48)  
 
-Vacance des enfants à la fête 
-des sports du lac Jinming
-(Inspiré de faits historiques autour de 1120) 
+Vacance des enfants à la fête  
+des sports du lac Jinming  
+(Inspiré de faits historiques autour de 1120)  
 
-L’aurore se lève sur les toits d’or du palais impérial,
-la grande fête de l’année va commencer, et être au meilleur de son énergie sera vital.
+L’aurore se lève sur les toits d’or du palais impérial,  
+la grande fête de l’année va commencer, et être au meilleur de son énergie sera vital.  
 
-Les enfants sont réveillés à l’aube à 5h30, 3 tintements de clochette en bronze par l’eunuque.
-Ouverture du rideau de soie « La fête des dragons commence »
-C’est l’heure de la toilette, eau tiède parfumée aux pétales de lotus dans un bassin de porcelaine ru.
-Bien coiffé, épingle en jade pour les garçons et fleurs de pivoine tissé en soie et jade pour les filles.
-Pour 6h, sur la table en bois de rose est servi 2 zongzi de riz salés de haricots rouges et jaune d’oeuf de cane enroulé en feuilles de roseau.
-1 bol de thé au chrysanthème dans une tasse en porcelaine ding.
-Pendant ce temps, le défilé militaire en musique a lieu au grand lac Jinming avec des danseurs en costumes d’animaux.
-A 6h45, dans la cour intérieure (Neiyuan), les garçons jouent à des jeux de société, échecs (xiàngqí) et  jeu de Go (Wéiqí), les filles se balancent sur une balançoire en bambou.
-A 6h45, 10 palanquins dorés à rideaux de gaze rouge avec 2 ou 3 enfants quittent la porte nord du palais.
-Les tambours des militaires retentissent au loin.
-De 7h à 8h30, démonstration de cavalerie et tir à l’arc à cheval, les eunuques et les filles du palais dansent avec un éventail.   
-A 8h30, tournoi de tir à l’arc sur la place des arcades, cible de 30cm de diamètre à 105 mètres : cœur 10 cm à 3 points, 20cm : 1pts.
-Le vainqueur reçoit par l’empereur 800 taels d’argent, une ceinture de jade et un grade militaire.
-Vers 10h, Huizong arrive au terrain de cuju (football) de Jinming chi en palanquin doré porté par 12 hommes, les enfants agitent les drapeaux rouges sous la musique de 20 tambours et de 10 flûtes.
-A 10h, tournoi de football, 16 équipes, les enfants parient des bonbons de riz. 
-Le 1er match d’ouverture, (Cuju : ballon de 27 cm environ) commence, équipe de 12 joueurs : impériale en rouge contre les eunuques en bleu, (le ballon en cuir est rempli de plumes de poules blanches).
-Les rouges mettent le but dans le cercle en l’air 3 fois contre 1 pour les bleus.
-Les vainqueurs reçoivent 100 à 200 taels d’argent et le capitaine 500 taels et une ceinture d’argent plaquée or.
+Les enfants sont réveillés à l’aube à 5h30, 3 tintements de clochette en bronze par l’eunuque.  
+Ouverture du rideau de soie « La fête des dragons commence »  
+C’est l’heure de la toilette, eau tiède parfumée aux pétales de lotus dans un bassin de porcelaine ru.  
+Bien coiffé, épingle en jade pour les garçons et fleurs de pivoine tissé en soie et jade pour les filles.  
+Pour 6h, sur la table en bois de rose est servi 2 zongzi de riz salés de haricots rouges et jaune d’oeuf de cane enroulé en feuilles de roseau.  
+1 bol de thé au chrysanthème dans une tasse en porcelaine ding.  
+Pendant ce temps, le défilé militaire en musique a lieu au grand lac Jinming avec des danseurs en costumes d’animaux.  
+A 6h45, dans la cour intérieure (Neiyuan), les garçons jouent à des jeux de société, échecs (xiàngqí) et  jeu de Go (Wéiqí), les filles se balancent sur une balançoire en bambou.  
+A 6h45, 10 palanquins dorés à rideaux de gaze rouge avec 2 ou 3 enfants quittent la porte nord du palais.  
+Les tambours des militaires retentissent au loin.  
+De 7h à 8h30, démonstration de cavalerie et tir à l’arc à cheval, les eunuques et les filles du palais dansent avec un éventail.    
+A 8h30, tournoi de tir à l’arc sur la place des arcades, cible de 30cm de diamètre à 105 mètres : cœur 10 cm à 3 points, 20cm : 1pts.  
+Le vainqueur reçoit par l’empereur 800 taels d’argent, une ceinture de jade et un grade militaire.  
+Vers 10h, Huizong arrive au terrain de cuju (football) de Jinming chi en palanquin doré porté par 12 hommes, les enfants agitent les drapeaux rouges sous la musique de 20 tambours et de 10 flûtes.  
+A 10h, tournoi de football, 16 équipes, les enfants parient des bonbons de riz.  
+Le 1er match d’ouverture, (Cuju : ballon de 27 cm environ) commence, équipe de 12 joueurs : impériale en rouge contre les eunuques en bleu, (le ballon en cuir est rempli de plumes de poules blanches).  
+Les rouges mettent le but dans le cercle en l’air 3 fois contre 1 pour les bleus.  
+Les vainqueurs reçoivent 100 à 200 taels d’argent et le capitaine 500 taels et une ceinture d’argent plaquée or.  
 
-1 heure de pause pour manger à 11h30, nouilles de longévité et canard laqué plus litchi. Grand spectacle de danse et de théâtre sur l’eau avec des barques décorées sur fond de musique.
+1 heure de pause pour manger à 11h30, nouilles de longévité et canard laqué plus litchi. Grand spectacle de danse et de théâtre sur l’eau avec des barques décorées sur fond de musique.  
 
-A 12h30, championnat de lutte professionnel, le gagnant reçoit 1000 taels d’argent, un cheval scellé avec harnais d’argent.
-A 14h30, devant des dizaines de milliers de spectateurs, grande course des 20 bateaux dragons de 20m de long avec environ 50 rameurs, le gong sonne pour 1 km de course. 3000 taels d’argents donnés au 1er équipage et 500 pour le batteur.
-Il s’ensuit la dance des radeaux fleuris de jeunes femmes.
-Ensuite à 15h30, les enfants vont au jardin Neiyuan, jouent au ballon, cache-cache, des filles cueillent des pivoines.
-Pendant ce temps se déroulent du polo à dos d’âne et de chameau puis des démonstrations d’armes et concours de force de lever de pierre jusqu’à 19h.
-A 16h30, ils vont à la salle de musique écouter le guzheng, ils chantent en cœur.
-Pour 17h15, à la cour des eunuques, ils reprennent du riz gluant, un lait de soja sucré.
-Pour 18 h, à la salle à manger : soupe de vermicelle au poulet, jujubes séchés.
+A 12h30, championnat de lutte professionnel, le gagnant reçoit 1000 taels d’argent, un cheval scellé avec harnais d’argent.  
+A 14h30, devant des dizaines de milliers de spectateurs, grande course des 20 bateaux dragons de 20m de long avec environ 50 rameurs, le gong sonne pour 1 km de course. 3000 taels d’argents donnés au 1er équipage et 500 pour le batteur.  
+Il s’ensuit la dance des radeaux fleuris de jeunes femmes.  
+Ensuite à 15h30, les enfants vont au jardin Neiyuan, jouent au ballon, cache-cache, des filles cueillent des pivoines.  
+Pendant ce temps se déroulent du polo à dos d’âne et de chameau puis des démonstrations d’armes et concours de force de lever de pierre jusqu’à 19h.  
+A 16h30, ils vont à la salle de musique écouter le guzheng, ils chantent en cœur.  
+Pour 17h15, à la cour des eunuques, ils reprennent du riz gluant, un lait de soja sucré.  
+Pour 18 h, à la salle à manger : soupe de vermicelle au poulet, jujubes séchés.  
 
-Il fait nuit à 19h, en soirée, les enfants lâchent des lanternes flottantes en forme de poissons, dragons et phénix, suivi d’une transition musicale de tambours et de flûtes.
+Il fait nuit à 19h, en soirée, les enfants lâchent des lanternes flottantes en forme de poissons, dragons et phénix, suivi d’une transition musicale de tambours et de flûtes.  
 Une demi-heure de feu d’artifice au-dessus de l’eau éclate en gerbes vertes et rouges, spirales dorées, pétales en papier enflammés, étoile filante.
-L’énorme bombe finale qui éclate en trois étages successifs : or → rouge → pluie de perles blanches.
+L’énorme bombe finale qui éclate en trois étages successifs : or → rouge → pluie de perles blanches.  
 
-Retour dans la chambre princière, l’histoire du dragon du lac Jinming est lue, la lanterne dragon allumée.
-Ensuite, ils sont couchés sous le rideau de soie.
+Retour dans la chambre princière, l’histoire du dragon du lac Jinming est lue, la lanterne dragon allumée.  
+Ensuite, ils sont couchés sous le rideau de soie.  
 
-La nuit s’est installée sous la lune, le Genyue veille,
-les aventures continuent dans les rêves du ciel.
+La nuit s’est installée sous la lune, le Genyue veille,  
+les aventures continuent dans les rêves du ciel.  
 
-Sylvain Meili (14 novembre 2025 : n°49)
+Sylvain Meili (14 novembre 2025 : n°49)  
 
-Rocher dragon et fleurs de pierres
+Rocher dragon et fleurs de pierres  
 
-Ils sont les bonsaïs de la roche.
+Ils sont les bonsaïs de la roche.  
 
-Des dentelles de pierres enchantant la balade,
-où l’eau se déverse en fastes cascades. 
-Les trous sont des œuvres qui nous comblent d’admiration,
-le mystère semble ne jamais être percé à ces champions.
-Les pierres sont des fleurs dont chaque trou est un pétale,
-ils semblent être plusieurs dimensions d’un monde abyssal.
-Le rocher dragon se dresse en beauté de mille vertus,
-un monde de paysages où chaque regard inspiré est bienvenu.
-Sous les rayons perçant du soleil,
-la lumière des cailloux joue un festival de merveilles.
+Des dentelles de pierres enchantant la balade,  
+où l’eau se déverse en fastes cascades.  
+Les trous sont des œuvres qui nous comblent d’admiration,  
+le mystère semble ne jamais être percé à ces champions.  
+Les pierres sont des fleurs dont chaque trou est un pétale,  
+ils semblent être plusieurs dimensions d’un monde abyssal.  
+Le rocher dragon se dresse en beauté de mille vertus,  
+un monde de paysages où chaque regard inspiré est bienvenu.  
+Sous les rayons perçant du soleil,  
+la lumière des cailloux joue un festival de merveilles.  
 
-Les pierres de fleurs racontent le long voyage de leur vie,
-où chaque bosse, trou et froissement sont une qualité.
-Le vent est une caresse et la roche chante.
+Les pierres de fleurs racontent le long voyage de leur vie,  
+où chaque bosse, trou et froissement sont une qualité.  
+Le vent est une caresse et la roche chante.  
 
-Sylvain Meili (11 novembre 2025 : n°50)
+Sylvain Meili (11 novembre 2025 : n°50)  
 
-18 jeux et sports chinois
+18 jeux et sports chinois  
 
-Le temps de commémoration des sports et des jeux est arrivé,
-Garder la voie de l’intuition et se relier au tout avec fermeté.
+Le temps de commémoration des sports et des jeux est arrivé,  
+Garder la voie de l’intuition et se relier au tout avec fermeté.  
 
-Commençons par des jeux de stratégie,
-pour inspirer le planning de la vie.
+Commençons par des jeux de stratégie,  
+pour inspirer le planning de la vie.  
 
-Le jeu de Go consiste à partir à l’assaut de son adversaire en gérant bien son plateau.
-Aux échecs, il faut savoir se mouiller pour bien finir au sec.
+Le jeu de Go consiste à partir à l’assaut de son adversaire en gérant bien son plateau.  
+Aux échecs, il faut savoir se mouiller pour bien finir au sec.  
 
-Passons à l’action,
-des plus belles passions.
+Passons à l’action,  
+des plus belles passions.  
 
-Au golf, sois toi-même le vent pour garder ta coiffe.
-Au polo à cheval, manie bien le bâton vers la balle dans le trou en conduisant comme un pro.
-A la lutte, n’agis pas seulement comme une brute, il faut que tu le scrute.
-A l’escalade, sois souple, fort et rapide, pas le temps de la balade ni d’une cascade, vas plus vite que si tu t’évades.
-Au lancé de pierres, il faut viser le piquet où l’animal en bois, soit tu gagnes, soit tu perds.
-Au lancé de flèches, 12 flèches en 3 ou 5 manches à environ 2m pour viser le col du vase en bronze, 1 à 3 points selon si tu fais au fond bonne pêche.
-Au lancer de lances dans l’entrainement militaire à pieds ou à cheval, 30 cm de cible en bois, sois fort et précis pour être dans le meilleur sens.
-Au tir à la corde, jusqu’à 100 à 1000 personnes dos à dos lors de grandes fêtes, après 3 manches gagnantes, on saura les gagnants de la bonne bande.
-A la course de bateaux dragon, des barques de 25 à 30m avec des dizaines de rameurs sur environ 1km, victoire à ceux qui auront le plus grand souffle et la plus grande force du dragon.
-Au tir à l’arc, à toi d’être le champion du grand parc.
-Au tir à l’arc à cheval, vise bien et ne tombe pas où tu vas finir sale.
-Au cerf-volant, de bambou en soie ou papier, le but compétitif est de rompre le fil de son adversaire, soit volant ou soit trébuchant.
-A la toupie, celui qui l’a fait tourner le plus longtemps gagne la partie.
-Au Kung-fu, ton corps est le meilleur joujou.
-Au jeu du volant, il suffit de jongler le plus de fois en étant agile et endurant.
-Au bowling, 15 quilles en carré avec des mots de vertus), si le compte y est, tu as fait un perfect bing.
+Au golf, sois toi-même le vent pour garder ta coiffe.  
+Au polo à cheval, manie bien le bâton vers la balle dans le trou en conduisant comme un pro.  
+A la lutte, n’agis pas seulement comme une brute, il faut que tu le scrute.  
+A l’escalade, sois souple, fort et rapide, pas le temps de la balade ni d’une cascade, vas plus vite que si tu t’évades.  
+Au lancé de pierres, il faut viser le piquet où l’animal en bois, soit tu gagnes, soit tu perds.  
+Au lancé de flèches, 12 flèches en 3 ou 5 manches à environ 2m pour viser le col du vase en bronze, 1 à 3 points selon si tu fais au fond bonne pêche.  
+Au lancer de lances dans l’entrainement militaire à pieds ou à cheval, 30 cm de cible en bois, sois fort et précis pour être dans le meilleur sens.  
+Au tir à la corde, jusqu’à 100 à 1000 personnes dos à dos lors de grandes fêtes, après 3 manches gagnantes, on saura les gagnants de la bonne bande.  
+A la course de bateaux dragon, des barques de 25 à 30m avec des dizaines de rameurs sur environ 1km, victoire à ceux qui auront le plus grand souffle et la plus grande force du dragon.  
+Au tir à l’arc, à toi d’être le champion du grand parc.  
+Au tir à l’arc à cheval, vise bien et ne tombe pas où tu vas finir sale.  
+Au cerf-volant, de bambou en soie ou papier, le but compétitif est de rompre le fil de son adversaire, soit volant ou soit trébuchant.  
+A la toupie, celui qui l’a fait tourner le plus longtemps gagne la partie.  
+Au Kung-fu, ton corps est le meilleur joujou.  
+Au jeu du volant, il suffit de jongler le plus de fois en étant agile et endurant.  
+Au bowling, 15 quilles en carré avec des mots de vertus), si le compte y est, tu as fait un perfect bing.  
 
-A la dynastie de la chanson,
-résonne la musique qui fait battre le son des sports dans les plus grands frissons.
+A la dynastie de la chanson,  
+résonne la musique qui fait battre le son des sports dans les plus grands frissons.  
 
-Sylvain Meili (12 novembre 2025 : n°51)
+Sylvain Meili (12 novembre 2025 : n°51)  
 
-Divine chine impériale
+Divine chine impériale  
 
-Peuple du milieu,
-où diversités émérites reflètent les cieux.
-Ses habiletés sont nombreuses,
-et ses œuvres fameuses.
-Tous une écaille du grand dragon sacré,
-comme chaque brique est la grande muraille adorée.
-Le Kung-fu se balance et saute comme des montagnes divines,
-dont la sagesse est le nuage de caresses sur les cimes.
-Les forêts de pics de Zhāngjiājiè,
-sont des échelons d’envolés.
-Les temples perchés avec leurs toits arqués,	
-semblent tenir leurs bras vers la complétude d’un monde idéalisé.
-Les pagodes sont l’échelle de l’ascension,
-dont chaque palier rapproche de la compréhension.
-Les cavernes, les plongeons lumineux de la voute céleste,
-des sanctuaires transpercés où les secrets immaculés se manifestent.
-Les plus beaux jardins sont un micro cosmos de la globalité,
-le rendez-vous résumé de toute la créativité.
-Des racines jusqu’aux nuages, 
-les rochers de fleurs de pierre sont le mariage.
-Les costumes divers du commun, princes ou guerriers,
-vont de l’élégance à la sophistication admirée.
-Du gong à la musique féérique,
-de l’éclat transcendantal à la mélodie épique.
-Le feu d’artifice clôt la représentation,
-dans les plus belles étincelles et éclairs de son.
+Peuple du milieu,  
+où diversités émérites reflètent les cieux.  
+Ses habiletés sont nombreuses,  
+et ses œuvres fameuses.  
+Tous une écaille du grand dragon sacré,  
+comme chaque brique est la grande muraille adorée.  
+Le Kung-fu se balance et saute comme des montagnes divines,  
+dont la sagesse est le nuage de caresses sur les cimes.  
+Les forêts de pics de Zhāngjiājiè,  
+sont des échelons d’envolés.  
+Les temples perchés avec leurs toits arqués,  
+semblent tenir leurs bras vers la complétude d’un monde idéalisé.  
+Les pagodes sont l’échelle de l’ascension,  
+dont chaque palier rapproche de la compréhension.  
+Les cavernes, les plongeons lumineux de la voute céleste,  
+des sanctuaires transpercés où les secrets immaculés se manifestent.  
+Les plus beaux jardins sont un micro cosmos de la globalité,  
+le rendez-vous résumé de toute la créativité.  
+Des racines jusqu’aux nuages,  
+les rochers de fleurs de pierre sont le mariage.  
+Les costumes divers du commun, princes ou guerriers,  
+vont de l’élégance à la sophistication admirée.  
+Du gong à la musique féérique,  
+de l’éclat transcendantal à la mélodie épique.  
+Le feu d’artifice clôt la représentation,  
+dans les plus belles étincelles et éclairs de son.  
 
-La Chine est le summum de l’inspiration,
-dans le paradis des beautés de la perfection.
+La Chine est le summum de l’inspiration,  
+dans le paradis des beautés de la perfection.  
 
-Sylvain Meili (12 novembre 2025 : n°52)
+Sylvain Meili (12 novembre 2025 : n°52)  
 
-La forêt impériale des pics Song
+La forêt impériale des pics Song  
 
-Première forêt sous le ciel,
-qui est sans pareil.
-Forêt des trois montagnes aux trois niveaux de pics,
-les unes derrière les autres forment une mosaïque.
-Les escaliers qui grimpent sont les colliers,
-dont les temples sont les bijoux ailés.
-Les pins dandinent sur les falaises aiguës,
-avec leurs branches, ils font la pause Kung-fu joliment tordue.
-Quand la brume inonde les pics par milliers,
-c’est l’illusion d’îles flottantes qui paraissent s’envoler.
-Saules pleureurs, bambou, et arbres centenaires,
-accompagnent les cascades d’eau claire.
-Les ponts arqués en pierre sont les demi-couronnes,
-qui à leurs vues apaisent les personnes.
-L’épicéa dragon au fond du milieu du pré, 
-est l’empereur à grimper de la vallée.
-Les centaines de grottes sont le paradis inversé,
-lac, cascades résonnantes, forêts de colonnes s'ouvrent à la grandeur de l’entrée ensoleillée.
-Le pavillon impérial du jardin d’été, est le grand frère du nénuphar blanc, 
-tel une grande fleur fraternelle au colori rayonnant.
+Première forêt sous le ciel,  
+qui est sans pareil.  
+Forêt des trois montagnes aux trois niveaux de pics,  
+les unes derrière les autres forment une mosaïque.  
+Les escaliers qui grimpent sont les colliers,  
+dont les temples sont les bijoux ailés.  
+Les pins dandinent sur les falaises aiguës,  
+avec leurs branches, ils font la pause Kung-fu joliment tordue.  
+Quand la brume inonde les pics par milliers,  
+c’est l’illusion d’îles flottantes qui paraissent s’envoler.  
+Saules pleureurs, bambou, et arbres centenaires,  
+accompagnent les cascades d’eau claire.  
+Les ponts arqués en pierre sont les demi-couronnes,  
+qui à leurs vues apaisent les personnes.  
+L’épicéa dragon au fond du milieu du pré,  
+est l’empereur à grimper de la vallée.  
+Les centaines de grottes sont le paradis inversé,  
+lac, cascades résonnantes, forêts de colonnes s'ouvrent à la grandeur de l’entrée ensoleillée.  
+Le pavillon impérial du jardin d’été, est le grand frère du nénuphar blanc,  
+tel une grande fleur fraternelle au colori rayonnant.  
 
-Sylvain Meili (12 novembre 2025 : n°53)
+Sylvain Meili (12 novembre 2025 : n°53)  
 
-Empereur Huizong (Song)
+Empereur Huizong (Song)  
 
-Harmoniser les vibrantes notes du monde.
-Unir les Cultures dans le partage mutuel.
-Illuminer les arts de la patrie jusqu’aux pics retenant des nuages de talent.
-Zénith des rêves accomplis par la persévérance.
-Organiser l’équilibre des richesses comme un nénuphar.
-Nourrir la sagesse, l’eau claire bousculée par le pain tombant est l’onde de choc inspiratrice, donner au poisson et récolter les décorations.
-Goûter le bonheur sans renier les problèmes.
+Harmoniser les vibrantes notes du monde.  
+Unir les Cultures dans le partage mutuel.  
+Illuminer les arts de la patrie jusqu’aux pics retenant des nuages de talent.  
+Zénith des rêves accomplis par la persévérance.  
+Organiser l’équilibre des richesses comme un nénuphar.  
+Nourrir la sagesse, l’eau claire bousculée par le pain tombant est l’onde de choc inspiratrice, donner au poisson et récolter les décorations.  
+Goûter le bonheur sans renier les problèmes.  
 
-Sylvain Meili (11 novembre 2025 : n°54)
+Sylvain Meili (11 novembre 2025 : n°54)  
 
-Double dragon
+Double dragon  
 
-Une journée au jardin des arts.
+Une journée au jardin des arts.  
 
-5 princesses pour 5 arts.
-La première est la poétesse, elle écrit un poème d’idoles du jour à l’encrier en jade.
-La seconde joue du guzheng de ses doigtés féériques.
-La troisième chante et fait frissonner la cascade.
-La quatrième danse et le vent s’incline en admiration.
-La cinquième dessine la mémoire des cœurs heureux.
+5 princesses pour 5 arts.  
+La première est la poétesse, elle écrit un poème d’idoles du jour à l’encrier en jade.  
+La seconde joue du guzheng de ses doigtés féériques.  
+La troisième chante et fait frissonner la cascade.  
+La quatrième danse et le vent s’incline en admiration.  
+La cinquième dessine la mémoire des cœurs heureux.  
 
-A la fin de la musique, la première dévoile son nouveau poème.
-Le rocher dragon parait sourire, mais ce n’est qu’un rayon qui passe à travers ses écailles.
+A la fin de la musique, la première dévoile son nouveau poème.  
+Le rocher dragon parait sourire, mais ce n’est qu’un rayon qui passe à travers ses écailles.  
 
-La vie est célébrée dans tous ses arts,
-et le jardin vibre à l’unisson.
+La vie est célébrée dans tous ses arts,  
+et le jardin vibre à l’unisson.  
 
-Sylvain Meili (13 novembre 2025, n°55)
+Sylvain Meili (13 novembre 2025, n°55)  
 
-Le bien et le mal
+Le bien et le mal  
 
-Je suis.
-Beauté.
-Vitalité.
-L’amour.
-Se grandir.
-Compassion.
-Nous enrichir.
-Vie de bien-être.
-Fréquence harmonique.
-Un monde d’abondance de diversité.
+Je suis.  
+Beauté.  
+Vitalité.  
+L’amour.  
+Se grandir.  
+Compassion.  
+Nous enrichir.  
+Vie de bien-être.  
+Fréquence harmonique.  
+Un monde d’abondance de diversité.  
 
-Un monde pauvre de monotonie.
-Fréquence disharmonique.
-Vie de souffrance.
-Tu m’appartiens.
-L’indifférence.
-Les manipuler.
-Semer la peur.
-La maladie.
-La laideur.
-Te saisir.
+Un monde pauvre de monotonie.  
+Fréquence disharmonique.  
+Vie de souffrance.  
+Tu m’appartiens.  
+L’indifférence.  
+Les manipuler.  
+Semer la peur.  
+La maladie.  
+La laideur.  
+Te saisir.  
 
-Sylvain Meili (27/02/2026, n°56)
-Invention de : La poésie montagne avec ses versants.
+Sylvain Meili (27/02/2026, n°56)  
+Invention de : La poésie montagne avec ses versants.  
 
-Versant plus proportionnel et plus haut du côté du bien que du côté du mal.
+Versant plus proportionnel et plus haut du côté du bien que du côté du mal.  
 
-Le temps
+Le temps  
 
-Le temps.
-Il passe au présent.
-Il s’inscrit dans l’espace.
+Le temps.  
+Il passe au présent.  
+Il s’inscrit dans l’espace.  
 
-Le passé est une richesse.
-Le présent est l’inconstance.
-Le futur est une probabilité instable.
+Le passé est une richesse.  
+Le présent est l’inconstance.  
+Le futur est une probabilité instable.  
 
-Je ne veux pas oublier les belles choses.
+Je ne veux pas oublier les belles choses.  
 
-Je veux garder les meilleures richesses.
-Je souhaite retrouver mes chemins.
-Améliorer les créations.
+Je veux garder les meilleures richesses.  
+Je souhaite retrouver mes chemins.  
+Améliorer les créations.  
 
-Nous enrichir tous.
-Recommençons.
-Reviens.
+Nous enrichir tous.  
+Recommençons.  
+Reviens.  
 
-Sylvain Meili (27/02/2026, n°57)
+Sylvain Meili (27/02/2026, n°57)  
 
-La vie
+La vie  
 
-La vie.
-elle grandit.
-Elle s’embellit.
+La vie.  
+elle grandit.  
+Elle s’embellit.  
 
-Transmuter les chutes.
+Transmuter les chutes.  
 
-Elever la conscience bonifiée.
-L’éclosion des pétales de pensées.
-Déployer les flopées de la créativité.
+Élever la conscience bonifiée.  
+L’éclosion des pétales de pensées.  
+Déployer les flopées de la créativité.  
 
-L’axe de la voie d’harmonie du milieu.
+L’axe de la voie d’harmonie du milieu.  
 
-La reliance des bonheurs qui sont partagés.
-L’écho des cœurs qui s’inspirent dans la grandiose diversité.
-La vastitude des éblouissantes animations allument l’universalité.
+La reliance des bonheurs qui sont partagés.  
+L’écho des cœurs qui s’inspirent dans la grandiose diversité.  
+La vastitude des éblouissantes animations allument l’universalité.  
 
-Sylvain Meili (20/02/2026, n°58)
+Sylvain Meili (20/02/2026, n°58)  
 
-Invention de : La triple rime de l’union (3, 1, 3, 1, 3) dans ce poème.
-Invention de : La poésie de l’ascension (forme croissante avec des phrases séparées de plus en plus longues).
+Invention de : La triple rime de l’union (3, 1, 3, 1, 3) dans ce poème.  
+Invention de : La poésie de l’ascension (forme croissante avec des phrases séparées de plus en plus longues).  
 
-Chemin métaphorique
+Chemin métaphorique  
 
-Ma réflexion est un ballon qui éclaire en haut d’une flèche.
+Ma réflexion est un ballon qui éclaire en haut d’une flèche.  
 
-Le scintillement absolu du transfuge est la révélation éclatante de l’exponentiel.
-La vague du décodeur transposé est l’illustre chemin de la force constructive.
-Le philosophe est l’éclatante jonction du syndrome de l’imperméable tempérament qui chante le chemin du visionnaire assuré.
+Le scintillement absolu du transfuge est la révélation éclatante de l’exponentiel.  
+La vague du décodeur transposé est l’illustre chemin de la force constructive.  
+Le philosophe est l’éclatante jonction du syndrome de l’imperméable tempérament qui chante le chemin du visionnaire assuré.  
 
-La tempête révélatrice sur le moujonc est la pluie froide dans son esprit de sac tendu.
-L’incompris est comme parler au chien dans l’infini aboiement, pour donner la lumière à l’absurde revenant dans son chenil de déduction. 
-Le trou dans le sol est le syncrétisme des idiots consentants. 
+La tempête révélatrice sur le moujonc est la pluie froide dans son esprit de sac tendu.  
+L’incompris est comme parler au chien dans l’infini aboiement, pour donner la lumière à l’absurde revenant dans son chenil de déduction.   
+Le trou dans le sol est le syncrétisme des idiots consentants.  
 
-Le grain est la fabuleuse flèche de l’invisible qui surplombe le chemin. 
-Le poster de l’indicible est le grand pourvoyeur du vide éclatant en vies.
+Le grain est la fabuleuse flèche de l’invisible qui surplombe le chemin.  
+Le poster de l’indicible est le grand pourvoyeur du vide éclatant en vies.  
 
-Le plus haut sage n’est pas savoir et voir tout du plus haut,
-c’est regarder la vie en ayant la meilleure réflexion.
+Le plus haut sage n’est pas savoir et voir tout du plus haut,  
+c’est regarder la vie en ayant la meilleure réflexion.  
  
-(On peut lui faire apprendre quelque chose à la source.)
+(On peut lui faire apprendre quelque chose à la source.)  
 
-Sylvain Meili (23/02/2026, n°59)
+Sylvain Meili (23/02/2026, n°59)  
 
-Toupie éternelle et Miss Gatling 
-(mon arme de pétales)
+Toupie éternelle et Miss Gatling  
+(mon arme de pétales)  
 
-La toupie éternelle des bâtons est mon radar élargi.
+La toupie éternelle des bâtons est mon radar élargi.  
 
-Alternés pour claquer toute la médiocrité, 
-et synchronisés pour harmoniser tes pensées.
-La course enclenchée, 
-et le voyage a commencé.
-Le tourni de la vie, 
-qui jamais ne finit.
+Alternés pour claquer toute la médiocrité,  
+et synchronisés pour harmoniser tes pensées.  
+La course enclenchée,  
+et le voyage a commencé.  
+Le tourni de la vie,  
+qui jamais ne finit.  
 
-Mille étincelles de clartés s’agitent en tourbillons magiques.
+Mille étincelles de clartés s’agitent en tourbillons magiques.  
 
-La gâchette de ma gatling n’est pas un déclencheur à gâcher, 
-mais à une pluie à transpercer les mauvaises pensées.
-1121 coups, 
-à orienter tes roues.
+La gâchette de ma gatling n’est pas un déclencheur à gâcher,  
+mais à une pluie à transpercer les mauvaises pensées.  
+1121 coups,  
+à orienter tes roues.  
 
-Elle nous gâte madame Ling.
-Ses 2 poings et ses 2 pieds,
-sont l’arsenal des 4 directions.
+Elle nous gâte madame Ling.  
+Ses 2 poings et ses 2 pieds,  
+sont l’arsenal des 4 directions.  
 
-Elle est le perce neige hivernal.
-qui transcende les beaux jours à venir de la douceur de ses pétales.
+Elle est le perce neige hivernal.  
+qui transcende les beaux jours à venir de la douceur de ses pétales.  
 
-Elancée est la poésie des 2 dragons.
+Élancée est la poésie des 2 dragons.  
 
-Sylvain Meili (07/02/2026, n°60)
+Sylvain Meili (07/02/2026, n°60)  
 
-7+2+2+2+6=19=10 : victoire
-18 lignes (poème Kung-fu)
+7+2+2+2+6=19=10 : victoire  
+18 lignes (poème Kung-fu)  
 
-Le bonsaï impérial
+Le bonsaï impérial  
 
-De l’audace naît l’exceptionnel condensé perfectionnisé de style.
+De l’audace naît l’exceptionnel condensé perfectionnisé de style.  
 
-L’émergence dans la douceur de la mousse de sérénité.
-Ses racines séduisantes parcourant sur la roche sa beauté déployée.
+L’émergence dans la douceur de la mousse de sérénité.  
+Ses racines séduisantes parcourant sur la roche sa beauté déployée.  
 
-Légèrement dévêtu dans les secrets du monde souterrain.
-Ses courbures sont la majesté du micro jardin.
-Il est le petit plein mignon de joie d’un monde enfantin.
+Légèrement dévêtu dans les secrets du monde souterrain.  
+Ses courbures sont la majesté du micro jardin.  
+Il est le petit plein mignon de joie d’un monde enfantin.  
 
-Ses tournures sont des idées manifestées.
-Sa patience est l’essor de ses plus belles portées.
+Ses tournures sont des idées manifestées.  
+Sa patience est l’essor de ses plus belles portées.  
 
-La constance de l’équilibre est la complétude de sa grâce aérienne.
+La constance de l’équilibre est la complétude de sa grâce aérienne.  
 
-La perfection de ses multitudes poses interconnectées,
-qui sont les inspirations se répondant de leurs valeurs feuillées.
+La perfection de ses multitudes poses interconnectées,  
+qui sont les inspirations se répondant de leurs valeurs feuillées.  
 
-Son monde au ralenti s’est nourri de la pluie.
-Le génie a sorti ses poésies enfouies,
-et ses ondes dansantes en l’air ont brillamment jailli.
+Son monde au ralenti s’est nourri de la pluie.  
+Le génie a sorti ses poésies enfouies,  
+et ses ondes dansantes en l’air ont brillamment jailli.  
 
-Habillé de ses plus beaux parements sacrés,
-laissant entrevoir à l’hiver certains mystères dénudés.
+Habillé de ses plus beaux parements sacrés,  
+laissant entrevoir à l’hiver certains mystères dénudés.  
 
-Toujours une nuance de révélations pour entrenir l’émerveillement de la vie.
+Toujours une nuance de révélations pour entretenir l’émerveillement de la vie.  
 
-Sylvain Meili (25/02/2026, n°61)
+Sylvain Meili (25/02/2026, n°61)  
 
-Invention de : La rime de la vie (1, 2, 3, 2, 1, 2, 3, 2, 1).
+Invention de : La rime de la vie (1, 2, 3, 2, 1, 2, 3, 2, 1).  
 
-Spéciale chanson
+Spéciale chanson  
 
-L’intuition est au-dessus du lit,
-prêt à réaliser tous les désirs.
-Le chemin qui s’inspire du génie,
-danse dans la vie des plaisirs.
+L’intuition est au-dessus du lit,  
+prêt à réaliser tous les désirs.  
+Le chemin qui s’inspire du génie,  
+danse dans la vie des plaisirs.  
 
-Ajouter des nuances et contempler,
-la symphonie vient nous éclairer.
+Ajouter des nuances et contempler,  
+la symphonie vient nous éclairer.  
 
-Savourer tous les talents des esprits,
-pour saisir le sommet du bonheur.
-Traverser les histoires de l’infini,
-pour s’élever dans la grandeur.
+Savourer tous les talents des esprits,  
+pour saisir le sommet du bonheur.  
+Traverser les histoires de l’infini,  
+pour s’élever dans la grandeur.  
 
-Le monde est en place,
-touché par la grâce.
+Le monde est en place,  
+touché par la grâce.  
 
-La roue du destin des couleurs illuminées,
-est le partage des meilleures beautés.
+La roue du destin des couleurs illuminées,  
+est le partage des meilleures beautés.  
 
-Sylvain Meili (02/02/2026, n°62)
+Sylvain Meili (02/02/2026, n°62)  
 
-2+2+2+2+6=14 comme les 14 lignes.
-Mélange de rimes suivies et croisées.
+2+2+2+2+6=14 comme les 14 lignes.  
+Mélange de rimes suivies et croisées.  
 
-La patineuse artistique
+La patineuse artistique  
 
-La glace cristalline vibre à l’arrivée de la danseuse fleurie.
+La glace cristalline vibre à l’arrivée de la danseuse fleurie.  
 
-Sous l’éclat sensuel de son envoûtante tenue,
-le défilé des courbes vibrantes est tant attendu.
-La sublime est prête à l’éclosion de ses nobles attributs.
+Sous l’éclat sensuel de son envoûtante tenue,  
+le défilé des courbes vibrantes est tant attendu.  
+La sublime est prête à l’éclosion de ses nobles attributs.  
 
-La pose statuaire se fige avant la parade en symphonie.
+La pose statuaire se fige avant la parade en symphonie.  
 
 La beauté s’élance et la musique nous emporte pour briller.  
-La fleur métamorphe glisse et déploie ses foulées. 
-La toupie vole en triple axel suivi de deux autres envolées.
+La fleur métamorphe glisse et déploie ses foulées.  
+La toupie vole en triple axel suivi de deux autres envolées.  
 
-Les pas et les mains suivent le rythme des notes avec brio.
+Les pas et les mains suivent le rythme des notes avec brio.  
 
-De la délicatesse à la rapidité, de la glisse au tournoiement.
-Des cadencées diversifiées et des pivotés rayonnants.   
-L’imprévisible et les jolis déhanchés sont fascinants.
+De la délicatesse à la rapidité, de la glisse au tournoiement.  
+Des cadencées diversifiées et des pivotés rayonnants.  
+L’imprévisible et les jolis déhanchés sont fascinants.  
 
-Un passage romantique au plus près de la piste miroitante.
+Un passage romantique au plus près de la piste miroitante.  
 
-En glissade tournante sur ses deux genoux projetés.
-Dessinant de ses mains des figures dévouées.
-Comme l’illusion d’une arrivée vers son désiré avant de repartir onduler.
+En glissade tournante sur ses deux genoux projetés.  
+Dessinant de ses mains des figures dévouées.  
+Comme l’illusion d’une arrivée vers son désiré avant de repartir onduler.  
 
-Elle semble glisser en mode ralenti dans le suspense.
+Elle semble glisser en mode ralenti dans le suspense.  
 
-Des glissés apaisants et des pirouettes raffinées.
-Ses bras et jambes sont les pétales combinés.
-Le tourbillon survolté des apothéoses florales fuselées.
+Des glissés apaisants et des pirouettes raffinées.  
+Ses bras et jambes sont les pétales combinés.  
+Le tourbillon survolté des apothéoses florales fuselées.  
 
-Sa posture finale signe le zénith triomphal.
+Sa posture finale signe le zénith triomphal.  
 
-Sylvain Meili (21/02/2026, n°63)
+Sylvain Meili (21/02/2026, n°63)  
 
-Invention de la : Triple rime de l’union inversée 
-(1, 3, 1, 3, 1, 3, 1, 3, 1), 1 prose et 3 rimes suivies...
+Invention de la : Triple rime de l’union inversée  
+(1, 3, 1, 3, 1, 3, 1, 3, 1), 1 prose et 3 rimes suivies...  
 
-Descente en devinette
+Descente en devinette  
 
-Elle est parfois invisible et nous entoure presque partout.
-Elle est sans odeur propre mais peut s’en imprégner.
-Elle a un caractère qui peut être dur ou amical.
-Elle peut produire des jolis sons.
-Elle véhicule une histoire.
-Elle joue au poète.
-Elle se déguise.
-Elle persévère.
-Elle vibre.
-L’eau.
+Elle est parfois invisible et nous entoure presque partout.  
+Elle est sans odeur propre mais peut s’en imprégner.  
+Elle a un caractère qui peut être dur ou amical.  
+Elle peut produire des jolis sons.  
+Elle véhicule une histoire.  
+Elle joue au poète.  
+Elle se déguise.  
+Elle persévère.  
+Elle vibre.  
+L’eau.  
 
-Sylvain Meili (27/02/2026, n°64)
+Sylvain Meili (27/02/2026, n°64)  
 
-Invention de : La poésie de la descente.
+Invention de : La poésie de la descente.  
 
-La vallée qui joue
+La vallée qui joue  
 
-Le pic rocheux est le fier trophée dans son écrin de vedette.
-Le pin sylvestre fait un coucou à la vallée voisine.
-Le sentier dessine son histoire de promenades.
-La forêt est un cache-cache d’exploration.
-La dernière brume fait son au revoir.
-Le cerisier rose se dévoile.
-L’eau chantonne.
-Le caillou est poli.
-La berge est chatouilleuse.
-Le pré fleuri courtise les curieux.
-Les branches d’épicéa caressent la mousse.
-Le jardin envoie le coucou se poser sur le pin.
-La cascade taquineuse s’éclate en bulles de plaisir.
-La falaise salue le regard du pic en face qui domine.
+Le pic rocheux est le fier trophée dans son écrin de vedette.  
+Le pin sylvestre fait un coucou à la vallée voisine.  
+Le sentier dessine son histoire de promenades.  
+La forêt est un cache-cache d’exploration.  
+La dernière brume fait son au revoir.  
+Le cerisier rose se dévoile.  
+L’eau chantonne.  
+Le caillou est poli.  
+La berge est chatouilleuse.  
+Le pré fleuri courtise les curieux.  
+Les branches d’épicéa caressent la mousse.  
+Le jardin envoie le coucou se poser sur le pin.  
+La cascade taquineuse s’éclate en bulles de plaisir.  
+La falaise salue le regard du pic en face qui domine.  
 
-Sylvain Meili (27/02/2026, n°65)
+Sylvain Meili (27/02/2026, n°65)  
 
-Invention de : La poésie de la vallée.
+Invention de : La poésie de la vallée.  
 
-Le parc d’attraction
+Le parc d’attraction  
 
-Au matin, la brume s’échappe avant3 la superbe aventure ensoleillée.
-Le grand parc parsemé de plans d’eau et de collines artificielles.
-Des jeux de simple détente, de l’amusant au plus frissonnant.
-Pouce-pièces, pince peluche, air hockey, salle d’arcade.
-Balançoire, tourniquet, toboggan, pyramide de cordes.
-Panier, lancer d’anneaux, tir à la carabine, fléchettes.
-Boule à coup de poing, tape marteau, boule à trous.
-Balle sur boîtes de conserves, autos-tamponneuses.
-Manège pour enfant en voiture ou avion.
-Des hautes balançoires tournoyantes.
-Le matin est pour les petits.
-Puis pause pour manger.
-Admirer les décors.
-Se régaler.
-Attention.	
-Se préparer.
-Après, le plus gros.
-Toboggan géant en piscine.
-Embarcation glissant dans l’eau.
-La toupie circulaire dans l’imposant vide.
-Le fulgurant saut vertical du haut puis du bas.
-Les tasses tournantes sur le plancher pivotant.
-L’impressionnante montagne russe extrême arrive.
-La fabuleuse montée tranquille offre une belle vue sur notre sort.
-Le vacarme sous les roues des rails impressionne la chute.
-Le looping nous suspend dans la volante frénésie.
-Une nouvelle montée vibrante express s’ensuit.
-La descente vertigineuse passe sous le tunnel.
-La peur exaltée de se taper dans le décor.
-Les tournants s’enchaînent fortement.
-Plus ou moins inclinés.
-Pour finir charmé.
-C’est l’arrivée.
-Une glace.
-La grande parade.
-Les héros défilent.
-De la réalité ou la fiction.
-Issus de films ou dessins-animés.
-Des danses et combats chorégraphiés.
-Sous les musiques, à pied ou avec chars.
-Et le dernier repas, un délicieux sandwich.
-La grande roue nous repose tranquillement.
-Devant le moment du merveilleux feu d’artifice final. 
-Le château féerique pointant ses abondantes tours dentelées.
-Entouré au milieu des miroitants étangs fleuris va s’illuminer.
-Fusées colorées, et dégradés d’explosions successives sont l’enchantement.
+Au matin, la brume s’échappe avant3 la superbe aventure ensoleillée.  
+Le grand parc parsemé de plans d’eau et de collines artificielles.  
+Des jeux de simple détente, de l’amusant au plus frissonnant.  
+Pouce-pièces, pince peluche, air hockey, salle d’arcade.  
+Balançoire, tourniquet, toboggan, pyramide de cordes.  
+Panier, lancer d’anneaux, tir à la carabine, fléchettes.  
+Boule à coup de poing, tape marteau, boule à trous.  
+Balle sur boîtes de conserves, autos-tamponneuses.  
+Manège pour enfant en voiture ou avion.  
+Des hautes balançoires tournoyantes.  
+Le matin est pour les petits.  
+Puis pause pour manger.  
+Admirer les décors.  
+Se régaler.  
+Attention.  
+Se préparer.  
+Après, le plus gros.  
+Toboggan géant en piscine.  
+Embarcation glissant dans l’eau.  
+La toupie circulaire dans l’imposant vide.  
+Le fulgurant saut vertical du haut puis du bas.  
+Les tasses tournantes sur le plancher pivotant.  
+L’impressionnante montagne russe extrême arrive.  
+La fabuleuse montée tranquille offre une belle vue sur notre sort.  
+Le vacarme sous les roues des rails impressionne la chute.  
+Le looping nous suspend dans la volante frénésie.  
+Une nouvelle montée vibrante express s’ensuit.  
+La descente vertigineuse passe sous le tunnel.  
+La peur exaltée de se taper dans le décor.  
+Les tournants s’enchaînent fortement.  
+Plus ou moins inclinés.  
+Pour finir charmé.  
+C’est l’arrivée.  
+Une glace.  
+La grande parade.  
+Les héros défilent.  
+De la réalité ou la fiction.  
+Issus de films ou dessins-animés.  
+Des danses et combats chorégraphiés.  
+Sous les musiques, à pied ou avec chars.  
+Et le dernier repas, un délicieux sandwich.  
+La grande roue nous repose tranquillement.  
+Devant le moment du merveilleux feu d’artifice final.  
+Le château féerique pointant ses abondantes tours dentelées.  
+Entouré au milieu des miroitants étangs fleuris va s’illuminer.  
+Fusées colorées, et dégradés d’explosions successives sont l’enchantement.  
 
-Sylvain Meili (16/03/2026, n°66). Invention de : La poésie en W.
+Sylvain Meili (16/03/2026, n°66). Invention de : La poésie en W.  
 
-L’union mutuelle
+L’union mutuelle  
 
-Un Prince.
-Aux idéaux.
-Le génie façonne.
-Le Kung-fu se déploie.
-Il court en toupie des bâtons. 
-L’artiste philosophe de poésies.
-Pour bâtir le jardin des symphonies.
-Les coins de mystères sentiers frissonnent.
-Sa quête visionnaire est l’audace plénitude.
-Le tout chat toupie enjoliveur des beautés universelles.
-Sa poésie artistique atteint les patins qui tracent son futur.
-La surprise arrive sous forme poétique de sa triple rime.
-Sa concentration d’admiration est décuplée.
-Les secrets sont un musée pour s’amuser.
-La rencontre de la belle est un succès.
-Les bâtons dans les patins.
-A l’unisson.
-Les patins dans les bâtons.
-L’apothéose des arts s’unissent.
-Les passions sont de tous les sens.
-La réponse triomphale devient affinités. 
-Dans l’évidence de la complémentarité, elle lui écrit.
-Sa passion est totalement comblée en lisant la patineuse artistique.
-Sa complétude impériale de diversités dansantes.
-Ses habilitées magnétiques s’élancent.
-Ses mots sont des caresses de vers.
-Pour fêter ses victoires glacées. 
-La virtuose chante la beauté.
-De danse en envolées.
-La patineuse glisse.
-Le talent se trace.
-Plein d’idéales.
-Une princesse.
+Un Prince.  
+Aux idéaux.  
+Le génie façonne.  
+Le Kung-fu se déploie.  
+Il court en toupie des bâtons.  
+L’artiste philosophe de poésies.  
+Pour bâtir le jardin des symphonies.  
+Les coins de mystères sentiers frissonnent.  
+Sa quête visionnaire est l’audace plénitude.  
+Le tout chat toupie enjoliveur des beautés universelles.  
+Sa poésie artistique atteint les patins qui tracent son futur.  
+La surprise arrive sous forme poétique de sa triple rime.  
+Sa concentration d’admiration est décuplée.  
+Les secrets sont un musée pour s’amuser.  
+La rencontre de la belle est un succès.  
+Les bâtons dans les patins.  
+A l’unisson.  
+Les patins dans les bâtons.  
+L’apothéose des arts s’unissent.  
+Les passions sont de tous les sens.  
+La réponse triomphale devient affinités.  
+Dans l’évidence de la complémentarité, elle lui écrit.  
+Sa passion est totalement comblée en lisant la patineuse artistique.  
+Sa complétude impériale de diversités dansantes.  
+Ses habilitées magnétiques s’élancent.  
+Ses mots sont des caresses de vers.  
+Pour fêter ses victoires glacées.  
+La virtuose chante la beauté.  
+De danse en envolées.  
+La patineuse glisse.  
+Le talent se trace.  
+Plein d’idéales.  
+Une princesse.  
 
-Sylvain Meili (15/03/2026, n°67)
+Sylvain Meili (15/03/2026, n°67)  
 
-Invention de : La poésie en M.
+Invention de : La poésie en M.  
 
-L’arbre ancestral
+L’arbre ancestral  
 
-Une graine.
-Il se déploie.
-L’élan s’illumine.
-Face aux obstacles.
-Il résiste aux éléments.
-Il veut la première place.
-Grandir vite pour s’affirmer.
-Ne pas se faire prendre son espace vitale.
-Il sera soit très grand avec de nombreux compagnons.
-Ou il sera très imposant dans la vastitude de son feuillage. 
-Le temps coule jusqu’à son apogée de l’essor de sa grande vigueur.
-Il commence à ralentir mais sa vénérabilité s’accroit encore.
-Encore de plus en plus imposant, un pic vient l’habiter. 
-Une grotte se forme à l’entrée de ses racines.
-La chauve souris s’installe dessous.
-Il devient un village habité.
-Du minuscule à l’oiseau.
-Ses derniers instants.
-Il s’éteint.
-Il est encore dur.
-Plus d’animaux et de vies.
-Des mousses, champignons et insectes.
-De l’oiseau dans son nid ou l’écureuil et sa réserve.
-L’explosion de vies ira vers la miniaturisation invisible.
-Il est devenu le royaume des plus petits avant le retournement.
-Sa beauté restera encore un peu jusqu’à la toute dernière trace de vie.
+Une graine.  
+Il se déploie.  
+L’élan s’illumine.  
+Face aux obstacles.  
+Il résiste aux éléments.  
+Il veut la première place.  
+Grandir vite pour s’affirmer.  
+Ne pas se faire prendre son espace vitale.  
+Il sera soit très grand avec de nombreux compagnons.  
+Ou il sera très imposant dans la vastitude de son feuillage.   
+Le temps coule jusqu’à son apogée de l’essor de sa grande vigueur.  
+Il commence à ralentir mais sa vénérabilité s’accroit encore.  
+Encore de plus en plus imposant, un pic vient l’habiter.  
+Une grotte se forme à l’entrée de ses racines.  
+La chauve souris s’installe dessous.  
+Il devient un village habité.  
+Du minuscule à l’oiseau.  
+Ses derniers instants.  
+Il s’éteint.  
+Il est encore dur.  
+Plus d’animaux et de vies.  
+Des mousses, champignons et insectes.  
+De l’oiseau dans son nid ou l’écureuil et sa réserve.  
+L’explosion de vies ira vers la miniaturisation invisible.  
+Il est devenu le royaume des plus petits avant le retournement.  
+Sa beauté restera encore un peu jusqu’à la toute dernière trace de vie.  
 
-Sylvain Meili (29/03/2026, n°68)
+Sylvain Meili (29/03/2026, n°68)  
 
-Invention de : La poésie en N.
+Invention de : La poésie en N.  
 
-Du rêve à la contemplation.
+Du rêve à la contemplation.  
 
-Du haut rêve de mon épicéa, j’élabore l’axe du grand plan de ma vie.
-Chaque branche sera une œuvre en croissant d’épines serties.
-Chaque cône sera une personne nourrie pour s’élever.
-La cime est le summum des idées fières réalisées.
-Les premières branches s’ancrent au sol.
-Des optimiseurs de réalité d’écoles.
-Le tronc grandit dans le temps. 
-De plus en plus s’affinant.
-Vers la sage création.
-C’est l’attraction.
-Trouver.
-Pour combler.
-Aller au partage.
-Faire grandir les pages.
-Le but est de vous plaire.
-Idéalement avec ma complémentaire.
-A celle qui saura capter la sagesse de ma lueur.
-A deux la motivation se donne un sens supérieur.
-Pour qui est prête pour la vraie valeur des richesses.
-Pour se laisser devenir la splendeur éclairée d’une altesse.
-L’horizon s’efface dans la brume où surgit enfin la princesse dorée.
-Le grand dévoilement des secrets se découvre en sensualités. 
-L’efflorescence des jeux tournoient dans tous les sens.
-La vie s’exprime dans sa plus grande magnificence.
-Les arts s’emboîtent et se succèdent en harmonie.
-A la découverte désirée de nouvelles sorties.
-La superbe balade du jardin nous attire.
-Victoire d’une belle vue qui s’admire.
-La nature changeante s’agite.
-Dans nos yeux qui pépitent.
-Sur ces admirations.
-En contemplation.
+Du haut rêve de mon épicéa, j’élabore l’axe du grand plan de ma vie.  
+Chaque branche sera une œuvre en croissant d’épines serties.  
+Chaque cône sera une personne nourrie pour s’élever.  
+La cime est le summum des idées fières réalisées.  
+Les premières branches s’ancrent au sol.  
+Des optimiseurs de réalité d’écoles.  
+Le tronc grandit dans le temps.  
+De plus en plus s’affinant.  
+Vers la sage création.  
+C’est l’attraction.  
+Trouver.  
+Pour combler.  
+Aller au partage.  
+Faire grandir les pages.  
+Le but est de vous plaire.  
+Idéalement avec ma complémentaire.  
+A celle qui saura capter la sagesse de ma lueur.  
+A deux la motivation se donne un sens supérieur.  
+Pour qui est prête pour la vraie valeur des richesses.  
+Pour se laisser devenir la splendeur éclairée d’une altesse.  
+L’horizon s’efface dans la brume où surgit enfin la princesse dorée.  
+Le grand dévoilement des secrets se découvre en sensualités.  
+L’efflorescence des jeux tournoient dans tous les sens.  
+La vie s’exprime dans sa plus grande magnificence.  
+Les arts s’emboîtent et se succèdent en harmonie.  
+A la découverte désirée de nouvelles sorties.  
+La superbe balade du jardin nous attire.  
+Victoire d’une belle vue qui s’admire.  
+La nature changeante s’agite.  
+Dans nos yeux qui pépitent.  
+Sur ces admirations.  
+En contemplation.  
 
-Sylvain Meili (28/03/2026, n°69)
+Sylvain Meili (28/03/2026, n°69)  
 
-Invention de : La poésie en И inversée comme 6 et 9.
+Invention de : La poésie en И inversée comme 6 et 9.  
 
-Sylvain le sacré
+Sylvain le sacré  
 
-S’il vint vers toi, tu dois bien l’écouter.
-Si le vain chemin se dresse, apprends à le surmonter.
-Si le vin vient du raisin, préfère le fruit mûr pour ta santé.
-Si le vingt est une double victoire, laisse-toi le temps de le savourer.
-Scie le vingt, partage un 10 pour ta désirée.
-Si le vainqueur vous a appris, alors transmettez.
+S’il vint vers toi, tu dois bien l’écouter.  
+Si le vain chemin se dresse, apprends à le surmonter.  
+Si le vin vient du raisin, préfère le fruit mûr pour ta santé.  
+Si le vingt est une double victoire, laisse-toi le temps de le savourer.  
+Scie le vingt, partage un 10 pour ta désirée.  
+Si le vainqueur vous a appris, alors transmettez.  
 
-Sylvain Meili (04/05/2026, n°70)
+Sylvain Meili (04/05/2026, n°70)  
 
-4+5+2+2+6=19, 1+9=10 : victoire.
-Sylvain : sa prononciation est reprise pour faire d’autres mots, plus la rime continue en é.
-6 lignes du jeu de la vie : Ecouter, Surmonter, Mûrir, Gagner, Partager, Transmettre.
-Humour : E, S, M, G, P, T devient Essaime (S aime), j’ai pété l’ignorance.
+4+5+2+2+6=19, 1+9=10 : victoire.  
+Sylvain : sa prononciation est reprise pour faire d’autres mots, plus la rime continue en é.  
+6 lignes du jeu de la vie : Ecouter, Surmonter, Mûrir, Gagner, Partager, Transmettre.  
+Humour : E, S, M, G, P, T devient Essaime (S aime), j’ai pété l’ignorance.  
 
-Merveilleux bonheur
+Merveilleux bonheur  
 
-L’air est pur, le parfum du sakura flotte.
-Elles s’illuminent en volant, dansent dans le courant,
-festoient dans l’écume de la chute d’eau.
-Au milieu des belles pensées,
-mon cœur devient léger.
-L’appel des cœurs vers la symphonie de la vertu,
-pour avancer sur le chemin (piste) vers le sublime.
-Une plongée dans l’élégance et l’excellence.
-Ce monde éblouissant, 
-à la nature de légende. 
-Les passions sont dans tous les sens.
-L’éventail du cercle rayonnant.
-C’est la vague du bonheur,
-qui me traverse en étincelles.
-L’éclosion sacrée tourne.
+L’air est pur, le parfum du sakura flotte.  
+Elles s’illuminent en volant, dansent dans le courant,  
+festoient dans l’écume de la chute d’eau.  
+Au milieu des belles pensées,  
+mon cœur devient léger.  
+L’appel des cœurs vers la symphonie de la vertu,  
+pour avancer sur le chemin (piste) vers le sublime.  
+Une plongée dans l’élégance et l’excellence.  
+Ce monde éblouissant,  
+à la nature de légende.  
+Les passions sont dans tous les sens.  
+L’éventail du cercle rayonnant.  
+C’est la vague du bonheur,  
+qui me traverse en étincelles.  
+L’éclosion sacrée tourne.  
 
-C’est la beauté qui triomphe.
+C’est la beauté qui triomphe.  
 
-Sylvain Meili (30/03/2026, n°71)
-Poème abstrait pour évoquer le patinage, reprise des phrases des anciens poèmes + petits ajouts.
+Sylvain Meili (30/03/2026, n°71)  
+Poème abstrait pour évoquer le patinage, reprise des phrases des anciens poèmes + petits ajouts.  
 
-Le polymathe magique
+Le polymathe magique  
 
-Le courage du plus beau dévoué a la noblesse d’esprit pour l’aimer beaucoup.
-Jardin d’eau et de montagne sont le combiné qui fait inspirer.
-Parfait est au centre l’envie fleurie ornée d’un rayon épanoui.
-De la berge me reflète les mains du bouquet de l’union.
-La pose contemplative du duo sur le banc du lac.
-Vie émue d’artistes s’offrant le calme d’un goûter de délice.
-Créer dans le ciel comme des pensées d’un futur rêve de festivités.
-Une tenue raffinée de l’acrobate chantant et des danseuses admirées.
-Chanson épique projetée par le vaste talent composé de son ravissant prince.
+Le courage du plus beau dévoué a la noblesse d’esprit pour l’aimer beaucoup.  
+Jardin d’eau et de montagne sont le combiné qui fait inspirer.  
+Parfait est au centre l’envie fleurie ornée d’un rayon épanoui.  
+De la berge me reflète les mains du bouquet de l’union.  
+La pose contemplative du duo sur le banc du lac.  
+Vie émue d’artistes s’offrant le calme d’un goûter de délice.  
+Créer dans le ciel comme des pensées d’un futur rêve de festivités.  
+Une tenue raffinée de l’acrobate chantant et des danseuses admirées.  
+Chanson épique projetée par le vaste talent composé de son ravissant prince.  
 
-Sylvain Meili (11/05/2026, n°72)
-12 contraintes, 7 types différents dont 9 messages.
-1 : Forme en V : une vallée.
-2 : Rime embrassée (ligne 6, 7, 8, 9 : ce, és, ées, ce).
-3 : Prose (ligne 1 à 5).
-4 : Acrostiche de mots 
-Le jardin parfait de la vie, créer une chanson.
-5 : Téléstiche : Princesse.
-6 : Acrostiche initial : Première lettre (initial) d’un mot, lettres 
-Beau décor.
-7 : Acrostiche de rang variable, un mot de chaque ligne, phrases verticales.
-7 : La montagne fleurie me pose un rêve chantant épique. 
-8 : Courage et envie du duo s’offrant comme l’acrobate ravissant.
-9 : Contrainte : la reprise du même mot d’une ligne pour faire une phrase verticale est interdite.
+Sylvain Meili (11/05/2026, n°72)  
+12 contraintes, 7 types différents dont 9 messages.  
+1 : Forme en V : une vallée.  
+2 : Rime embrassée (ligne 6, 7, 8, 9 : ce, és, ées, ce).  
+3 : Prose (ligne 1 à 5).  
+4 : Acrostiche de mots  
+Le jardin parfait de la vie, créer une chanson.  
+5 : Téléstiche : Princesse.  
+6 : Acrostiche initial : Première lettre (initial) d’un mot, lettres  
+Beau décor.  
+7 : Acrostiche de rang variable, un mot de chaque ligne, phrases verticales.  
+7 : La montagne fleurie me pose un rêve chantant épique.  
+8 : Courage et envie du duo s’offrant comme l’acrobate ravissant.  
+9 : Contrainte : la reprise du même mot d’une ligne pour faire une phrase verticale est interdite.  
 
-La contrainte supprimée donne 4 phrases supplémentaires de bas en haut.
-9 : Son acrobate futur d’un duo reflète l’envie de l’aimer.
-10 : Par des pensées d’artistes, le bouquet fleuri fait beaucoup.
-11 : Le chantant rêve d’un lac reflète au jardin beau.
-12 : De tenue de délice la berge ornée de noblesse.
-Règles : 	
-Moins de 10 lignes, 9.
-468 lettres maximales autorisées, soit 52 lettres par ligne en moyenne, ici : 465, 61+49+51+43+38+48+54+57+64=465
-4+6+8=18, 1+8=9 : chiffre de l’empereur.
-Record du monde de complexité poétique
-Invention : Poème des 12 contraintes des 7 dragons d’or combinés : n°72. 
-7 types de contraintes sur 12 dont un dragon à 6 étoiles. 
-Les assonances internes (répétitions de s sons à la fin de plusieurs mots dans un vers) ne sont pas comptés avant car il y en a souvent naturellement en poésie, j’en ai mis exprès quelques unes, donc en les comptant :
-8 dragons d’or avec les assonances : avec deux sons é dans 5 lignes : 1, 2, 7,
-8, 9 et deux sons i dans la ligne 3, cela fait 2 dragons à 6 étoiles. 
-Invention : Les 18 contraintes des 8 dragons d’or combinés.
-Les acrostiches et le téléstiche créent la transmutation d’un nouveau poème ci-après.
+La contrainte supprimée donne 4 phrases supplémentaires de bas en haut.  
+9 : Son acrobate futur d’un duo reflète l’envie de l’aimer.  
+10 : Par des pensées d’artistes, le bouquet fleuri fait beaucoup.  
+11 : Le chantant rêve d’un lac reflète au jardin beau.  
+12 : De tenue de délice la berge ornée de noblesse.  
+Règles :  
+Moins de 10 lignes, 9.  
+468 lettres maximales autorisées, soit 52 lettres par ligne en moyenne, ici : 465, 61+49+51+43+38+48+54+57+64=465  
+4+6+8=18, 1+8=9 : chiffre de l’empereur.  
+Record du monde de complexité poétique.  
+Invention : Poème des 12 contraintes des 7 dragons d’or combinés : n°72.  
+7 types de contraintes sur 12 dont un dragon à 6 étoiles.  
+Les assonances internes (répétitions de s sons à la fin de plusieurs mots dans un vers) ne sont pas comptés avant car il y en a souvent naturellement en poésie, j’en ai mis exprès quelques unes, donc en les comptant :  
+8 dragons d’or avec les assonances : avec deux sons é dans 5 lignes : 1, 2, 7, 8, 9 et deux sons i dans la ligne 3, cela fait 2 dragons à 6 étoiles.  
+Invention : Les 18 contraintes des 8 dragons d’or combinés.  
+Les acrostiches et le téléstiche créent la transmutation d’un nouveau poème ci-après.  
 
-Beau décor
+Beau décor  
 
-Le jardin parfait de la vie, créer une chanson.
-De tenue de délice, la berge ornée de noblesse.
-Par des pensées d’artistes, le bouquet fleuri fait beaucoup.
-Son acrobate futur d’un duo reflète l’envie de l’aimer.
-Courage et envie du duo s’offrant comme l’acrobate ravissant.
-Le chantant rêve d’un lac reflète au jardin beau.
-La montagne fleurie me pose un rêve chantant épique.
-Princesse !
+Le jardin parfait de la vie, créer une chanson.  
+De tenue de délice, la berge ornée de noblesse.  
+Par des pensées d’artistes, le bouquet fleuri fait beaucoup.  
+Son acrobate futur d’un duo reflète l’envie de l’aimer.  
+Courage et envie du duo s’offrant comme l’acrobate ravissant.  
+Le chantant rêve d’un lac reflète au jardin beau.  
+La montagne fleurie me pose un rêve chantant épique.  
+Princesse !  
 
-Sylvain Meili (11/05/2026, n°72 bis)
+Sylvain Meili (11/05/2026, n°72 bis)  
 
-Le 72 bis est un sous-poème entier de plus issu du n°72 avec son nouveau titre.
-Record mondial de complexité poétique : n°72, 1 message par ligne, 18 contraintes dont 8 types des 8 dragons d’or combinés.
-9 lignes, moins de 468 lettres.
+Le 72 bis est un sous-poème entier de plus issu du n°72 avec son nouveau titre.  
+Record mondial de complexité poétique : n°72, 1 message par ligne, 18 contraintes dont 8 types des 8 dragons d’or combinés.  
+9 lignes, moins de 468 lettres.  
 
-Bonus
-Amalgam poétique
-Le polymathe magique : le mélange des lettres entre les deux mots forme amalgam (en anglais) poétique, 2 langues mélangées forment un amalgame. le Y a disparu pour l’ajout d’un A (Amour de la princesse : la magie a transformé le Y en A.
+Bonus  
+Amalgam poétique  
+Le polymathe magique : le mélange des lettres entre les deux mots forme amalgam (en anglais) poétique, 2 langues mélangées forment un amalgame. le Y a disparu pour l’ajout d’un A (Amour de la princesse : la magie a transformé le Y en A.  
 
-Faire un mot avec les doubles du second poème.
-Acrobate, Duo, Chantant, Reflète et Rêve sont en double plus les mots de liaison : le, de, un… En récupérant les mots de liaison du texte : Le duo de rêve reflète un acrobate chantant.
-Le duo de rêve, inspiré de l’homme et la femme, l’eau du lac et la montagne reflète la performance de l’acrobate chantant.
-Princesse ! annonce le prochain poème.
+Faire un mot avec les doubles du second poème.  
+Acrobate, Duo, Chantant, Reflète et Rêve sont en double plus les mots de liaison : le, de, un… En récupérant les mots de liaison du texte : Le duo de rêve reflète un acrobate chantant.  
+Le duo de rêve, inspiré de l’homme et la femme, l’eau du lac et la montagne reflète la performance de l’acrobate chantant.  
+Princesse ! annonce le prochain poème.  
 	
-L’origami de la patineuse
+L’origami de la patineuse  
 
-Pour s’élancer sur la piste, la jolie mélodie emporte le défilé de la pin-up.
-Gagner l’approbation des juges par la grandeur exécutée de l’opéra.
-Les figures s’envolent dans le costume immaculé du chant.
-Jeux de pas rapides et de pas lancés, tel est le défi.
-D’hivers est la célébration glacée dans l’élan.
-En place est l’audace délicate et légère du ninja.
-Glisse et tournoiement dans le vent magique de haut rang. 
-Danse du sakura aux ailes rêvantes de la belle prouesse élevée.
-Hautement est la première marche du triomphant gant du succès.
+Pour s’élancer sur la piste, la jolie mélodie emporte le défilé de la pin-up.  
+Gagner l’approbation des juges par la grandeur exécutée de l’opéra.  
+Les figures s’envolent dans le costume immaculé du chant.  
+Jeux de pas rapides et de pas lancés, tel est le défi.  
+D’hivers est la célébration glacée dans l’élan.  
+En place est l’audace délicate et légère du ninja.  
+Glisse et tournoiement dans le vent magique de haut rang.  
+Danse du sakura aux ailes rêvantes de la belle prouesse élevée.  
+Hautement est la première marche du triomphant gant du succès.  
 
-Sylvain Meili (10/05/2026, n°73)
+Sylvain Meili (10/05/2026, n°73)  
 
-7 contraintes, 5 types différents dont 5 messages.
-1 : Forme en V : phrases qui raccourcissent au centre.
-2 : Prose
-3 : Téléstiche : les dernières lettres forment un mot : patinages.
-4 : Acrostiche de mots : les premiers mots verticaux forment une phrase. 
-Pour gagner les jeux d’hivers en glisse, danse hautement.
-5 : Acrostiche de rang variable
-5 : La grandeur immaculée est la place magique du succès.
-6 : De l’approbation du défi d’hivers, l’audace glisse la première.
-7 : Sur des figures de célébration est le sakura triomphant.
+7 contraintes, 5 types différents dont 5 messages.  
+1 : Forme en V : phrases qui raccourcissent au centre.  
+2 : Prose  
+3 : Téléstiche : les dernières lettres forment un mot : patinages.  
+4 : Acrostiche de mots : les premiers mots verticaux forment une phrase.  
+Pour gagner les jeux d’hivers en glisse, danse hautement.  
+5 : Acrostiche de rang variable  
+5 : La grandeur immaculée est la place magique du succès.  
+6 : De l’approbation du défi d’hivers, l’audace glisse la première.  
+7 : Sur des figures de célébration est le sakura triomphant.  
 
-Contrainte : la reprise du même mot d’une ligne pour faire une phrase verticale est interdite, dans ce cas l’acrostiche 6 disparait, en supprimant la contrainte la phrase revient, avec ou sans contrainte, cela fait toujours 7 contraintes.
+Contrainte : la reprise du même mot d’une ligne pour faire une phrase verticale est interdite, dans ce cas l’acrostiche 6 disparait, en supprimant la contrainte la phrase revient, avec ou sans contrainte, cela fait toujours 7 contraintes.  
 
-Invention : Poème des 9 contraintes des 5 dragons d’or combinés : n°73. 
-5 types de contraintes sur 9 dont un dragon à 3 étoiles.
-Règles : 	
-Moins de 10 lignes, 9.
-468 lettres maximales autorisées, soit 52 lettres par ligne en moyenne, ici : 432.
-60+55+47+41+38+40+47+52+52=432.
-4+6+8=18, 1+8=9 : chiffre de l’empereur.
-Assonances internes non comptées.
-Sage ou passage
+Invention : Poème des 9 contraintes des 5 dragons d’or combinés : n°73.  
+5 types de contraintes sur 9 dont un dragon à 3 étoiles.  
+Règles :  
+Moins de 10 lignes, 9.  
+468 lettres maximales autorisées, soit 52 lettres par ligne en moyenne, ici : 432.  
+60+55+47+41+38+40+47+52+52=432.  
+4+6+8=18, 1+8=9 : chiffre de l’empereur.  
+Assonances internes non comptées.  
 
-20, 100 météores en jetant sa traînée sur tout un ciel décore rarement, j’ai envie, viens, le passage des files encensent unanimement, duo de sons errent, narre et te personnifie, on a ces tirs pour ces levées contrées concomitants, avec alléchance projeté sur monts et rêves ailés triomphent à l’ère dorée où lanternes à venir demeurent et délices se renforcent et encore sonner vers ces regards des mets pris, laisse ce pot à restes à Sylvain, pose et lit là, Rose.
+Sage ou passage  
 
-Vincent, mets tes oranges tant ça traîne, et surtout ainsi, elle décorera, remangez-en, Vivien le pas sage défile encens, une à Nîmes ment, du haut de son air n’arrête personne, ni Fiona s’étire pour s’élever contre et qu’on commit tant avait qu’aller chance se projeter, surmonter, révéler, trions, fallait redorer ou lent, terne avenir demeuré, délit se rend forcé en corps sonné, versé, regardé, mépris, l’espoir resta s’il vint poser un lilas rose.
+20, 100 météores en jetant sa traînée sur tout un ciel décore rarement, j’ai envie, viens, le passage des files encensent unanimement, duo de sons errent, narre et te personnifie, on a ces tirs pour ces levées contrées concomitants, avec alléchance projeté sur monts et rêves ailés triomphent à l’ère dorée où lanternes à venir demeurent et délices se renforcent et encore sonner vers ces regards des mets pris, laisse ce pot à restes à Sylvain, pose et lit là, Rose.  
 
-Sylvain Meili (17/05/2026, n°74)
+Vincent, mets tes oranges tant ça traîne, et surtout ainsi, elle décorera, remangez-en, Vivien le pas sage défile encens, une à Nîmes ment, du haut de son air n’arrête personne, ni Fiona s’étire pour s’élever contre et qu’on commit tant avait qu’aller chance se projeter, surmonter, révéler, trions, fallait redorer ou lent, terne avenir demeuré, délit se rend forcé en corps sonné, versé, regardé, mépris, l’espoir resta s’il vint poser un lilas rose.  
 
-Record du monde de longueur d’holorime narratif.
-Le pas (pied) sage ou le pas (pas être) sage : ça dépend des fois et du passage.
-Sage ou pas sage, la différence est le passage.
-17 : poème Divine Chine, 1+7+5+2+2+6=23 (23 poèmes sacrés), 2+3=5 : drgon.
-Le dragon chinois sacré. 
-Alphanumériques : 373+354=727, ou pour seulement les lettres : 730. 
-Alphanumériques : 727.
-Lettres : 730.
+Sylvain Meili (17/05/2026, n°74)  
 
-Les 12 devises de l’horloge philosophique des 75 poèmes
+Record du monde de longueur d’holorime narratif.  
+Le pas (pied) sage ou le pas (pas être) sage : ça dépend des fois et du passage.  
+Sage ou pas sage, la différence est le passage.  
+17 : poème Divine Chine, 1+7+5+2+2+6=23 (23 poèmes sacrés), 2+3=5 : dragon.  
+Le dragon chinois sacré.  
+Alphanumériques : 373+354=727, ou pour seulement les lettres : 730.  
+Alphanumériques : 727.  
+Lettres : 730.  
 
-12 ans et 12 chiffres de l’horloge pour atteindre 75.
-.
-75 : 7+5=12 donne les 12 devises.
-Voici les phrases extraites des 75 poèmes pour créer 12 nouvelles devises plus poétiques, réalisé le 02/05/2026 (2 S du dragon, de la victoire : 2026, 2+2+6=10., 2+5+2+2+6=17=8 : infini.
+Les 12 devises de l’horloge philosophique des 75 poèmes  
 
-1. L’axe de la voie d’harmonie du milieu.
-2. Garder la voie de l’intuition et se relier au tout avec fermeté.
-3. Un sage, il va haut et grandit en regardant dans toutes les directions.
-4.  Le jardin parfait ne peut se séparer de sa montagne.
-5. Chaque personne est une écaille du dragon,
-qui consolide l’unité de la nation.
-6. L’or est la lumière dans la dureté.
-7. Que les rayons de tes actions établissent la roue de la clarté.
-8. L’éventail de la vie s’ouvre et se referme, il rafraîchit des excès, 
+12 ans et 12 chiffres de l’horloge pour atteindre 75.  
+
+75 : 7+5=12 donne les 12 devises.  
+Voici les phrases extraites des 75 poèmes pour créer 12 nouvelles devises plus poétiques, réalisé le 02/05/2026 (2 S du dragon, de la victoire : 2026, 2+2+6=10., 2+5+2+2+6=17=8 : infini.  
+
+1. L’axe de la voie d’harmonie du milieu.  
+2. Garder la voie de l’intuition et se relier au tout avec fermeté.  
+3. Un sage, il va haut et grandit en regardant dans toutes les directions.  
+4.  Le jardin parfait ne peut se séparer de sa montagne.  
+5. Chaque personne est une écaille du dragon,  
+qui consolide l’unité de la nation.  
+6. L’or est la lumière dans la dureté.  
+7. Que les rayons de tes actions établissent la roue de la clarté.  
+8. L’éventail de la vie s’ouvre et se referme, il rafraîchit des excès,  
 déploie ses talents et ses beautés, est une arme, une défense.  
-9. L’équilibre est la voie du juste cercle rayonnant de ses atouts.
-10.  La vie doit être une chanson infinie.
-11. Le plus haut sage n’est pas savoir et voir tout du plus haut, c’est regarder la vie en ayant la meilleure réflexion.
-12. Zénith des rêves accomplis par la persévérance.
+9. L’équilibre est la voie du juste cercle rayonnant de ses atouts.  
+10.  La vie doit être une chanson infinie.  
+11. Le plus haut sage n’est pas savoir et voir tout du plus haut, c’est regarder la vie en ayant la meilleure réflexion.  
+12. Zénith des rêves accomplis par la persévérance.  
 
-Décodage
-1 : voie du milieu (axe).
-2 : le soi et le tout.
-3 : haut comme les ailes de l’oiseau qui forment un 3.
-4 : Un jardin dans une surface comme 4 côtés.
-5 : comme le S du dragon.
-6 : chiffre du dé, jeu de la lumière dans la forme, nous.
-7 : chiffre de Dieu (ou la source), roue de la clarté de l’univers comme atteindre le meilleur de la sagesse (voir l’améliorer).
-8 : vie à l’infini : 8.
-9 : chiffre du cycle, niveau impérial du 9 de l’empereur de soi (équilibre cercle de la création et de ses atouts : tout ce qui existe).
-10 : victoire en musique.
-11 : soi et l’autre : regarder l’autre.
-12 : zénith, tout le cadrant, 1 tour, atteindre l’arrivée de son objectif.
+Décodage  
+1 : voie du milieu (axe).  
+2 : le soi et le tout.  
+3 : haut comme les ailes de l’oiseau qui forment un 3.  
+4 : Un jardin dans une surface comme 4 côtés.  
+5 : comme le S du dragon.  
+6 : chiffre du dé, jeu de la lumière dans la forme, nous.  
+7 : chiffre de Dieu (ou la source), roue de la clarté de l’univers comme atteindre le meilleur de la sagesse (voir l’améliorer).  
+8 : vie à l’infini : 8.  
+9 : chiffre du cycle, niveau impérial du 9 de l’empereur de soi (équilibre cercle de la création et de ses atouts : tout ce qui existe).  
+10 : victoire en musique.  
+11 : soi et l’autre : regarder l’autre.  
+12 : zénith, tout le cadrant, 1 tour, atteindre l’arrivée de son objectif.  
 
-1. L’axe de la voie d’harmonie du milieu.
+1. L’axe de la voie d’harmonie du milieu.  
 
-2. Garder la voie de l’intuition et se relier au tout avec fermeté.
-6. L’or est la lumière dans la dureté.
-11. Le plus haut sage n’est pas savoir et voir tout du plus haut, c’est regarder la vie en ayant la meilleure réflexion.
-9. L’équilibre est la voie du juste cercle rayonnant de ses atouts.
-3. Un sage, il va haut et grandit en regardant dans toutes les directions.
-5. Chaque personne est une écaille du dragon,
-qui consolide l’unité de la nation.
-7. Que les rayons de tes actions établissent la roue de la clarté.
-10.  La vie doit être une chanson infinie.
-8. L’éventail de la vie s’ouvre et se referme, il rafraîchit des excès, 
+2. Garder la voie de l’intuition et se relier au tout avec fermeté.  
+6. L’or est la lumière dans la dureté.  
+11. Le plus haut sage n’est pas savoir et voir tout du plus haut, c’est regarder la vie en ayant la meilleure réflexion.  
+9. L’équilibre est la voie du juste cercle rayonnant de ses atouts.  
+3. Un sage, il va haut et grandit en regardant dans toutes les directions.  
+5. Chaque personne est une écaille du dragon,  
+qui consolide l’unité de la nation.  
+7. Que les rayons de tes actions établissent la roue de la clarté.  
+10.  La vie doit être une chanson infinie.  
+8. L’éventail de la vie s’ouvre et se referme, il rafraîchit des excès,  
 déploie ses talents et ses beautés, est une arme, une défense.  
-12. Zénith des rêves accomplis par la persévérance.
+12. Zénith des rêves accomplis par la persévérance.  
 
-4.  Le jardin parfait ne peut se séparer de sa montagne.
+4.  Le jardin parfait ne peut se séparer de sa montagne.  
 
-Sylvain Meili (02/05/2026, n°72)
+Sylvain Meili (02/05/2026, n°72)  
 
-Version arrangée des devises en poème : 1, 2, 2, 2, 2, 2, 1 (2 rimes suivies 3 fois, 2 proses 2 fois.
-S aime, T’es le Poing G (à l’envers), G ressemble à une main fermée en poing comme Gagnant, à 6 lignes et 6 : chiffre de femme.
-Maniement du bâton
-1 bâton
+Version arrangée des devises en poème : 1, 2, 2, 2, 2, 2, 1 (2 rimes suivies 3 fois, 2 proses 2 fois.  
+S aime, T’es le Poing G (à l’envers), G ressemble à une main fermée en poing comme Gagnant, à 6 lignes et 6 : chiffre de femme. 
+
+Maniement du bâton  
+1 bâton  
 Roue latérale : (verticale, 2 mains), récupérer et faire tourner autour du poignet, il y a la version sans passer autour du poignet mais moins efficace et moins rapide au début, il y a la version une main et la version une main mais en laissant tourner le bâton un bref instant dans le vide et le rattraper.
-Roue transversale : (hélicoptère au-dessus de la tête, 2 mains). 
-Grand huit : dans les 2 sens à une main ou 2  mains avec un bâton : (alterné la main gauche au-dessus de la main droite et inversement).
-Triple roue : main droite ou gauche ou enchainer  les deux (faire aussi mouvement inverse).
-6 tournoiements avec deux 8 (existe déjà) : bras droit : une roue vers l’avant à droite puis passé derrière le dos en faisant un tour qui fait un 8 qui finit en double tour le bâton sous le bras et faire un 8 en passant devant et à gauche du corps et recommencer à droite. Faire aussi le mouvement inverse.
-Toupie éternelle du dragon chinois impérial (mon invention, variante infini) : tourner sur soi-même à l’infini avec un bâton puis dans l’autre sens.
-Tour  transversal du corps : tournoiement du bâton derrière et devant le corps (en dessous du bras ou au-dessus).
-1 tour latéral ventral : gauche et droit en faisant un tour devant ou 1 tour et demie dans le sens inverse de celui qui passe derrière.
-Tour de roue verticale perpétuelle devant et derrière le corps.
-1 tour par le cou : à enchainer ça après le tour ventral pour faire un combo (suite de figure de bâton).
-Tour sur soi-même : tourner le bâton et faire un tour sur soi même et le rattraper en continuant le mouvement.
-Lancé le bâton tournant en l’air : et le rattraper, ensuite essayer en faisant un tour sur soi-même..
-Sauté un tour sur soi-même : en donnant 2 coups horizontalement et finir en position de l’aigle.
+Roue transversale : (hélicoptère au-dessus de la tête, 2 mains).  
+Grand huit : dans les 2 sens à une main ou 2  mains avec un bâton : (alterné la main gauche au-dessus de la main droite et inversement).  
+Triple roue : main droite ou gauche ou enchainer  les deux (faire aussi mouvement inverse).  
+6 tournoiements avec deux 8 (existe déjà) : bras droit : une roue vers l’avant à droite puis passé derrière le dos en faisant un tour qui fait un 8 qui finit en double tour le bâton sous le bras et faire un 8 en passant devant et à gauche du corps et recommencer à droite. Faire aussi le mouvement inverse.  
+Toupie éternelle du dragon chinois impérial (mon invention, variante infini) : tourner sur soi-même à l’infini avec un bâton puis dans l’autre sens.  
+Tour  transversal du corps : tournoiement du bâton derrière et devant le corps (en dessous du bras ou au-dessus).  
+1 tour latéral ventral : gauche et droit en faisant un tour devant ou 1 tour et demie dans le sens inverse de celui qui passe derrière.  
+Tour de roue verticale perpétuelle devant et derrière le corps.  
+1 tour par le cou : à enchainer ça après le tour ventral pour faire un combo (suite de figure de bâton).  
+Tour sur soi-même : tourner le bâton et faire un tour sur soi même et le rattraper en continuant le mouvement.  
+Lancé le bâton tournant en l’air : et le rattraper, ensuite essayer en faisant un tour sur soi-même.  
+Sauté un tour sur soi-même : en donnant 2 coups horizontalement et finir en position de l’aigle.  
 
-Travailler autant votre main gauche que votre main droite ainsi que les sens inverses.
+Travailler autant votre main gauche que votre main droite ainsi que les sens inverses.  
 
-2 bâtons
-Reprendre 6 tournoiements avec deux 8 pour : 
-Toupie éternelle des 2 dragons chinois impériaux (alternés).
-Mon invention : faire pareil avec 2 bâtons en même temps sur plusieurs tours sur soi-même grâce au mouvement supplémentaire qui permet de tourner en sachant faire dans les 2 sens de rotation du corps sans interruption. 
-Toupie éternelle des 2 dragons chinois impériaux voyageurs (alternés).
-Mon invention : tourner sur soi-même en courant pour mettre la difficulté au maximum.
-Toupie éternelle des 2 dragons chinois impériaux voyageurs (synchronisés) : avec les bâtons en parallèles puis en courant.
+2 bâtons  
+Reprendre 6 tournoiements avec deux 8 pour :  
+Toupie éternelle des 2 dragons chinois impériaux (alternés).  
+Mon invention : faire pareil avec 2 bâtons en même temps sur plusieurs tours sur soi-même grâce au mouvement supplémentaire qui permet de tourner en sachant faire dans les 2 sens de rotation du corps sans interruption.  
+Toupie éternelle des 2 dragons chinois impériaux voyageurs (alternés).  
+Mon invention : tourner sur soi-même en courant pour mettre la difficulté au maximum.  
+Toupie éternelle des 2 dragons chinois impériaux voyageurs (synchronisés) : avec les bâtons en parallèles puis en courant.  
 
-Triple tour à 2 bâtons : (2 sens normal et inverse sans faire la toupie).
-Toupie éternelle simple : Faire un 8 avec chaque bâton + petit mouvement de transition pour tourner sur soi-même, tourner sur soi-même ensuite dans l’autre sens, version alterné, synchronisé plus sa version croisant le bras opposé sous l’autre 
-Triple tour avec bâton parallèle : (2 sens normal et inversé).
-Tourner les bâtons parallèlement : tour infini (2 sens normal et inversé).
+Triple tour à 2 bâtons : (2 sens normal et inverse sans faire la toupie).  
+Toupie éternelle simple : Faire un 8 avec chaque bâton + petit mouvement de transition pour tourner sur soi-même, tourner sur soi-même ensuite dans l’autre sens, version alterné, synchronisé plus sa version croisant le bras opposé sous l’autre.  
+Triple tour avec bâton parallèle : (2 sens normal et inversé).  
+Tourner les bâtons parallèlement : tour infini (2 sens normal et inversé).  
 
-Petit bâton	
-Huit : un tour dessus et sous la main comme les majorettes.
+Petit bâton	 
+Huit : un tour dessus et sous la main comme les majorettes.  
 
-2 types de toupie éternelle des 2 dragons chinois impériaux
-(variantes alternées et synchronisées avec changement inverse de rotation du corps et en courant : voyageurs) inventés par Sylvain Meili le 18/08/2024 : année du dragon chinois de bois.
+2 types de toupie éternelle des 2 dragons chinois impériaux  
+(variantes alternées et synchronisées avec changement inverse de rotation du corps et en courant : voyageurs) inventés par Sylvain Meili le 18/08/2024 : année du dragon chinois de bois.  
 
-Toujours avoir les ongles bien taillés pour ne pas se blesser.
-Trouvez mes vidéos de bâton sur internet et faîtes des copies.
+Toujours avoir les ongles bien taillés pour ne pas se blesser.  
+Trouvez mes vidéos de bâton sur internet et faîtes des copies.  
 
-Recette des pâtes universelles Meili
+Recette des pâtes universelles Meili  
 
-Pâtes de blé semi-complet (1) : 150 grammes pour 1 personne.
-Seul les pâtes et les morceaux d’oignon sont cuits à l’eau.
+Pâtes de blé semi-complet (1) : 150 grammes pour 1 personne.  
+Seul les pâtes et les morceaux d’oignon sont cuits à l’eau.  
 
-Graisses (3) : minimum (1 beurre et 2 huiles : huile d’olive obligatoire), 6 ou plus…
-Beurre : 40 grammes soit beurre doux de vache ou beurre végétal selon votre choix (ex : huiles de colza 28%, lin 5,7%, coco, karité et autres ingédients mineures).
-Huile d’olive (une demi petite cuillère) et huile de noisette de préférence (une demi petite cuillère) / ou huile de tournesol (3 gouttes), optionnellement huile de cumin et de chanvre : 3 gouttes.
+Graisses (3) : minimum (1 beurre et 2 huiles : huile d’olive obligatoire), 6 ou plus…  
+Beurre : 40 grammes soit beurre doux de vache ou beurre végétal selon votre choix (ex : huiles de colza 28%, lin 5,7%, coco, karité et autres ingrédients mineures).  
+Huile d’olive (une demi petite cuillère) et huile de noisette de préférence (une demi petite cuillère) / ou huile de tournesol (3 gouttes), optionnellement huile de cumin et de chanvre : 3 gouttes.  
 
-Sel (1) : ajouter après cuisson des pâtes.
+Sel (1) : ajouter après cuisson des pâtes.  
 
-Epices (22)
-Bien étaler généreusement ces épices :
-Fines herbes déjà mixées (persil 70%, ciboulette 15%, estragon, cerfeuil).
+Epices (22)  
+Bien étaler généreusement ces épices :  
+Fines herbes déjà mixées (persil 70%, ciboulette 15%, estragon, cerfeuil).  
 Ail des ours : fines herbes.
-Hebes de provences déjà mixées (romarin 37%, origan : 8%, thym 8%, marjolaine, sarriette, basilic).
-Quelques pincées :
-Poudre d’ortie piquante
-Pain d’épices déjà mixées (canelle, badiane, fenouil, cardamone, girofle, gingembre).
-Curcuma
-Poivre
-Une pincée :
-Kombu royale en poudre (si vous souhaitez).
-Noix de muscade (si vous souhaitez)
+Hebes de provences déjà mixées (romarin 37%, origan : 8%, thym 8%, marjolaine, sarriette, basilic).  
+Quelques pincées :  
+Poudre d’ortie piquante  
+Pain d’épices déjà mixées (canelle, badiane, fenouil, cardamone, girofle, gingembre).  
+Curcuma  
+Poivre  
+Une pincée :  
+Kombu royale en poudre (si vous souhaitez).  
+Noix de muscade (si vous souhaitez)  
 
-Autres (2)
-Oignon : quelques morceaux d’oignon pendant la cuisson ou poudre d’oignon, ou échalotte.
-Eau : 100 grammes d’eau pour le fond de sauce, éviter l’eau du robinet des zones où elle a un mauvais goût.
+Autres (2)  
+Oignon : quelques morceaux d’oignon pendant la cuisson ou poudre d’oignon, ou échalotte.  
+Eau : 100 grammes d’eau pour le fond de sauce, éviter l’eau du robinet des zones où elle a un mauvais goût.  
 
-Cuire les oignons à part dans un peu d’eau est plus optimal pour le goût mais demande plus d’efforts
+Cuire les oignons à part dans un peu d’eau est plus optimal pour le goût mais demande plus d’efforts  
 
-29 à 36 ingrédients environ, à vous de doser à votre convenance.
+29 à 36 ingrédients environ, à vous de doser à votre convenance.  
 
-Sylvain Meili (21/06/2026)
-
-
-Plat des pâtes universelles Meili
-et accompagnements supplémentaires
-
-Avec la recette précédente, on peut l’accompagner en réduisant les pâtes sèches à 100 grammes et ajouter en entrée quelques noix de cajou, une ratatouille (soit vous la manger à côtés des pâtes ou mélangés ou après), un fruit kiwi en dessert.
-
-Le but est d’offrir le repas le plus complet pour les besoins du corps.
-C’est au chois une recette végane sauf pour ceux qui utilisent le beurre de vache.
-
-Mes synchronicités
-
-C’est le hasard, ou possiblement message de l’au-delà.
-Son dit son, accompagne lit dans mon texte je lis accompagne notre ballade enchanté, il parle de musique en 1 minute.
-Suprême : télé 04/11/2025
-06/11/2025 : l’intervenant dit le mot trouver la seconde d’après, ou j’envoi comme message trouvez moi une copine, c’est souvent que ça m’arrive les coïncidences, parfois 3 en une heure, il dit le chiffre 3 juste après. je relit longtemps après cette coïncidence, un dit dit à la télé.
-Je pense dans ma tête que fais des coïncidences en direct et il dit direct, 
-Je suis en train de noter mes coïncidences sur chat en direct internet et quand je mets dit, l’intervenant dit « dit »
-après je dérape sur mon téléphone ça m’envoie sur une autre vidéo, la première phrase que dit la femme, est-ce que c’est une coïncidence, je redérape en voulant écrire une phrase car mon clavier numérique s’enlève, sa vidéo fait 133000 vues il ya 3 semaine, je reviens sur mon direct, il est 34 minute donc quand j’ai la vidéo avec les chiffres 3 il devait être 33. 
-09/11 : je dis, c’est moche, la télé confirme moche, moche, pour un synonyme pour un poème. 
-15/11 : maintenant télé, (comment trouver une boulangerie)
-16/11 : lit légende, radio dit légendaire
-18/11 : je dis 5 et 8 pour la note de Grok 95,88 et à la télé 5, 8, ressemble et dit ressembler.
-01/12 :  2ème pompe, 2 télé, la plus belle, télé pareil
-08/01/2026 : record de syncronicités : 5.
-Radio dit les mêmes mots : incontournable, copier, meilleur, 2026, et 8 en moins d’une heure.
-Je parlais de ma philosophie seule et d’autres choses.
-
-Humour de coincidence
-J’inspecte mon genoux, à la télé se dit, il a rien ton genoux.
-Je vois une vidéo d’un groupe de personnes qui fond des bruits d’appels comme les animaux, au même moment sur le direct d’une autre vidéo, le joueur de jeux vidéo dit c’est pas de la Culture, c’est du bruit.
-
-J’en ai pleins d’autres que j’ai oublié.
+Sylvain Meili (21/06/2026)  
 
 
-Le meilleur de la musique asiatique
+Plat des pâtes universelles Meili  
+et accompagnements supplémentaires  
 
-Chine
+Avec la recette précédente, on peut l’accompagner en réduisant les pâtes sèches à 100 grammes et ajouter en entrée quelques noix de cajou, une ratatouille (soit vous la manger à côtés des pâtes ou mélangés ou après), un fruit kiwi en dessert.  
+
+Le but est d’offrir le repas le plus complet pour les besoins du corps.  
+C’est au chois une recette végane sauf pour ceux qui utilisent le beurre de vache.  
+
+Mes synchronicités  
+
+C’est le hasard, ou possiblement message de l’au-delà.  
+Son dit son, accompagne lit dans mon texte je lis accompagne notre ballade enchanté, il parle de musique en 1 minute.  
+Suprême : télé 04/11/2025  
+06/11/2025 : l’intervenant dit le mot trouver la seconde d’après, ou j’envoi comme message trouvez moi une copine, c’est souvent que ça m’arrive les coïncidences, parfois 3 en une heure, il dit le chiffre 3 juste après. je relit longtemps après cette coïncidence, un dit dit à la télé.  
+Je pense dans ma tête que fais des coïncidences en direct et il dit direct. 
+Je suis en train de noter mes coïncidences sur chat en direct internet et quand je mets dit, l’intervenant dit « dit »  
+après je dérape sur mon téléphone ça m’envoie sur une autre vidéo, la première phrase que dit la femme, est-ce que c’est une coïncidence, je redérape en voulant écrire une phrase car mon clavier numérique s’enlève, sa vidéo fait 133000 vues il y a 3 semaine, je reviens sur mon direct, il est 34 minute donc quand j’ai la vidéo avec les chiffres 3 il devait être 33.  
+09/11 : je dis, c’est moche, la télé confirme moche, moche, pour un synonyme pour un poème.  
+15/11 : maintenant télé, (comment trouver une boulangerie)  
+16/11 : lit légende, radio dit légendaire.  
+18/11 : je dis 5 et 8 pour la note de Grok 95,88 et à la télé 5, 8, ressemble et dit ressembler.  
+01/12 :  2ème pompe, 2 télé, la plus belle, télé pareil.  
+08/01/2026 : record de synchronicités : 5.  
+Radio dit les mêmes mots : incontournable, copier, meilleur, 2026, et 8 en moins d’une heure.  
+Je parlais de ma philosophie seule et d’autres choses.  
+
+Humour de coïncidence  
+J’inspecte mon genoux, à la télé se dit, il a rien ton genoux.  
+Je vois une vidéo d’un groupe de personnes qui fond des bruits d’appels comme les animaux, au même moment sur le direct d’une autre vidéo, le joueur de jeux vidéo dit c’est pas de la Culture, c’est du bruit.  
+
+J’en ai pleins d’autres que j’ai oublié.  
+
+
+Le meilleur de la musique asiatique  
+
+Chine  
 
 Album 
 Tai chi master (1993 ost album, Stephen Edwards et Wu Wai-lap : naissance en 1937), 11 : Let go (WaWa (Jin Zhi-Juan) : chanteuse, 04/10/1964)
