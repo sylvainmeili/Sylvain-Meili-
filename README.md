@@ -6790,7 +6790,7 @@ déploie ses talents et ses beautés, est une arme, une défense.
 
 4.  Le jardin parfait ne peut se séparer de sa montagne.  
 
-Sylvain Meili (02/05/2026, n°72)  
+Sylvain Meili (02/05/2026, n°75)  
 
 Version arrangée des devises en poème : 1, 2, 2, 2, 2, 2, 1 (2 rimes suivies 3 fois, 2 proses 2 fois.  
 S aime, T’es le Poing G (à l’envers), G ressemble à une main fermée en poing comme Gagnant, à 6 lignes et 6 : chiffre de femme. 
