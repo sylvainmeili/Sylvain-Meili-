@@ -5,10 +5,10 @@ Je suis polymathe : philosophe, poète, compositeur de musique, art martialiste 
 (Quelques éléments)
 
 Philosophe : (1121 proverbes).   
-Poète : (75 poèmes codés + 59 holorimes), (dont <u>21. inventions de type de poèmes</u>, 1 hymne), grands thèmes de la nature, vie humaine et 5 pays, 12 devises poétiques, 5 records du monde.   
-Photographe (art naturel) : photos nature et de glaces,  inventeur des nuages de bulles de glaces…  
-Paréidologue : 90 paréidolies en 10 photos : record du monde de 18 et 60 paréidolies dans la glace, 84 paréidolies en 3 minutes, 2 dragons symbolisant les 2 S du dragon donnent naissance au 3ème petit dragon.  
-Paysagiste : (recette du meilleur jardin en poème, inventeur du nuage à bulles de glaces, jardinier et amélioration de la nature).  
+Poète : (75 poèmes codés + 59 holorimes), (dont <ins>21 inventions de type de poèmes</ins>, 1 hymne), <ins>grands thèmes de la nature</ins>, <ins>vie humaine et 5 pays</ins>, <ins>12 devises poétiques</ins>, <ins>5 records du monde</ins>.   
+**Photographe** (art naturel) : photos nature et de glaces,  inventeur des nuages de bulles de glaces…  
+**Paréidologue** : 90 paréidolies en 10 photos : record du monde de 18 et 60 paréidolies dans la glace, 84 paréidolies en 3 minutes, 2 dragons symbolisant les 2 S du dragon donnent naissance au 3ème petit dragon.  
+**Paysagiste** : (recette du meilleur jardin en poème, inventeur du nuage à bulles de glaces, jardinier et amélioration de la nature).  
 Art martialiste expert du bâton : je manie 2 bâtons long (bō en japonais) ou gùn (棍, Chinois), inventé la technique de la toupie éternelles des 2 dragons chinois impériaux voyageurs le 18/08/2024 : année du dragon chinois de bois (bâton). 1+8=empereur, 8=2 dragons, 2+2+4=8 année du dragon.  
 Ornithologue :   
 Recensement d’oiseaux.  
@@ -6908,445 +6908,443 @@ Le meilleur de la musique asiatique
 
 Chine  
 
-Album 
-Tai chi master (1993 ost album, Stephen Edwards et Wu Wai-lap : naissance en 1937), 11 : Let go (WaWa (Jin Zhi-Juan) : chanteuse, 04/10/1964)
+Album  
+Tai chi master (1993 ost album, Stephen Edwards et Wu Wai-lap : naissance en 1937), 11 : Let go (WaWa (Jin Zhi-Juan) : chanteuse, 04/10/1964).  
 The butterfly lover (1994 ost album, Mark Lui, James Wong, Raymond Wong et Wu Wai Lap)
-Crouching tiger, hidden dragon (2000 ost album, Tan dun, né le 18/08/1957)
-Hero (2002 ost album, Tan dun) 
-Kung fu hustle (2004 ost album, Raymond Wong, 06/04/1968) 
-House of flying dragon (2004 ost album, Shigeru Umebayashi, né le 19/02/1951), 100% de belles musiques. 
-Seven sword (2005 ost album, Kenji Kawai, né le 23/04/1957)
- The Final Sword Battle : The Dragon vs the Transcience 15, Children at Dawn 16, Seven Swords' Victory 17
-Jet's li fearless/le maître d'arme (2006 ost album, Shigeru Uebayashi) 01 Opening Title : Wu Shu Jing Shen, 20 season changes
-Drunken master 2 : Wu Wai Lap, 1994, Winnie Hsin : 08/02/1962, chanteuse de Ending love 
+Crouching tiger, hidden dragon (2000 ost album, Tan dun, né le 18/08/1957).  
+Hero (2002 ost album, Tan dun).  
+Kung fu hustle (2004 ost album, Raymond Wong, 06/04/1968).   
+House of flying dragon (2004 ost album, Shigeru Umebayashi, né le 19/02/1951), 100% de belles musiques.  
+Seven sword (2005 ost album, Kenji Kawai, né le 23/04/1957).  
+ The Final Sword Battle : The Dragon vs the Transcience 15, Children at Dawn 16, Seven Swords' Victory 17.  
+Jet's li fearless/le maître d'arme (2006 ost album, Shigeru Uebayashi) 01 Opening Title : Wu Shu Jing Shen, 20 season changes.  
+Drunken master 2 : Wu Wai Lap, 1994, Winnie Hsin : 08/02/1962, chanteuse de Ending love.   
 
-Instrumental
-Il était une fois en chine, James Wong (1991 ost), Mr. Strong man (instrumental), George Lam (theme song).
-Love theme 1 the legend of evil lake (2003 ost) 
-Forever friends (strange hero yi zhi mei 2011 ost) 
-Horse racing (chen jung et chen yimiao), 赛马陈军陈依妙
-Guangde Xuanwu Tai Chi Qin Xia (Chen Jun et chen yimiao)
- 陈依妙 - 广德玄武 二胡曲 (chen yimiao) 
-Big fish and begonia theme dizi 『笛子』大魚海棠
-The myth ost (2005) Endless love無盡的愛
-Erhu Performance love in vain Sad and Melody Music
-Impérial dynasty chinese music (ancien legends album) Ancient Chinese Song - Western Liang Moon 西凉月 (Instrumental) 
-Fairy2  Snow Telling the Departure Song 雪诉离歌 Ancient Chinese Song - Jade Dynasty (instrumental).
-Bamboo Under The Moonlight (Asian leaf blowing) 
-(Chinese Paladin ost 2005), Mak Chun Hung, 05/01/1969, 永恆的回憶 (殺破狼 演奏曲) - Track 1 
+Instrumental  
+Il était une fois en chine, James Wong (1991 ost), Mr. Strong man (instrumental), George Lam (theme song).  
+Love theme 1 the legend of evil lake (2003 ost).  
+Forever friends (strange hero yi zhi mei 2011 ost).  
+Horse racing (chen jung et chen yimiao), 赛马陈军陈依妙.  
+Guangde Xuanwu Tai Chi Qin Xia (Chen Jun et chen yimiao).  
+ 陈依妙 - 广德玄武 二胡曲 (chen yimiao).  
+Big fish and begonia theme dizi 『笛子』大魚海棠.  
+The myth ost (2005) Endless love無盡的愛.  
+Erhu Performance love in vain Sad and Melody Music.  
+Impérial dynasty chinese music (ancien legends album) Ancient Chinese Song - Western Liang Moon 西凉月 (Instrumental).  
+Fairy2  Snow Telling the Departure Song 雪诉离歌 Ancient Chinese Song - Jade Dynasty (instrumental).  
+Bamboo Under The Moonlight (Asian leaf blowing).  
+(Chinese Paladin ost 2005), Mak Chun Hung, 05/01/1969, 永恆的回憶 (殺破狼 演奏曲) - Track 1.  
 Mo Ming QI Miao (墨明棋妙groupe) : Wellson Cao (leader du groupe) ; Time travel, 穿越 2011. Raining in Jiangnan : compositeur (Hétu), arrangeur Diuzi, erhu : Lemon dew.
-Guo Yanni ( 郭燕妮): 海殇风雨 (la tempête et la mer)• • 瑶台天籁乐团 鼓浪长歌 (longue chanson de tambours et de vagues) 2023
+Guo Yanni ( 郭燕妮): 海殇风雨 (la tempête et la mer)• • 瑶台天籁乐团 鼓浪长歌 (longue chanson de tambours et de vagues) 2023.  
 
-Chanteuses
-Wang Ziyu (王梓钰): né le 16/11/1995.
-惊蛰 • 音阙诗听 • 王梓钰 • 殇小谨 • 假寐, 2018.
-(大雪) 音阙诗听 二十四节气系列歌曲《Great Snow 》[The 24 solar terms], 2019.
-(白露)音阙诗听（录音棚版）二十四节气系列歌曲, 2019.
-(春分)音阙诗听/王梓钰 二十四节气系列歌曲 《the Spring Equinox 》[The 24 solar terms], 2019.
-音阙诗听/王梓钰《卯时》MusicVideo丨关于中国十二时辰, 2021.
-音阙诗听/王梓钰(念小乔), 2022.
-中元节 (Zhōng yuán jié), 2023.
-Chen Sisi : 28/12/1976, jin Xiu Nai Dai album, 2006. My dear chinese people (Qin Qin de zhong guo ren), 2009. Enter the dream paradise, 2002.
-Sa Dingding : 27/12/1980, Upwards to the Moon (左手指月), ashes of love ost, 2018. The moment, I meet you (Skate into love ost), 2020.
-reprise (Huang xiaoyun): my ashes of love upwards to the moon[ 纯享 ] 黄霄雲《左手指月》《梦想的声音3》EP9 20181221  浙江卫视官方音乐
-Jade Lockheart :  锁心玉 - One Must Part Though Accompanied a Thousand Miles (Treasure Venture ost), 2004.
-Zhang Yan : 20/07/1976, Beautiful Chinese Music  traditional Music (12) (The Wandering Songstress). La chanson classique de Zhou Xuan "Singer Girl at the End of the World". L'une des chansons thématiques du film "Street Angel" de 1937. Parolier : Tian Han. Compositeur : He Luting. Voix : Zhang Yan.
-Daughter of The Moon : 张燕 月亮女儿
-Liu shishi : Waiting For Your Season (等你的季节)-
-Love's Ripples – 愛的漣漪 ost
-Ruby Lin : 27/01/1976, Flower Falling  [Schemes Of A Beauty], 2010.
-Han xiaomo :  清明上河圖 韓小沫版 (Image de la rivière Qingming Version Han Xiaomo : (韓小沫), My hero in my dream, Great healing heart album
-Into the dream (入梦也 : version chanté et la meilleure version fredonné 哼唱版), compositeur (Wang Shifu : 黄诗扶), paroles (Zuo Muxiu : 左木修), 2019.
-Valen hsu :  Hsu Hung-hsiu, 20/09/1974, Tao hao (1995) 
-Jolin Tsai : Cai Yi Lin, 15/09/1980, Warriors In Peace (2003). The starter, Castle album, 2004. 
-Alan : Alan Dawa Dolma, 25/07/1987,  Red Cliff 〜心・戦〜 (2008) 
-Jane Zhang : Zhang Liangying, 11/10/1984, Return of The Condor Heroes (2006) OST, version 2
+Chanteuses.  
+Wang Ziyu (王梓钰): né le 16/11/1995.  
+惊蛰 • 音阙诗听 • 王梓钰 • 殇小谨 • 假寐, 2018.  
+(大雪) 音阙诗听 二十四节气系列歌曲《Great Snow 》[The 24 solar terms], 2019.  
+(白露)音阙诗听（录音棚版）二十四节气系列歌曲, 2019.  
+(春分)音阙诗听/王梓钰 二十四节气系列歌曲 《the Spring Equinox 》[The 24 solar terms], 2019. 
+音阙诗听/王梓钰《卯时》MusicVideo丨关于中国十二时辰, 2021.  
+音阙诗听/王梓钰(念小乔), 2022.  
+中元节 (Zhōng yuán jié), 2023.  
+Chen Sisi : 28/12/1976, jin Xiu Nai Dai album, 2006. My dear chinese people (Qin Qin de zhong guo ren), 2009. Enter the dream paradise, 2002.  
+Sa Dingding : 27/12/1980, Upwards to the Moon (左手指月), ashes of love ost, 2018. The moment, I meet you (Skate into love ost), 2020.  
+reprise (Huang xiaoyun): my ashes of love upwards to the moon[ 纯享 ] 黄霄雲《左手指月》《梦想的声音3》EP9 20181221  浙江卫视官方音乐.  
+Jade Lockheart :  锁心玉 - One Must Part Though Accompanied a Thousand Miles (Treasure Venture ost), 2004.  
+Zhang Yan : 20/07/1976, Beautiful Chinese Music  traditional Music (12) (The Wandering Songstress). La chanson classique de Zhou Xuan "Singer Girl at the End of the World". L'une des chansons thématiques du film "Street Angel" de 1937. Parolier : Tian Han. Compositeur : He Luting. Voix : Zhang Yan.  
+Daughter of The Moon : 张燕 月亮女儿.  
+Liu shishi : Waiting For Your Season (等你的季节).  
+Love's Ripples – 愛的漣漪 ost.  
+Ruby Lin : 27/01/1976, Flower Falling  [Schemes Of A Beauty], 2010.  
+Han xiaomo :  清明上河圖 韓小沫版 (Image de la rivière Qingming Version Han Xiaomo : (韓小沫), My hero in my dream, Great healing heart album.  
+Into the dream (入梦也 : version chanté et la meilleure version fredonné 哼唱版), compositeur (Wang Shifu : 黄诗扶), paroles (Zuo Muxiu : 左木修), 2019.  
+Valen hsu :  Hsu Hung-hsiu, 20/09/1974, Tao hao (1995).  
+Jolin Tsai : Cai Yi Lin, 15/09/1980, Warriors In Peace (2003). The starter, Castle album, 2004.  
+Alan : Alan Dawa Dolma, 25/07/1987,  Red Cliff 〜心・戦〜 (2008).  
+Jane Zhang : Zhang Liangying, 11/10/1984, Return of The Condor Heroes (2006) OST, version 2.  
 Huang Xiaoyun : 22/12/1998, Sad Sometimes (compositeur alan walker) (Lyrics) (2019).
-Star and sea : Arranger, Composer, Lyricist, Producer (Ziqian Qu) Composer, Lyricist, Producer (Liu Tao) Lyricist (Liang Wen), 2021
-Reprise Return of the condor heroes: 
-[ 纯享 ] 黄霄雲《天下无双》《梦想的声音3》EP10 20181229 /浙江卫视官方音乐HD/
-Hua Zhou : 21/07/1993, Ask The Night (夜問), Perfect and Casual Ost, 2020.
-Teresa Teng : (鄧麗君) titre : larmes rouges (1983) - 22 - 胭脂淚 (Yan Zhi Lei) album : dandan youqing 淡淡幽情 (29/1/1953-8/05/1995), poème Li Houzhu (Li Yu), empereur tang du sud : vie du 15 aout 937 au 15 aout 978, règne de 961 à 976, poète, peintre, calligraphe.
-Guo shu yao (郭書瑤): (18/07/1990), Fang qi ni (放棄你), love's embrace album 2009).
-G.E.M : Dang Zi Kei : 16/08/1991 (Hong kong), The voice within, my secret album, 2010.
-Fiona Fung : Feng Cui Hua, 14/12/1983. Goodbye master, goodbye (Zai jian, jing Cha), Infernal affairs ost, 2002.
-Liu Zhirong (劉芷融) et Hei Xia (何夏) : chanteuses, Du Mei Shin and Gong Li Fang, Lady of the Pier : jeu vidéo ost, 2019
-一颗狼星(une étoile de loup), 叮叮当(ding ding dong), 于子璐 • 执白 • 江伟伟 (Yu Zilu • Zhi Bai • Jiang Weiwei), 2023.
+Star and sea : Arranger, Composer, Lyricist, Producer (Ziqian Qu) Composer, Lyricist, Producer (Liu Tao) Lyricist (Liang Wen), 2021.  
+Reprise Return of the condor heroes:  
+[ 纯享 ] 黄霄雲《天下无双》《梦想的声音3》EP10 20181229 /浙江卫视官方音乐HD/.  
+Hua Zhou : 21/07/1993, Ask The Night (夜問), Perfect and Casual Ost, 2020.  
+Teresa Teng : (鄧麗君) titre : larmes rouges (1983) - 22 - 胭脂淚 (Yan Zhi Lei) album : dandan youqing 淡淡幽情 (29/1/1953-8/05/1995), poème Li Houzhu (Li Yu), empereur tang du sud : vie du 15 aout 937 au 15 aout 978, règne de 961 à 976, poète, peintre, calligraphe.  
+Guo shu yao (郭書瑤): (18/07/1990), Fang qi ni (放棄你), love's embrace album 2009).  
+G.E.M : Dang Zi Kei : 16/08/1991 (Hong kong), The voice within, my secret album, 2010.  
+Fiona Fung : Feng Cui Hua, 14/12/1983. Goodbye master, goodbye (Zai jian, jing Cha), Infernal affairs ost, 2002.  
+Liu Zhirong (劉芷融) et Hei Xia (何夏) : chanteuses, Du Mei Shin and Gong Li Fang, Lady of the Pier : jeu vidéo ost, 2019.  
+一颗狼星(une étoile de loup), 叮叮当(ding ding dong), 于子璐 • 执白 • 江伟伟 (Yu Zilu • Zhi Bai • Jiang Weiwei), 2023.  
 
-Duo chanteur et chanteuse
-The myth ost, Endless love, Jackie Chan et Kim Hee-sun, 2005.
-10 miles of peach blossom ost, Bracing the chill, Zhang Bichen et Aska Yang, 2017.
-An empress and the warriors theme : Leon Lai et Kelly Chen, 2008.
+Duo chanteur et chanteuse  
+The myth ost, Endless love, Jackie Chan et Kim Hee-sun, 2005.  
+10 miles of peach blossom ost, Bracing the chill, Zhang Bichen et Aska Yang, 2017.  
+An empress and the warriors theme : Leon Lai et Kelly Chen, 2008.  
 
- Corée
+Corée  
 
-Album ost
-My sassy girl (2001 ost album, Kim Hyeong seok, né le 27/09/1966)
-Windstruck (2004 ost album, Choi Seung-hyun, né le 17/11/1971)
-Taegukgi (2004 ost album, Lee Dong Joon, né le 05/02/1967)
-Jumong (2006 ost album, Oh Joon-Sung, né le 25/06/1966)
-The restless (2006 ost album, Shiro Sagisu, né le 29/08/1957) 10 Fantasy Of The Fate
-Kingdom of the wind (2008 ost album, Singers : Park Wan Kyu, Wheesung, Kyun Woo, Brown Eyed Girls) 
-Bichunmoo : Artistes : An Young Min, Choi Seong II (compositeur), Hae Shin, Han Eol, Howl (chaneur), Kim dong Wuk (k-ballad), Park Ji yoon, (chanteuse), Shin Eun Hee (chanteuse 1), Song Ji Eun, Soo (parolier). Paroles : Kim Yu Na. Compositeurs : Kim Bong Su, Kim Yu Na, Song Byeong. 2008.
-Dream high (2011 ost album, Singers : Par Jin Young (JYP), Lim Jeong Hee, 2AM, 2PM, IU, Sun Ye (Wonder Girls), Ok Taec Yeon (2PM), San E, Bae Suzy, Jang Woo Young (2PM), Kim Soo Hyun).
-The thorn birds (2011 ost, Singers: Lee So Ra, SG Wannabe, Narsha (Brown Eyed Girls), 8 memory of alca, 10 가시나무 새, 12 black, 16 의심, 17 regreat
-When a man's in love (2013 ost, Singers : Park Hwayobi, PIA, BEAST, Sung Hoon, BTOB, Baek A Yeon, JeA (Brown eyed Girls)). 8 Abyss, 10 Imminence
-Who are you school 2015 (2015 ost album, Singer : Yoon Mi Rae, Byul, Younha, Baechigi, Tiger JK, Jong Hyun (SHINee, Red Velvet, Yook Sung Jae) chanteuses et instrumentales très bien.
-Let's fight ghost (2016 ost album, Singer : PIA, Kim So Hyun)
-School 2017 (2017 ost album, Singer : Yozoh, Maktub (Korea), Tarin, Gugudan)
-The liar and his lover (2017 ost album, Singer : Joy qui est né Park Su Yeong, 03/09/1996 (Red Velvet), Lee Hyun Woo, Crude play, Hong Seo Young 
+Album ost  
+My sassy girl (2001 ost album, Kim Hyeong seok, né le 27/09/1966).  
+Windstruck (2004 ost album, Choi Seung-hyun, né le 17/11/1971).  
+Taegukgi (2004 ost album, Lee Dong Joon, né le 05/02/1967).  
+Jumong (2006 ost album, Oh Joon-Sung, né le 25/06/1966).  
+The restless (2006 ost album, Shiro Sagisu, né le 29/08/1957) 10 Fantasy Of The Fate. 
+Kingdom of the wind (2008 ost album, Singers : Park Wan Kyu, Wheesung, Kyun Woo, Brown Eyed Girls).  
+Bichunmoo : Artistes : An Young Min, Choi Seong II (compositeur), Hae Shin, Han Eol, Howl (chaneur), Kim dong Wuk (k-ballad), Park Ji yoon, (chanteuse), Shin Eun Hee (chanteuse 1), Song Ji Eun, Soo (parolier). Paroles : Kim Yu Na. Compositeurs : Kim Bong Su, Kim Yu Na, Song Byeong. 2008.  
+Dream high (2011 ost album, Singers : Par Jin Young (JYP), Lim Jeong Hee, 2AM, 2PM, IU, Sun Ye (Wonder Girls), Ok Taec Yeon (2PM), San E, Bae Suzy, Jang Woo Young (2PM), Kim Soo Hyun).  
+The thorn birds (2011 ost, Singers: Lee So Ra, SG Wannabe, Narsha (Brown Eyed Girls), 8 memory of alca, 10 가시나무 새, 12 black, 16 의심, 17 regreat.  
+When a man's in love (2013 ost, Singers : Park Hwayobi, PIA, BEAST, Sung Hoon, BTOB, Baek A Yeon, JeA (Brown eyed Girls)). 8 Abyss, 10 Imminence.  
+Who are you school 2015 (2015 ost album, Singer : Yoon Mi Rae, Byul, Younha, Baechigi, Tiger JK, Jong Hyun (SHINee, Red Velvet, Yook Sung Jae) chanteuses et instrumentales très bien.  
+Let's fight ghost (2016 ost album, Singer : PIA, Kim So Hyun).  
+School 2017 (2017 ost album, Singer : Yozoh, Maktub (Korea), Tarin, Gugudan).  
+The liar and his lover (2017 ost album, Singer : Joy qui est né Park Su Yeong, 03/09/1996 (Red Velvet), Lee Hyun Woo, Crude play, Hong Seo Young .  
 Clean with passion for now (2018 album os, Singers : Crying Nut,
-Huh Gak, OH MY GIRL BANHANA, GWSN, Ju Hee, KLANG, Kim Greem, Yoo Seung Woo, Kevin Oh, Nam Sae Ra).
+Huh Gak, OH MY GIRL BANHANA, GWSN, Ju Hee, KLANG, Kim Greem, Yoo Seung Woo, Kevin Oh, Nam Sae Ra).  
 
-Chanteuses
-Joy (Park su yeong) : Yeowooya (fox), I’m OK, Shiny boy, The road to me, your days, waiting for you, our youth, Flying butterfly (The liar and his lover ost), naissance : 03/09/1996.
-Park hye kyung : 12/10/1974, my favorite (album : 2011), yesterday (2006).
-Baek ji young : 25/03/1976, Bad person (Nabbeun Saram), Hwang jin yi ost (2006),  I Won't Love (사랑 안해), Don’t go, Vol.5 - Smile Again, 2006. Don’t forget me (잊지 말아요, 2009. Like being hit by a bullet, Sensibility album, 2008. 보통 (Average ou Ordinary), Pitta album, 2011. 
-Baek Ah Yeon (백아연) - 사랑학개론 (When A Man's In Love OST 2013)
-Park ji yoon : Ya Sang Gok (Sul Ri Version 2008 bicheonmu drama ost)
-Ryu Ji Hyun (10/09/1997) & Kim Min Ji - I Can Only See You (Let’s fight ghost ost, 2016), Suspicious you (Introverted boss ost, 2017)
-Ben (Lee eun yeong) : 30/07/1991, Memory (Introverted boss ost), 2017. Like a dream, Another Oh Hae Young, 2016.
-Park Bo Ram, 01/03/1994, Isn’t she lovely (Introverted boss ost, 2017). Beautiful, 2014.
+Chanteuses  
+Joy (Park su yeong) : Yeowooya (fox), I’m OK, Shiny boy, The road to me, your days, waiting for you, our youth, Flying butterfly (The liar and his lover ost), naissance : 03/09/1996.  
+Park hye kyung : 12/10/1974, my favorite (album : 2011), yesterday (2006).  
+Baek ji young : 25/03/1976, Bad person (Nabbeun Saram), Hwang jin yi ost (2006),  I Won't Love (사랑 안해), Don’t go, Vol.5 - Smile Again, 2006. Don’t forget me (잊지 말아요, 2009. Like being hit by a bullet, Sensibility album, 2008. 보통 (Average ou Ordinary), Pitta album, 2011.  
+Baek Ah Yeon (백아연) - 사랑학개론 (When A Man's In Love OST 2013).  
+Park ji yoon : Ya Sang Gok (Sul Ri Version 2008 bicheonmu drama ost).  
+Ryu Ji Hyun (10/09/1997) & Kim Min Ji - I Can Only See You (Let’s fight ghost ost, 2016), Suspicious you (Introverted boss ost, 2017).  
+Ben (Lee eun yeong) : 30/07/1991, Memory (Introverted boss ost), 2017. Like a dream, Another Oh Hae Young, 2016.  
+Park Bo Ram, 01/03/1994, Isn’t she lovely (Introverted boss ost, 2017). Beautiful, 2014.  
 Ez (Kim Yi Ji) : 10/03/1994, Because of you, Introverted boss ost, 2017.
-Kim so hyun : dream, 5 (Let’s fight ghost ost)
-Rocoberry  (roco : femme et berry : homme), Console Myself (let’s fight ghost ost), 2016.
-Kim greem (Kim geu rim): 01/03/1987, Sleeep a little more (Clean with passion for now ost, 2019).
+Kim so hyun : dream, 5 (Let’s fight ghost ost).  
+Rocoberry  (roco : femme et berry : homme), Console Myself (let’s fight ghost ost), 2016.  
+Kim greem (Kim geu rim): 01/03/1987, Sleeep a little more (Clean with passion for now ost, 2019).  
 Klang (Park Da Eun) : 05/11/1990, Gravity  (Clean with passion for now ost, 2019).
-Nam Sae Ra : 01/07/1997, Colored (Clean with passion for now ost, 2019).
-Yoon Mi Rae : Natacha Shanta Reid, 31/05/1981, 3 I’ll listen to what you have to say, Who are you school 2015, 2015.
-Byul (Kim go eun) : 22/10/1983, Remember  (Who are you school 2015).
-Younha (Go yun  ha) : 29/04/1988, Pray (Who are you school 2015), Audition : 2006.
-Wendy (Son seung hwan) : Return (Who are you school 2015), naissance : 21/02/1994.
-IU (Lee ji eun) : 16/05/1993, Someday (Dream hight ost), Araro (Queen Seon Deok ost 2009)
-Suzy (Bae su ji) : Winter child (Dream hight ost), naissance : 10/10/1994.
-Sun ye (Min seon ye) : maybe (Dream hight ost), naissance : 12/08/1989
-다비치(Davichi) : 너라서(because it's you, big ost 2012) (가사 첨부)
-Kim Eun Ji (Maybee) : 25/09/1983, Daso (다소), I wish, A Letter From Abell 1689 album, 2006.
-Choi Seo-yeon (Choi Hyejin) : 11/04/1988, My love, look at me (그대 보세요). Hwang Jin-yi ost, 2006
-So Hyang (Kim So Hyang) : 05/04/1978, Beneath the moonlight (2), Love song for illusion ost, 2024
-Shin Ji Hoon (Sin Ji Hun) : 23/06/1998, Little tree, Family by choice ost, 2024.
-Yoari (Kang Mi Jun) : 03/10/1987, A somber night, Check in Hanyang ost, 2024.
-Cho Min-hye : 07/02/1987, Teenage superstar, 2006
-Lim Jeong hee : 17/05/1981, 흔적 (heunjeog), 
-Seo/suh Young-eun (서영은) : 22/07/1973, I like you (좋아), Romantic 2 album, 2006.
-Tae Yeon : Kim Tae Yeon,  09/03/1989, Can you hear me : Beethoven Virus ost, 2008
-Typhoon : Sol Bi (chanteuse : Gwon Seon-mi, 30/09/1984), Vol 1 Troika album, 2006.
-Davichi : Because it’you, Big ost, 2012.
-Bae Seul-ki : Bae Seul Ki, 27/09/1986, 1 One by one (원 바이 원), 11 A strong wooman (강한 여자 Instrumental) : The first album, 2006
-Girls’ Generation (So Nyuh Shi Dae) : Into the new world, 2007.
-Lee Sun Hee : 14/12/1964, Fox rain, My girlfriend is a nine-tailed fox ost, 2010.
-The grace Cheon Sang Ji Hee (groupe) : My everything, The grace album, 2006.
-Seeya (groupe) : Crazy love song, Invisble man ost, 2006.
-Kan Mi-youn : 02/02/1982, 2 : Old woman, Refreshing album, 2006.
-Song Ji Eun : 05/05/1990, The dance in the sky, Bichunmoo ost, 2008.
-Lee soo-young : interprétation de Gwanghwamun love song, ancienne chanson de Lee Moon-Sae (homme) de 1988.
-Loveholics : Hwang Ji Sun, 23/10/1979, Only if i have you, Nice dream album, 2006.
-Orly : 19/01/2003, crush on you, 2019.
-Bolbbalgan Sachungi (Bolbbalgan4) : Dream : Hwarang ost, 2017.
-Yumi : 13/12/1977, Star : 200 pounds beauty ost, 2006.
-Kim A Jung : 16/10/1982, Maria, 200 pounds beauty ost, 2006.
-Yeyoung (예영) (Geenius), Choi Ye Yeong : 31/05/2000, 100 Days of Dreams (백일몽) Missing crown prince ost, 2024. 
+Nam Sae Ra : 01/07/1997, Colored (Clean with passion for now ost, 2019).  
+Yoon Mi Rae : Natacha Shanta Reid, 31/05/1981, 3 I’ll listen to what you have to say, Who are you school 2015, 2015.  
+Byul (Kim go eun) : 22/10/1983, Remember  (Who are you school 2015).  
+Younha (Go yun  ha) : 29/04/1988, Pray (Who are you school 2015), Audition : 2006.  
+Wendy (Son seung hwan) : Return (Who are you school 2015), naissance : 21/02/1994.  
+IU (Lee ji eun) : 16/05/1993, Someday (Dream hight ost), Araro (Queen Seon Deok ost 2009).  
+Suzy (Bae su ji) : Winter child (Dream hight ost), naissance : 10/10/1994.  
+Sun ye (Min seon ye) : maybe (Dream hight ost), naissance : 12/08/1989.  
+다비치(Davichi) : 너라서(because it's you, big ost 2012) (가사 첨부).  
+Kim Eun Ji (Maybee) : 25/09/1983, Daso (다소), I wish, A Letter From Abell 1689 album, 2006.  
+Choi Seo-yeon (Choi Hyejin) : 11/04/1988, My love, look at me (그대 보세요). Hwang Jin-yi ost, 2006.  
+So Hyang (Kim So Hyang) : 05/04/1978, Beneath the moonlight (2), Love song for illusion ost, 2024.  
+Shin Ji Hoon (Sin Ji Hun) : 23/06/1998, Little tree, Family by choice ost, 2024.  
+Yoari (Kang Mi Jun) : 03/10/1987, A somber night, Check in Hanyang ost, 2024.  
+Cho Min-hye : 07/02/1987, Teenage superstar, 2006.  
+Lim Jeong hee : 17/05/1981, 흔적 (heunjeog).  
+Seo/suh Young-eun (서영은) : 22/07/1973, I like you (좋아), Romantic 2 album, 2006.  
+Tae Yeon : Kim Tae Yeon,  09/03/1989, Can you hear me : Beethoven Virus ost, 2008.  
+Typhoon : Sol Bi (chanteuse : Gwon Seon-mi, 30/09/1984), Vol 1 Troika album, 2006.  
+Davichi : Because it’you, Big ost, 2012.  
+Bae Seul-ki : Bae Seul Ki, 27/09/1986, 1 One by one (원 바이 원), 11 A strong wooman (강한 여자 Instrumental) : The first album, 2006.  
+Girls’ Generation (So Nyuh Shi Dae) : Into the new world, 2007.  
+Lee Sun Hee : 14/12/1964, Fox rain, My girlfriend is a nine-tailed fox ost, 2010.  
+The grace Cheon Sang Ji Hee (groupe) : My everything, The grace album, 2006.  
+Seeya (groupe) : Crazy love song, Invisble man ost, 2006.  
+Kan Mi-youn : 02/02/1982, 2 : Old woman, Refreshing album, 2006.  
+Song Ji Eun : 05/05/1990, The dance in the sky, Bichunmoo ost, 2008.  
+Lee soo-young : interprétation de Gwanghwamun love song, ancienne chanson de Lee Moon-Sae (homme) de 1988.  
+Loveholics : Hwang Ji Sun, 23/10/1979, Only if i have you, Nice dream album, 2006.  
+Orly : 19/01/2003, crush on you, 2019.  
+Bolbbalgan Sachungi (Bolbbalgan4) : Dream : Hwarang ost, 2017.  
+Yumi : 13/12/1977, Star : 200 pounds beauty ost, 2006.  
+Kim A Jung : 16/10/1982, Maria, 200 pounds beauty ost, 2006.  
+Yeyoung (예영) (Geenius), Choi Ye Yeong : 31/05/2000, 100 Days of Dreams (백일몽) Missing crown prince ost, 2024.  
 
-Instrumental 
-Lee Dong Joon : 05/02/1967 à Pusan, destiny love (iris ost 2009) 
-Changyeop Jeon : thinking of noona (shining inheritance/brilliant legacy ost 2009) 
-Oh Joon Sung : 25/06/1966, sad run (city hunter ost 2011) 
-Schanyeol punch stay with me (instrumental) (goblin ost 2016) 
-Park Se Jun (principal, débute en 1996 carrière parolier, compositeur et arrangeur musical) et Song Jin Seok, SAN E - Till The End (Defendant OST 2017) 
-The liar and his lover ost : Sing, yoon so rim ; Grandma and me, First meet at han river, Fall in love with Han Kyul. 
-Lee Dong Jun : 05/02/1967, Legend of evil lake, 21, Love theme 2003.
-Chanyeol (Park Chan Yul, 27/11/1992, and Punch (Bae Jin Yeong 19/02/1993),  Stay with me, Guadian/Gobelin ost, 2017, compositeur : Lee Seung Joo/ju : 08/03/1982.
-Jung Jae Hwan : Main theme, Virgin snow ost, 2007
-Let’s fight ghost ost : 07. 싸우자 귀신아 Title, 15. 현지와 봉팔이
-Who are you school 2015 : 10. 기도합니다, 11. 0 교시, 12. 별 비 그리고 엄마, 14. 악몽, 16. Fate, 17. 내게 기대어도돼, 20. 괜찮아, 21. Who Am I.
+Instrumental  
+Lee Dong Joon : 05/02/1967 à Pusan, destiny love (iris ost 2009).  
+Changyeop Jeon : thinking of noona (shining inheritance/brilliant legacy ost 2009).   
+Oh Joon Sung : 25/06/1966, sad run (city hunter ost 2011).  
+Schanyeol punch stay with me (instrumental) (goblin ost 2016).   
+Park Se Jun (principal, débute en 1996 carrière parolier, compositeur et arrangeur musical) et Song Jin Seok, SAN E - Till The End (Defendant OST 2017).   
+The liar and his lover ost : Sing, yoon so rim ; Grandma and me, First meet at han river, Fall in love with Han Kyul.  
+Lee Dong Jun : 05/02/1967, Legend of evil lake, 21, Love theme 2003.  
+Chanyeol (Park Chan Yul, 27/11/1992, and Punch (Bae Jin Yeong 19/02/1993),  Stay with me, Guadian/Gobelin ost, 2017, compositeur : Lee Seung Joo/ju : 08/03/1982.  
+Jung Jae Hwan : Main theme, Virgin snow ost, 2007.  
+Let’s fight ghost ost : 07. 싸우자 귀신아 Title, 15. 현지와 봉팔이.  
+Who are you school 2015 : 10. 기도합니다, 11. 0 교시, 12. 별 비 그리고 엄마, 14. 악몽, 16. Fate, 17. 내게 기대어도돼, 20. 괜찮아, 21. Who Am I.  
 
-Duo 
-Dream hight ost : Don’t leave me (2011) Lim jeong hee (17/05/1981), 2PM Junsu (Kim Min Jun : 15/01/1988)
-Who are you school 2015 ost : Titre original : Reset (Feat. 진실 of Mad Soul Child) Interprète : Tiger JK (11/06/1974), Paroles : Tiger JK, Ji Hun  ou Song Don Wun : (parolier), Compositeurs : Hwang Chan Hee (21/12/1980), Lee Seung Joo (Chanteur, 08/03/1982), Arrangements : Lee Seung Joo (chanteur), Featuring : Jin Sil ou Park Jin Sil, 08/09/1987) [Mad Soul Child], Wendy (chanteuse, Red velvet, 21/02/1994)
+Duo  
+Dream hight ost : Don’t leave me (2011) Lim jeong hee (17/05/1981), 2PM Junsu (Kim Min Jun : 15/01/1988).  
+Who are you school 2015 ost : Titre original : Reset (Feat. 진실 of Mad Soul Child) Interprète : Tiger JK (11/06/1974), Paroles : Tiger JK, Ji Hun  ou Song Don Wun : (parolier), Compositeurs : Hwang Chan Hee (21/12/1980), Lee Seung Joo (Chanteur, 08/03/1982), Arrangements : Lee Seung Joo (chanteur), Featuring : Jin Sil ou Park Jin Sil, 08/09/1987) [Mad Soul Child], Wendy (chanteuse, Red velvet, 21/02/1994).  
 
-Japon
+Japon  
 
-Album/artistes 
-Saint seiya (ost album 80-90's composée par Seiji Yokoyama 17/03/1935-08/07/2017), Masami Kurumada  06/12/1953 : auteur et dessinateur.
-Kazuko Kawashima  (chanteuse), 2 : Inside a dream, Aria of the tree, Seven senses, Tranquility, 3 : Yume no naka ni, Athena to sainttachi, 5 : Ending under the world tree, The goddess’ death, The dukarion deluge, 7 : The call of the mermaid.
+Album/artistes  
+Saint seiya (ost album 80-90's composée par Seiji Yokoyama 17/03/1935-08/07/2017), Masami Kurumada  06/12/1953 : auteur et dessinateur.  
+Kazuko Kawashima  (chanteuse), 2 : Inside a dream, Aria of the tree, Seven senses, Tranquility, 3 : Yume no naka ni, Athena to sainttachi, 5 : Ending under the world tree, The goddess’ death, The dukarion deluge, 7 : The call of the mermaid.  
 Nobuo Yamada : 20/01/1964 (chanteur), Pegasus fantasy (TV Size S.E.MIX), 
-Hironobu Kageyama : 18/02/1961 (chanteur), Soldier Dream (TV Size S.E.MIX Ver.II), Blue Dream (TVSize).
+Hironobu Kageyama : 18/02/1961 (chanteur), Soldier Dream (TV Size S.E.MIX Ver.II), Blue Dream (TVSize).  
 
-Saint seiya Tv Original Soundtrack 1 (1987)
-01 : Pegasus Ryuuseiken (Pegasus Fantasy, Eien Blue), 03 : Galaxian Wars, 06 : Goddess's Saint, 09 Sad Brothers, 10 : Era of Legend
-Saint seiya TV Origonal Soundtrack 2
-02 : Inside a Dream, 03 : Warrior of Sagitarius, 04 : Gather! Under Supervision of Athena, 05 Gilde Pegasus, 07 : Aria of the Three, 09 Guidance of Constellation, 10 Athena's Theme, 14 : Seven Senses,  18 : Fight Sanctuary, 19 Tranquility, 20 : Cosmo of Friendship, 
-Saint seiya Eternal Edition 3 
-05 : Saori, Torawaru, 08 : Yume no Naka ni, 09 : Hoshuu, 12 : Athena to Sainttachi, 13 Tsudoe! Athena no Moto ni, 
-Saint seiya Eternal Edition 4
-01 : Tobe ! Pegasus, 03 : Saint no Kyuusoku, 04 : Mittsu no Aria, 08 : Athena, 09 : Seiya no Tatakai, 11 : Seven senses, 15 : Gekitotsu! Sanctuary, 16 : Yuujou no Cosmo, 17 : Eien Blue (Instrumental Version, Fll Size), 
-Saint seiya Eternal Edition 5
-02 : Pegasus Fantasy (TV Size S.E.Mix), 03 : Asgard's Brother and Sister, 07 : Save Athena!, 08 : God Warriors vs Saints, 12 : Ending, Under the World Tree, 16 : The Goddess' Death, 23 : The Dukarion's Deluge,  27 Collapse of the Sun Shrine,
-Saint seiya Eternal Edition 6
-04 : Soldier Dream, Blue Dream (Instrumental Arrange), 07 : Legendary God Warriors, 13 : To Walhalla Palace, 20 : Blue Dream, 21 Blue Dream (TVSize), 
-Saint seiya Eternal Edition 7
-01 : Soldier Dream (TV Size S.E.MIX Ver.II), 03 : The Call of the Mermaid, 
-Bara no nai hanaya (ost album 2008 composée par Yoshimata Ryo né le 06/09/1959).
-Final fantasy (saga de jeux vidéo composée par Nobuo Uematsu né le 21/03/1959. 
-Final fantasy (from final fantasy series).
-Final fantasy 9 (2000) : Melody of lifes (Emiko Shiratori : chanteuse, 16/03/1950).
-Final fantasy 10 (2001) : Suteki da ne orchestral version (Rikki : Nakano Ritsuki, 19/01/1975). To Zanarkand : avec Yoki Mori au piano 
-Dragon ball Z : (1989) Shunsuke Kikuchi, 01/11/1931-24/04/2021
-Prologue & Subtitle I. Prologue & Subtitle II. Son Gohan and Piccolo Daimao. Son Goku is the strongest after all! The fearsome Ginyu Special Force. Goodbye Son goku. Dragon ball makafushigi adventure (instrumental). Peaceful times. Angel. Genkidama. Battle theme. Theme Vegeta.
-Akira Toriyama : 05/04/1955, 01/03/2024 est l’auteur et le dessinateur.
-Samurai shodown 6 : Kennosuke Suemura, Mitsuo Miyamoto, 
-16-Shogun's Contest (Jounaiminami Plaza Stage I).
-Zatoichi (2003) : Keiichi Suzuki, 28/08/1951, 11 : Festivo, 15 : Trailer.
-Schenmue (jeu vidéo) : Takenobue Mitsuyoshi, Shenmue main theme sedge tree  + orchestral version (plus longue), 1999. Ryuji Luchi Shenhua (sedge flower), version schenmue 3, 2019.
+Saint seiya Tv Original Soundtrack 1 (1987)  
+01 : Pegasus Ryuuseiken (Pegasus Fantasy, Eien Blue), 03 : Galaxian Wars, 06 : Goddess's Saint, 09 Sad Brothers, 10 : Era of Legend.  
+Saint seiya TV Origonal Soundtrack 2  
+02 : Inside a Dream, 03 : Warrior of Sagitarius, 04 : Gather! Under Supervision of Athena, 05 Gilde Pegasus, 07 : Aria of the Three, 09 Guidance of Constellation, 10 Athena's Theme, 14 : Seven Senses,  18 : Fight Sanctuary, 19 Tranquility, 20 : Cosmo of Friendship.  
+Saint seiya Eternal Edition 3  
+05 : Saori, Torawaru, 08 : Yume no Naka ni, 09 : Hoshuu, 12 : Athena to Sainttachi, 13 Tsudoe! Athena no Moto ni.   
+Saint seiya Eternal Edition 4  
+01 : Tobe ! Pegasus, 03 : Saint no Kyuusoku, 04 : Mittsu no Aria, 08 : Athena, 09 : Seiya no Tatakai, 11 : Seven senses, 15 : Gekitotsu! Sanctuary, 16 : Yuujou no Cosmo, 17 : Eien Blue (Instrumental Version, Fll Size).   
+Saint seiya Eternal Edition 5  
+02 : Pegasus Fantasy (TV Size S.E.Mix), 03 : Asgard's Brother and Sister, 07 : Save Athena!, 08 : God Warriors vs Saints, 12 : Ending, Under the World Tree, 16 : The Goddess' Death, 23 : The Dukarion's Deluge,  27 Collapse of the Sun Shrine.  
+Saint seiya Eternal Edition 6  
+04 : Soldier Dream, Blue Dream (Instrumental Arrange), 07 : Legendary God Warriors, 13 : To Walhalla Palace, 20 : Blue Dream, 21 Blue Dream (TVSize).  
+Saint seiya Eternal Edition 7  
+01 : Soldier Dream (TV Size S.E.MIX Ver.II), 03 : The Call of the Mermaid.   
+Bara no nai hanaya (ost album 2008 composée par Yoshimata Ryo né le 06/09/1959).  
+Final fantasy (saga de jeux vidéo composée par Nobuo Uematsu né le 21/03/1959.   
+Final fantasy (from final fantasy series).  
+Final fantasy 9 (2000) : Melody of lifes (Emiko Shiratori : chanteuse, 16/03/1950).  
+Final fantasy 10 (2001) : Suteki da ne orchestral version (Rikki : Nakano Ritsuki, 19/01/1975). To Zanarkand : avec Yoki Mori au piano.  
+Dragon ball Z : (1989) Shunsuke Kikuchi, 01/11/1931-24/04/2021.  
+Prologue & Subtitle I. Prologue & Subtitle II. Son Gohan and Piccolo Daimao. Son Goku is the strongest after all! The fearsome Ginyu Special Force. Goodbye Son goku.   Dragon ball makafushigi adventure (instrumental). Peaceful times. Angel. Genkidama.   Battle theme. Theme Vegeta.  
+Akira Toriyama : 05/04/1955, 01/03/2024 est l’auteur et le dessinateur.  
+Samurai shodown 6 : Kennosuke Suemura, Mitsuo Miyamoto, 16-Shogun's Contest (Jounaiminami Plaza Stage I).  
+Zatoichi (2003) : Keiichi Suzuki, 28/08/1951, 11 : Festivo, 15 : Trailer.  
+Schenmue (jeu vidéo) : Takenobue Mitsuyoshi, Shenmue main theme sedge tree + orchestral version (plus longue), 1999. Ryuji Luchi Shenhua (sedge flower), version schenmue 3, 2019.  
 
-Chanteuses album
-Yui yoshioka : From me to you (2006), Can't buy my love (2007), I loved yesterday (2008), né le 26/03/1987). 
-Single : Good bye days, 2006. Taiyo no uta version ost, 2006. Tommoray way, 2005. Feel my soul, 2005. Rolling star, 2007.
-N°1 mondial dans mon classement. 
-Ai kawashima : single best, né le 21/02/1986 
-C-ute : Queen of j-pop (2013), Airi Suzuki (2005-2017), Mai Hagiwara (2005-2017), Chisato Okai (2005-2017), Maimi Yajima (2005-2017), Saki Nakajima (2005-2017), Megumi Murakami (2005-2006), Kanna Arihara (2006-2009), Erika Umeda (2005-2009).
+Chanteuses album  
+Yui yoshioka : From me to you (2006), Can't buy my love (2007), I loved yesterday (2008), né le 26/03/1987).  
+Single : Good bye days, 2006. Taiyo no uta version ost, 2006. Tommoray way, 2005. Feel my soul, 2005. Rolling star, 2007.  
+N°1 mondial dans mon classement.  
+Ai kawashima : single best, né le 21/02/1986.  
+C-ute : Queen of j-pop (2013), Airi Suzuki (2005-2017), Mai Hagiwara (2005-2017), Chisato Okai (2005-2017), Maimi Yajima (2005-2017), Saki Nakajima (2005-2017), Megumi Murakami (2005-2006), Kanna Arihara (2006-2009), Erika Umeda (2005-2009).  
 
-Ayumi hamazaki : miss understood (2006), 02/10/1978
-Aragaki Yui : 11/06/1988, Hug album, 2009.
-Stéréopony (groupe) : A hydrangea blooms (2009) : Hara guni Narumi (Aimi) (chanteuse, guitare, paroles, composition + Yui Yoshioka), 04/09/1990.
-Single : I do it, Shiawaseno Okade Kurashitai
+Ayumi hamazaki : miss understood (2006), 02/10/1978.  
+Aragaki Yui : 11/06/1988, Hug album, 2009.  
+Stéréopony (groupe) : A hydrangea blooms (2009) : Hara guni Narumi (Aimi) (chanteuse, guitare, paroles, composition + Yui Yoshioka), 04/09/1990.  
+Single : I do it, Shiawaseno Okade Kurashitai.  
 
-Chanteuses single
-Matsuura Aya : 25/06/1986, Watarasebashi Close up version, the last night 浦亜弥 (2003), Ki ga tsukeba anata, 2005.
-Ai kawashima : le jour du départ (2013)
-川嶋あい__旅立ちの日に・・・(Lyrics)
-Toaka (十明) : 05/02/2003, Suzume no Tojimari/ すずめの戸締まり, 2022, Paroles : Noda Yojiro, Compositeurs : Jinnouchi Kazuma, Kuwahara Akira, Noda Yojiro. RADWIMPS, Arrangements : RADWIMPS
-Kaoru Amane (Sawajiri Erika) : Taiyou No Uta (2006), 08/04/1986
-Miwa : Otoshimono - [Juui Dolittle OST 2010] 
-Alan : 明日への讃歌 ~Orchestra Version~ red cliff Red Cliff ~Shin Sen~ (Japanese version) 
-Egoist (groupe) : interprété par Rondo (groupe), Namae no nai kaibutsu 2012, compositeur : Ryo, Supercell : groupe)
-Eri Sugai : 06/01/1961-21/12/2016, Konjaku Monogatari (Stories modern and ancient), 2001.
-Otsuka Ai :  09/09/1982, Momo no Hanabira (2003), Planetarium (Ai am best album).
-Ikimono Gakari : (groupe), Sakura, (chanteuse : Kiyoe Yoshioka, 29/02/1984),  compositeur et paroles : Mizuno Yoshiki, 17/12/1982), (2006).
-Kitano kie : 15/03/1991, Sakura saku (サクラサ), 2011, Hanataba, 2010. 
-Flower (groupe) : Rei (Washio Reina : 20/01/1994) Sakura regret 2012
-Rin’ : 2 : Sakitama, 5 : Miyabi (instrumental), Jikku album, 2004, Sakura Sakura, 2005.
-Morning musumé : (groupe), モーニング娘Mikaeri bijin (2014)  
-Mariya Nishiuchi : Hello (2016), naissance : 24/12/1993.
-Melodies of Life  Final Fantasy IX, composée par Nobuo Uematsu, et interprétée par Emiko Shiratori (jeu vidéo ps1, 2000).
-Mochida Kaori : 24/03/1978, Swimmy, Kekkon Dekinai Otoko ost, 2006.
-Momoiro clover z : Monoclo no nippon banzai (musique drôle), Battle an romance album, 2011.
-Yuikaori : Ogura Yui (15/08/1995), Ishihara Kaori (06/08/1993), Our steady boy (musique drôle), 2010.
-Ikuta Rira (Lilas Ikuta) : 25/09/2000, The name of life : Spirited away ost, compositeur : Joe Hisaishi, 05/12/1950.
-Nanase Aikawa : 16/02/1975, 鳥になれたら (5), 恋心 (7) : Paradox (第２集アルバム) album, 1997
-Nana Kitade : 02/05/1987, Kanashimi no kizu : Kanashimino kizu, 2005.
-Okuda Miwako : 13/02/1982, Shizuku : Golden best, 2000. Ame to yume no ato ni, 2003.
-Hinoi Asuka : 08/01/1991, Asu e no Hikari, 2007
-Sakai Noriko : 14/02/1971, Kagami no doresu, Die sterntaler (Zoku hoshi no kinka) ost, 1996.
-Demon slayer ost :
-Yejin Jang : Kamado tanjiro no uta (epic orchestral cover : feat Call of silence), compositeur : Masaru Shiina, arrangé et orchestré par Samuel Kim.
+Chanteuses single  
+Matsuura Aya : 25/06/1986, Watarasebashi Close up version, the last night 浦亜弥 (2003), Ki ga tsukeba anata, 2005.  
+Ai kawashima : le jour du départ (2013), 川嶋あい__旅立ちの日に・・・(Lyrics).  
+Toaka (十明) : 05/02/2003, Suzume no Tojimari/ すずめの戸締まり, 2022, Paroles : Noda Yojiro, Compositeurs : Jinnouchi Kazuma, Kuwahara Akira, Noda Yojiro. RADWIMPS, Arrangements : RADWIMPS.  
+Kaoru Amane (Sawajiri Erika) : Taiyou No Uta (2006), 08/04/1986.  
+Miwa : Otoshimono - [Juui Dolittle OST 2010] .  
+Alan : 明日への讃歌 ~Orchestra Version~ red cliff Red Cliff ~Shin Sen~ (Japanese version).  
+Egoist (groupe) : interprété par Rondo (groupe), Namae no nai kaibutsu 2012, compositeur : Ryo, Supercell : groupe).  
+Eri Sugai : 06/01/1961-21/12/2016, Konjaku Monogatari (Stories modern and ancient), 2001.  
+Otsuka Ai :  09/09/1982, Momo no Hanabira (2003), Planetarium (Ai am best album).  
+Ikimono Gakari : (groupe), Sakura, (chanteuse : Kiyoe Yoshioka, 29/02/1984),  compositeur et paroles : Mizuno Yoshiki, 17/12/1982), (2006).  
+Kitano kie : 15/03/1991, Sakura saku (サクラサ), 2011, Hanataba, 2010.  
+Flower (groupe) : Rei (Washio Reina : 20/01/1994) Sakura regret 2012.  
+Rin’ : 2 : Sakitama, 5 : Miyabi (instrumental), Jikku album, 2004, Sakura Sakura, 2005.  
+Morning musumé : (groupe), モーニング娘Mikaeri bijin (2014)  .  
+Mariya Nishiuchi : Hello (2016), naissance : 24/12/1993.  
+Melodies of Life  Final Fantasy IX, composée par Nobuo Uematsu, et interprétée par Emiko Shiratori (jeu vidéo ps1, 2000).  
+Mochida Kaori : 24/03/1978, Swimmy, Kekkon Dekinai Otoko ost, 2006.  
+Momoiro clover z : Monoclo no nippon banzai (musique drôle), Battle an romance album, 2011.  
+Yuikaori : Ogura Yui (15/08/1995), Ishihara Kaori (06/08/1993), Our steady boy (musique drôle), 2010.  
+Ikuta Rira (Lilas Ikuta) : 25/09/2000, The name of life : Spirited away ost, compositeur : Joe Hisaishi, 05/12/1950.  
+Nanase Aikawa : 16/02/1975, 鳥になれたら (5), 恋心 (7) : Paradox (第２集アルバム) album, 1997.  
+Nana Kitade : 02/05/1987, Kanashimi no kizu : Kanashimino kizu, 2005.  
+Okuda Miwako : 13/02/1982, Shizuku : Golden best, 2000. Ame to yume no ato ni, 2003.  
+Hinoi Asuka : 08/01/1991, Asu e no Hikari, 2007.  
+Sakai Noriko : 14/02/1971, Kagami no doresu, Die sterntaler (Zoku hoshi no kinka) ost, 1996.  
+Demon slayer ost :  
+Yejin Jang : Kamado tanjiro no uta (epic orchestral cover : feat Call of silence), compositeur : Masaru Shiina, arrangé et orchestré par Samuel Kim.  
 Akano : Kamado tanjiro no uta (compositeur : Masaru Shiina), Kimetsu no Yaiba), 2019.
-Sorah : Gurenge, epic version (attack of the titan style) (feat unravel – tokyo ghoul), arrangé et orchestré par Samuel Kim.
-Dasbee : Wasureji no kotonoha, 2022.
-Uru : Kokoroe, générique de Kazama Kimichika ost : Kyoujou zero, 2023.
-Matsuda Seiko : 10/03/1962, Ruriiro no Chikyuu, Bible pink and blue special edition, 1986.
+Sorah : Gurenge, epic version (attack of the titan style) (feat unravel – tokyo ghoul), arrangé et orchestré par Samuel Kim.  
+Dasbee : Wasureji no kotonoha, 2022.  
+Uru : Kokoroe, générique de Kazama Kimichika ost : Kyoujou zero, 2023.  
+Matsuda Seiko : 10/03/1962, Ruriiro no Chikyuu, Bible pink and blue special edition, 1986.  
 
-Instrumental 
-Poison (instrumental), Great teacher onizuka ost, 1998, composé par Shinjiro Inoue, 1407/1967. 
-Genji dawn of the samuraî main theme, (jeu vidéo ps2 2005), Yasuharu Takanashi, 13/04/1964
-Heaven and hearth (ost 1993 par kitaro : Masanori Takahashi : 04/02/1953) 
-First love reasonless love (instrumental) (majo no joken ost 1999), chanteuse : Utada hikaru (naissance : 19/01/1983), compositeur : Zen nishizawa, youzuke, parole youzuke.
-byakuya wo iku (byaku yakou (白夜行)  2006 ost, composé par Kono Shin : 11/11/1964.
-赤い糸-メインテーマ : Akai ito ost 2008 composé par Yugo Kanno, 05/06/1977. 
-Merry christhmas Mr. Lawrence, Ryuichi Sakamoto, 17/01/1952, film 1983
-Yoriichi theme, epic version (extended theme) Demon slayer ost composé par Masaru Shiina et Yuki Kajiura, arrangé et orchestré par Samuel Kim.
-Hiromitsu Agatsuma : 27/07/1973, Sono otoko main thème, 2010.
+Instrumental  
+Poison (instrumental), Great teacher onizuka ost, 1998, composé par Shinjiro Inoue, 1407/1967.  
+Genji dawn of the samuraî main theme, (jeu vidéo ps2 2005), Yasuharu Takanashi, 13/04/1964.  
+Heaven and hearth (ost 1993 par kitaro : Masanori Takahashi : 04/02/1953).  
+First love reasonless love (instrumental) (majo no joken ost 1999), chanteuse : Utada hikaru (naissance : 19/01/1983), compositeur : Zen nishizawa, youzuke, parole youzuke.  
+Byakuya wo iku (byaku yakou (白夜行)  2006 ost, composé par Kono Shin : 11/11/1964.
+赤い糸-メインテーマ : Akai ito ost 2008 composé par Yugo Kanno, 05/06/1977.   
+Merry christhmas Mr. Lawrence, Ryuichi Sakamoto, 17/01/1952, film 1983.  
+Yoriichi theme, epic version (extended theme) Demon slayer ost composé par Masaru Shiina et Yuki Kajiura, arrangé et orchestré par Samuel Kim.  
+Hiromitsu Agatsuma : 27/07/1973, Sono otoko main thème, 2010.  
 
-Vietnam 
-Xuan mai né le 05/01/1995 : Giac Mo Tuyet Voi, Một Ngày Của Nó, (Ngay Xua Qua Roi) Xuan Mai hat bai nguoi lon roi, Cò Lớn - Xuân Mai (With Lyric and Mp3), Cây Sao Giấy, Nghĩa Mẹ, Ca Nhạc Thiếu Nhi Hay,
-Nguyen Thuy Chi (Chi pu) : 14/06/1993, SHH! CHỈ TA BIẾT THÔI (Chị Chị Em Em OST), 2022.
-Esther Lu’u (Hari Won) : origine coréenne, 22/06/1985, Ahn Cu Di Di, version normal et remix dance version : 1minute56, 2016.
-Tran Thi Dung (Juky San) : 14/01/1998, Thien Ha Huru Tinh Nhan, Than Dieu Dai Hiep 1995 ost, 2020.
-Nguyen Hoai Bao Ahn (Bao Ahn) : 03/09/1992, Ai khoc Noi Dau Nay, 2018.
-Bui Thi Bich Phuong (Bich Phuong) : 30/09/1989, Ken Ca Chon Anh, 2018.
-Thuy Tien : 12/01/1972, Chot la noi dau, 2017.
+Vietnam  
+Xuan mai né le 05/01/1995 : Giac Mo Tuyet Voi, Một Ngày Của Nó, (Ngay Xua Qua Roi) Xuan Mai hat bai nguoi lon roi, Cò Lớn - Xuân Mai (With Lyric and Mp3), Cây Sao Giấy, Nghĩa Mẹ, Ca Nhạc Thiếu Nhi Hay.  
+Nguyen Thuy Chi (Chi pu) : 14/06/1993, SHH! CHỈ TA BIẾT THÔI (Chị Chị Em Em OST), 2022.  
+Esther Lu’u (Hari Won) : origine coréenne, 22/06/1985, Ahn Cu Di Di, version normal et remix dance version : 1minute56, 2016.  
+Tran Thi Dung (Juky San) : 14/01/1998, Thien Ha Huru Tinh Nhan, Than Dieu Dai Hiep 1995 ost, 2020.  
+Nguyen Hoai Bao Ahn (Bao Ahn) : 03/09/1992, Ai khoc Noi Dau Nay, 2018.  
+Bui Thi Bich Phuong (Bich Phuong) : 30/09/1989, Ken Ca Chon Anh, 2018.  
+Thuy Tien : 12/01/1972, Chot la noi dau, 2017.  
 
-Thailande
-Kiss me five (groupe): Mild (07/04/1993), Gail (Natcha Eksangkul : 16/10/1994), Pakakanya Charoenyos), (30/03/1995), Maylada Susri (04/06/1996), sensitive (Wai to khwam rusuek), 2010.
-Ink Waruntorn Paonil (อิ้งค์ วรันธร เปานิล) : 23/02/1994, ถ้าเธอรักใครคนหนึ่ง, OST Love Destiny The Movie, 2022. 
-JinNoi (จินน้อย) : ผมเอาคนนี้นะ (je prends cette personne), reprise (cover) de PORZAX : 2021, ไม่มองไม่ได้ (je ne peux pas regarder, je ne peux pas) reprise (cover) de P.A.P BEAT BAND feat.9frvme : 2021.
-Bell 玲惠 (Ling Hui) : reprise en 2022 (cover) de I Like You ชอบเธออะ PtrpStudio, 2022.
-Instrumental
-Dark Blue Kiss OST Opening, 2019.
+Thailande  
+Kiss me five (groupe): Mild (07/04/1993), Gail (Natcha Eksangkul : 16/10/1994), Pakakanya Charoenyos), (30/03/1995), Maylada Susri (04/06/1996), sensitive (Wai to khwam rusuek), 2010.  
+Ink Waruntorn Paonil (อิ้งค์ วรันธร เปานิล) : 23/02/1994, ถ้าเธอรักใครคนหนึ่ง, OST Love Destiny The Movie, 2022.  
+JinNoi (จินน้อย) : ผมเอาคนนี้นะ (je prends cette personne), reprise (cover) de PORZAX : 2021, ไม่มองไม่ได้ (je ne peux pas regarder, je ne peux pas) reprise (cover) de P.A.P BEAT BAND feat.9frvme : 2021.  
+Bell 玲惠 (Ling Hui) : reprise en 2022 (cover) de I Like You ชอบเธออะ PtrpStudio, 2022. Instrumental  
+Dark Blue Kiss OST Opening, 2019.  
 
-Myanmar (Birmanie)
+Myanmar (Birmanie)  
 
-Htet Thiri : 19/01/2002, Shae sat yan ma shi, version 3minutes22, 2019.
-L Sai Zi : Moe Yar Thi Ttae
-Naa : Mhar pyan tal, reprise (cover) de Thir Zar Maw, chanson de Mhar Pyan Tal composé par Min Chit Thu, 2024.
-Philippines
-Salidummay, Danum (Water), 2010
+Htet Thiri : 19/01/2002, Shae sat yan ma shi, version 3minutes22, 2019.  
+L Sai Zi : Moe Yar Thi Ttae.  
+Naa : Mhar pyan tal, reprise (cover) de Thir Zar Maw, chanson de Mhar Pyan Tal composé par Min Chit Thu, 2024.  
 
-Laos
+Philippines  
+Salidummay, Danum (Water), 2010.  
 
-Nutdao : นะหน้าทอง (Na Na Thong), โจอี้ ภูวศิษฐ์ reprise (cover) de Joey Phuwasit, 2022.
+Laos  
 
-Cambodge
+Nutdao : นะหน้าทอง (Na Na Thong), โจอี้ ภูวศิษฐ์ reprise (cover) de Joey Phuwasit, 2022.  
 
-Bee Emm : langue Kmer, មើលបងយូៗ ដូចសមនឹងអូន l (Regarde-toi longtemps, comme si tu me correspondais), reprise (cover) de Sour Botrithy avec Kung Chhingken 2022. 
-លក់គោយន្ (vendre des vaches), reprise (cover) de Noly records, 2021. 
-ឃើញត្រង់ណា - ត្រង់ណាថាចាស់ l (voir où, où vieux), reprise (cover) composé par Sour Botrithy (chanteur) avec Kung Chhingken (chanteur),  2022.
+Cambodge  
 
-Indonésie
+Bee Emm : langue Kmer, មើលបងយូៗ ដូចសមនឹងអូន l (Regarde-toi longtemps, comme si tu me correspondais), reprise (cover) de Sour Botrithy avec Kung Chhingken 2022.  
+លក់គោយន្ (vendre des vaches), reprise (cover) de Noly records, 2021.  
+ឃើញត្រង់ណា - ត្រង់ណាថាចាស់ l (voir où, où vieux), reprise (cover) composé par Sour Botrithy (chanteur) avec Kung Chhingken (chanteur),  2022.  
 
-Ghea Indrawari : 10/03/1998, album Trending Terbaru.
-Chansons : Jiwa Yang Bersedih, Oh Tuhan ! 2023.
-Nisa Fauzia : Tapi bohong, 2019.
+Indonésie  
 
-Chanteurs asiatiques
+Ghea Indrawari : 10/03/1998, album Trending Terbaru.  
+Chansons : Jiwa Yang Bersedih, Oh Tuhan ! 2023.  
+Nisa Fauzia : Tapi bohong, 2019.  
 
-Japon
-Takamashi Sorimashi : 19/12/1973, Poison, Great teacher Onisuka (GTO) ost, (1998).
-Yamashita Tatsuro : 04/02/1953, Zutto issho sa, Bara no nai hanaya ost, 2008.
-Nobuo Yamada : 20/01/1964 (chanteur), Pegasus fantasy.
-Hironobu Kageyama : 18/02/1961 (chanteur), Soldier Dream (TV Size S.E.MIX Ver.II), Blue Dream (TVSize).
+Chanteurs asiatiques  
 
-Corée
-Park Jin Young : Park Jin Yeon, 22/09/1994, Can’t forget (If) : Dream hight ost drama (2011). Artist : Gelly Hoo, album The sword legend (music inspired by the film). 
-Kim So Hyun : 16/02/1988, Dream, Dream hight ost drama, 2011.
-Traxx : (groupe, Typhoon of the Rose Attack on X-Mas), Cold Rain (chanteur : Typhoon Jay : Kim Kyun-woo, 08/04/1983), The first album : Cold rain 2006), Embrace one’s soul, (2006), Find the way 2007.
-Huh Hak : 15/11/1984, One person de Big ost drama, 2012.
-SHINHWA : 4, Once in a lifetime, State of the art album, 2006
-Eric Mun (Leader, Rap) (1998 -), Mun Jeong Hyeok, 16/02/1979
-M Lee Min Woo (Chant, Danse, Chorégraphe) (1998 -), Lee Min Wu, 28/07/1979. Kim Dong Wan (Chant) (1998 -), 21/11/1979. Shin Hye Sung (Chanteur principal) (1998 -), Jeong Pil Gyo, 27/11/1979. Jun Jin (Chant, Rap, Danse) (1998 -), Park Chung Jae, 19/08/1980. Andy (SHINHWA) (Rap, Maknae) (1998 -), Lee Seon Ho, 21/01/1981.
-Epik High : (groupe), fan, Remapping the human soul (album 2007).
-Son Ho Young : Andrew Son, 36/03/1980. Crying, Yes album, 2006.
-F.T.island (groupe): Love sick, 1st album Cheerful sensibility, 2007.
-Shin Seung Hun : 21/03/1966, I believe, My sassy girl ost 2001.
-Kim Jong Kook : 25/04/1976, Saying i love you : Fourth letter album, 2006.
-Im Tae Kyung : 04/07/1973, 처음 그 때처럼 : cheoeum geu ttaecheoleom (memory of love ou Like the fisrt time), Jumong ost, 2006.
-Lim Hyunsik : 07/03/1992, See the light (When the phone rings ost 2024), parole : Kinsha (Kim Seo a), compositeur : Allthou (06/03/1992), Kim Su hyeon.
+Japon  
+Takamashi Sorimashi : 19/12/1973, Poison, Great teacher Onisuka (GTO) ost, (1998).  
+Yamashita Tatsuro : 04/02/1953, Zutto issho sa, Bara no nai hanaya ost, 2008.  
+Nobuo Yamada : 20/01/1964 (chanteur), Pegasus fantasy.  
+Hironobu Kageyama : 18/02/1961 (chanteur), Soldier Dream (TV Size S.E.MIX Ver.II), Blue Dream (TVSize).  
 
-Chine	
-Nicky Wu : 31/10/1970, Liang Zhu, Butterfly lovers ost, 1994. Theme, Li houzhu Zhao kuang yin ost, 2006.
-Hu Ge : 20/09/1982, Nirvana in fire ost, When the wind blows (2015)
-Lu Runze : 盧潤澤, 土坡上的狗尾草, L’herbe à queue de chien ur la pente, 2024.
+Corée  
+Park Jin Young : Park Jin Yeon, 22/09/1994, Can’t forget (If) : Dream hight ost drama (2011). Artist : Gelly Hoo, album The sword legend (music inspired by the film).   
+Kim So Hyun : 16/02/1988, Dream, Dream hight ost drama, 2011.  
+Traxx : (groupe, Typhoon of the Rose Attack on X-Mas), Cold Rain (chanteur : Typhoon Jay : Kim Kyun-woo, 08/04/1983), The first album : Cold rain 2006), Embrace one’s soul, (2006), Find the way 2007.  
+Huh Hak : 15/11/1984, One person de Big ost drama, 2012.  
+SHINHWA : 4, Once in a lifetime, State of the art album, 2006.  
+Eric Mun (Leader, Rap) (1998 -), Mun Jeong Hyeok, 16/02/1979.  
+M Lee Min Woo (Chant, Danse, Chorégraphe) (1998 -), Lee Min Wu, 28/07/1979. Kim Dong Wan (Chant) (1998 -), 21/11/1979. Shin Hye Sung (Chanteur principal) (1998 -), Jeong Pil Gyo, 27/11/1979. Jun Jin (Chant, Rap, Danse) (1998 -), Park Chung Jae, 19/08/1980. Andy (SHINHWA) (Rap, Maknae) (1998 -), Lee Seon Ho, 21/01/1981.  
+Epik High : (groupe), fan, Remapping the human soul (album 2007).  
+Son Ho Young : Andrew Son, 36/03/1980. Crying, Yes album, 2006.  
+F.T.island (groupe): Love sick, 1st album Cheerful sensibility, 2007.  
+Shin Seung Hun : 21/03/1966, I believe, My sassy girl ost 2001.  
+Kim Jong Kook : 25/04/1976, Saying i love you : Fourth letter album, 2006.  
+Im Tae Kyung : 04/07/1973, 처음 그 때처럼 : cheoeum geu ttaecheoleom (memory of love ou Like the fisrt time), Jumong ost, 2006.  
+Lim Hyunsik : 07/03/1992, See the light (When the phone rings ost 2024), parole : Kinsha (Kim Seo a), compositeur : Allthou (06/03/1992), Kim Su hyeon.  
 
-Kazakhstan
-Dimash Qudaibergen (Dinmukhammed Qanatuly Qudaibergenov Aitbaev) : kazakhstan, 24/05/1994, The meaning of eternity (paroles : Yu Jiang, compositeur : Sa Dingding), 2018.
+Chine  
+Nicky Wu : 31/10/1970, Liang Zhu, Butterfly lovers ost, 1994. Theme, Li houzhu Zhao kuang yin ost, 2006.  
+Hu Ge : 20/09/1982, Nirvana in fire ost, When the wind blows (2015).  
+Lu Runze : 盧潤澤, 土坡上的狗尾草, L’herbe à queue de chien ur la pente, 2024.  
 
-Musique générale
+Kazakhstan  
+Dimash Qudaibergen (Dinmukhammed Qanatuly Qudaibergenov Aitbaev) : kazakhstan, 24/05/1994, The meaning of eternity (paroles : Yu Jiang, compositeur : Sa Dingding), 2018.  
 
-De 1600 à 1899
-Musique baroque, classique, romantique…
-Jean-Baptiste Lully : France d’origine italienne, 28/11/1632-22/03/1687, Armide overture 1686, louis XIV marche pour la céréonie des turcs 1670, danse de neptune 1664-1670.
-Marc-Antoine Charpentier : France, 1643-24/02/1704, Te Deum.
-Arcangelo corelli : Italie, 17/02/1653-08/01/1713, La folia.
-Johann Pachelbel : Allemagne, 01/09/1653-03/03/1706.
-Canon and Gigue in D Major, P. 37: I. Canon.
-Antonio lucio Vivaldi : Italie 04/03/1678, 28/07/1741.
-The Four Seasons. “Summer”: III. Presto 1725, Spring 1725, Winter 1725, Concert for 4 violins Op.3/10 III (allegro).
-George Frideric Haendel : Allemagne, 23/02/1685-14/04/1759.
-Messiah, HWV 56, Pt. 2 Scene 7: No. 44, Hallelujah (Chorus) 1741, Sarabande 1733.
-Jean-Sébastien Bach : Allemagne 21/03/1685, 28/07/1750.
-Orchestral Suite No. 3: II. Air on the G string 1730.
-Prelude in C major from the well-tempered clavier 1722.
-Jesus may my joy endure 1723.
-Badinerie from the second suite for orchestra 1730.
-Toccato and fugue and D minor 1703-1707.
-Thomas Augustine Arne : 12/03/1710-05/03/1778, Rule, Britannia !, 1740.
-Luigi Boccherini : Italie, 19/02/1743-28/05/1805.
-String Quintet in E Major, G. 282: III. Minuetto – Trio.
-Wolfgang amadeus mozart : autriche 27/01/1756, 05/12/1791.
-Symphony No. 40: I. Molto allegro 1788.
-Symphony no. 25 1773.
-Requiem: Dies Irae 1793.
-Requiem in D Minor, K. 626: III. Sequenz, No. 6, Lacrymosa 1791.
-Piano Sonata No. 11: III. Alla Turca (Turkish march) 1783.
-Piano Concerto No. 21 in C Major, K. 467: II. Andante 1793.
-A little night music : Serenade in G Major, K. 525 "Eine kleine Nachtmusik": I. Allegro 1787.
-Ludwig van beethoven : Allemagne 17/12/1770, 26/03/1827.
-"Moonlight Sonata": I. Adagio sostenuto 1801-1802.
-Symphony No. 7: II. Allegretto 1811-1810.
-Bagatelle No. 25 "Für Elise" 1810.
-Symphony No. 5 in C minor, Op.67 (fate) : Allegro con brio 1804-1812.
-Symphony No. 9 in D Minor, Op. 125 "Choral": IV. Presto (Excerpt: Ode to Joy) 1802-1804.
-Niccolo paganini : Italie, 27/10/1782-27/05/1840.
-24th caprice 1805-1809.
-La campanella.	
-Gioacchino Rossini : Italie, 29/02/1792-13/11/1868.
-Guillaume Tell Final overtur 1828.
+Musique générale  
+
+De 1600 à 1899  
+Musique baroque, classique, romantique…  
+Jean-Baptiste Lully : France d’origine italienne, 28/11/1632-22/03/1687, Armide overture 1686, louis XIV marche pour la céréonie des turcs 1670, danse de neptune 1664-1670.  
+Marc-Antoine Charpentier : France, 1643-24/02/1704, Te Deum.  
+Arcangelo corelli : Italie, 17/02/1653-08/01/1713, La folia.  
+Johann Pachelbel : Allemagne, 01/09/1653-03/03/1706.  
+Canon and Gigue in D Major, P. 37: I. Canon.  
+Antonio lucio Vivaldi : Italie 04/03/1678, 28/07/1741.  
+The Four Seasons. “Summer”: III. Presto 1725, Spring 1725, Winter 1725, Concert for 4 violins Op.3/10 III (allegro).  
+George Frideric Haendel : Allemagne, 23/02/1685-14/04/1759.  
+Messiah, HWV 56, Pt. 2 Scene 7: No. 44, Hallelujah (Chorus) 1741, Sarabande 1733.  
+Jean-Sébastien Bach : Allemagne 21/03/1685, 28/07/1750.  
+Orchestral Suite No. 3: II. Air on the G string 1730.  
+Prelude in C major from the well-tempered clavier 1722.  
+Jesus may my joy endure 1723.  
+Badinerie from the second suite for orchestra 1730.  
+Toccato and fugue and D minor 1703-1707.  
+Thomas Augustine Arne : 12/03/1710-05/03/1778, Rule, Britannia !, 1740.  
+Luigi Boccherini : Italie, 19/02/1743-28/05/1805.  
+String Quintet in E Major, G. 282: III. Minuetto – Trio.  
+Wolfgang amadeus mozart : autriche 27/01/1756, 05/12/1791.  
+Symphony No. 40: I. Molto allegro 1788.  
+Symphony no. 25 1773.  
+Requiem: Dies Irae 1793.  
+Requiem in D Minor, K. 626: III. Sequenz, No. 6, Lacrymosa 1791.  
+Piano Sonata No. 11: III. Alla Turca (Turkish march) 1783.  
+Piano Concerto No. 21 in C Major, K. 467: II. Andante 1793.  
+A little night music : Serenade in G Major, K. 525 "Eine kleine Nachtmusik": I. Allegro 1787.  
+Ludwig van beethoven : Allemagne 17/12/1770, 26/03/1827.  
+"Moonlight Sonata": I. Adagio sostenuto 1801-1802.  
+Symphony No. 7: II. Allegretto 1811-1810.  
+Bagatelle No. 25 "Für Elise" 1810.  
+Symphony No. 5 in C minor, Op.67 (fate) : Allegro con brio 1804-1812.  
+Symphony No. 9 in D Minor, Op. 125 "Choral": IV. Presto (Excerpt: Ode to Joy) 1802-1804.  
+Niccolo paganini : Italie, 27/10/1782-27/05/1840.  
+24th caprice 1805-1809.  
+La campanella.  
+Gioacchino Rossini : Italie, 29/02/1792-13/11/1868.  
+Guillaume Tell Final overtur 1828.  
 The barber of Seville 1816 basé sur Pierre Beaumarchais, chant et instrumental, 1775.
-Franz Schubert : Autriche 31/01/1797, 19/11/1828.
-Ave maria, D. 839 1825.
-Johann Strauss I : Autriche, 14/03/1804-25/09/1849.
-Radetzky March 1848.
-Luigi Ricci : 08/07/1805-31/12/1859, Tarantella Napoletana, 1852.
-Felix Mendelssohn : Allemagne /03/02/1809-04/11/1847.
-A Midsummer Night’s Dream: Wedding March 1826.
-Frédéric Chopin : Pologne France 01/03/1810, 17/10/1849.
-Nocturnes, Op. 9: No. 2 in E-Flat Major 1830-1832.
-Fantaisie-impromptu 1834.
-Franz Liszt : Hongrie, 22/10/1811-31/07/1886.
-Consolations, S. 172: No. 3, Lento placido 1850.
-Liebesträume (love dream), S. 541: No. 3 in A-Flat Major 1850.
-Hungarian rhapsody no. 2, 1847.
-Wilhelm Richard Wagner : Allemagne 22/05/1813, 13/02/1883.
-Ride of the Valkyries 1851.
-Joseph Fortunin François Verdi : Italie 10/10/1813, 27/01/1901.
-Nabucco, Act III: Chorus of the Hebrew Slaves "Va pensiero, sull'ali dorate" 1842.
-La Donna e mobile 1851.
-Aida grand march (chant), 1870.
-La traviata, Libiamo, chant et instrumental, 1853.
-Charles Gounod : 17/06/1818-18/10/1893, Funeral march of a marionnette, 1872.
-Von Suppé : 18/04/1819-21/05/1895, Light cavalry overture Franz, 1866.
-Jacques Offenbach : Allemagne, naturalisé Français, 20/06/1819-05/10/1880, French cancan 1868.
+Franz Schubert : Autriche 31/01/1797, 19/11/1828.  
+Ave maria, D. 839 1825.  
+Johann Strauss I : Autriche, 14/03/1804-25/09/1849.  
+Radetzky March 1848.  
+Luigi Ricci : 08/07/1805-31/12/1859, Tarantella Napoletana, 1852.  
+Felix Mendelssohn : Allemagne /03/02/1809-04/11/1847.  
+A Midsummer Night’s Dream: Wedding March 1826.  
+Frédéric Chopin : Pologne France 01/03/1810, 17/10/1849.  
+Nocturnes, Op. 9: No. 2 in E-Flat Major 1830-1832.  
+Fantaisie-impromptu 1834.  
+Franz Liszt : Hongrie, 22/10/1811-31/07/1886.  
+Consolations, S. 172: No. 3, Lento placido 1850.  
+Liebesträume (love dream), S. 541: No. 3 in A-Flat Major 1850.  
+Hungarian rhapsody no. 2, 1847.  
+Wilhelm Richard Wagner : Allemagne 22/05/1813, 13/02/1883.  
+Ride of the Valkyries 1851.  
+Joseph Fortunin François Verdi : Italie 10/10/1813, 27/01/1901.  
+Nabucco, Act III: Chorus of the Hebrew Slaves "Va pensiero, sull'ali dorate" 1842.  
+La Donna e mobile 1851.  
+Aida grand march (chant), 1870.  
+La traviata, Libiamo, chant et instrumental, 1853.  
+Charles Gounod : 17/06/1818-18/10/1893, Funeral march of a marionnette, 1872.  
+Von Suppé : 18/04/1819-21/05/1895, Light cavalry overture Franz, 1866.  
+Jacques Offenbach : Allemagne, naturalisé Français, 20/06/1819-05/10/1880, French cancan 1868.  
 Jesus gonzales rubio : 1820-26/04/1874, Mexican hat dance (jarabe tapatio), 1850.
-Johann strauss II : Autriche 25/10/1825, 03/06/1899.
-Voices of spring 1882.
-Emperor Waltz 1889.
-The Blue Danube, Op. 314 1866.
-Tritsch-Tratsch-Polka 1858.
-Daniel Butterfield : 31/10/1831-17/07/1901, Taps 1852.
-Johannes Brahms : Allemagne 07/05/1833, 03/04/1897.
-21 Hungarian Dances, WoO 1: No. 5, Allegro in F-Sharp Minor 1879.
-Third symphony 1883.
-Amilcare Ponchielli : 31/08/1834-16/01/1886, Dance of the hours, 1874.
-Camille Saint-Saëns : France : 09/10/1835-16/12/1921.
-Aquarium 1886.
-Léo Delibes : France, 21/02/1836-16/01/1891.
-Duo of flowers, chant, 1883.
-Georges Bizet : France, 25/10/1838-03/06/1875.
-Carmen : les toreadors 1875.
-Carmen Suite No. 2: II. Habanera.
-Carmen overture.
-L'Arlesienne Suite No. 1, WD 40: I. Prelude.
-Modeste Petrovitch Mussorgski : Russie, 21/03/1839-28/03/1881. 
-Night on Bald Mountain 1867.
-Piotr llitch Tchaïkovski : Russie 25/04/1840, 25/10/1893.
-Swan Lake, Op. 20a: No. 1, Scène 1875-1876.
-1812 overture 1880.
-Sleeping beauty waltz 1889.
-Trepak (russian dance) 1892.
-Waltz of the flowers 1892.
-Dance of the sugar plum fairy 1892.
-Concerto pour piano et orchestre, No. 7 : Ouverture.
-Antonín Dvořák : Tchéquie, 08/09/1841-01/05/1904.
-Slavonic Dances, Op. 72: No. 2, Dumka (Allegretto grazioso) 1878-1886.
-Symphony no. 9 (fron the new world) 1893.
-New world symphony version courte 1893.
-Edvard grieg : Norvège, 15/06/1843-04/09/1907.
-Suite No. 1, Op. 46: I. Morning Mood 1875.
-Nicolai Rimsky Korsakov : Russie, 18/03/1844-21/06/1908.
-Flight of the bumbleble.
-Gabriel Fauré : France, 12/05/1845-04/11/1924.
-Pavane, Op. 50 1887.
-Giacomo Puccini : Italie, 22/12/1858-29/11/1924, Nessun dorma (chanté par Luciano Pavarotti).
-Richard Strauss : Allemagne, 11/06/1864-08/09/1949.
-Also sprach Zarathustra 1896.
-John philip Sousa : 06/11/1864-06/03/1932, The stars and stripes forever (1896), the washington post (1889).
-Paul Dukas : France, 01/10/1865-17/05/1935.
-The sorcerer’s apprentice 1897.
-Eric Satie : France, 17/05/1866-01/07/1925.
-Trois Gymnopedies: No. 1, Lent et douloreux 1888.
-Juventino Rosas : 25/01/1868-09/07/1894, Over the waves 1888.
-Julius Fucik : 18/07/1872-25/09/1916, Entrance of the gladiators 1897.
-James lord pierpont : 25/04/1822-05/08/1893, jingle bells version symphonique instrumentale 1889, date d’enregistrement inconnu.
+Johann strauss II : Autriche 25/10/1825, 03/06/1899.  
+Voices of spring 1882.  
+Emperor Waltz 1889.  
+The Blue Danube, Op. 314 1866.  
+Tritsch-Tratsch-Polka 1858.  
+Daniel Butterfield : 31/10/1831-17/07/1901, Taps 1852.  
+Johannes Brahms : Allemagne 07/05/1833, 03/04/1897.  
+21 Hungarian Dances, WoO 1: No. 5, Allegro in F-Sharp Minor 1879.  
+Third symphony 1883.  
+Amilcare Ponchielli : 31/08/1834-16/01/1886, Dance of the hours, 1874.  
+Camille Saint-Saëns : France : 09/10/1835-16/12/1921.  
+Aquarium 1886.  
+Léo Delibes : France, 21/02/1836-16/01/1891.  
+Duo of flowers, chant, 1883.  
+Georges Bizet : France, 25/10/1838-03/06/1875.  
+Carmen : les toreadors 1875.  
+Carmen Suite No. 2: II. Habanera.  
+Carmen overture.  
+L'Arlesienne Suite No. 1, WD 40: I. Prelude.  
+Modeste Petrovitch Mussorgski : Russie, 21/03/1839-28/03/1881.  
+Night on Bald Mountain 1867.  
+Piotr llitch Tchaïkovski : Russie 25/04/1840, 25/10/1893.  
+Swan Lake, Op. 20a: No. 1, Scène 1875-1876.  
+1812 overture 1880.  
+Sleeping beauty waltz 1889.  
+Trepak (russian dance) 1892.  
+Waltz of the flowers 1892.  
+Dance of the sugar plum fairy 1892.  
+Concerto pour piano et orchestre, No. 7 : Ouverture.  
+Antonín Dvořák : Tchéquie, 08/09/1841-01/05/1904.  
+Slavonic Dances, Op. 72: No. 2, Dumka (Allegretto grazioso) 1878-1886.  
+Symphony no. 9 (fron the new world) 1893.  
+New world symphony version courte 1893.  
+Edvard grieg : Norvège, 15/06/1843-04/09/1907.  
+Suite No. 1, Op. 46: I. Morning Mood 1875.  
+Nicolai Rimsky Korsakov : Russie, 18/03/1844-21/06/1908.  
+Flight of the bumbleble.  
+Gabriel Fauré : France, 12/05/1845-04/11/1924.  
+Pavane, Op. 50 1887.  
+Giacomo Puccini : Italie, 22/12/1858-29/11/1924, Nessun dorma (chanté par Luciano Pavarotti).  
+Richard Strauss : Allemagne, 11/06/1864-08/09/1949.  
+Also sprach Zarathustra 1896.  
+John philip Sousa : 06/11/1864-06/03/1932, The stars and stripes forever (1896), the washington post (1889).  
+Paul Dukas : France, 01/10/1865-17/05/1935.  
+The sorcerer’s apprentice 1897.  
+Eric Satie : France, 17/05/1866-01/07/1925.  
+Trois Gymnopedies: No. 1, Lent et douloreux 1888.  
+Juventino Rosas : 25/01/1868-09/07/1894, Over the waves 1888.  
+Julius Fucik : 18/07/1872-25/09/1916, Entrance of the gladiators 1897.  
+James lord pierpont : 25/04/1822-05/08/1893, jingle bells version symphonique instrumentale 1889, date d’enregistrement inconnu.  
 
 De 1900 à 1969
 Musique instrumentale
