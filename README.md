@@ -6908,21 +6908,21 @@ Je vois une vidéo d’un groupe de personnes qui fond des bruits d’appels com
 J’en ai pleins d’autres que j’ai oublié.  
 
 
-Le meilleur de la musique asiatique  
+**Le meilleur de la musique asiatique**  
 
 Chine  
 
 Album  
-Tai chi master (1993 ost album, Stephen Edwards et Wu Wai-lap : naissance en 1937), 11 : Let go (WaWa (Jin Zhi-Juan) : chanteuse, 04/10/1964).  
-The butterfly lover (1994 ost album, Mark Lui, James Wong, Raymond Wong et Wu Wai Lap)
-Crouching tiger, hidden dragon (2000 ost album, Tan dun, né le 18/08/1957).  
-Hero (2002 ost album, Tan dun).  
-Kung fu hustle (2004 ost album, Raymond Wong, 06/04/1968).   
-House of flying dragon (2004 ost album, Shigeru Umebayashi, né le 19/02/1951), 100% de belles musiques.  
-Seven sword (2005 ost album, Kenji Kawai, né le 23/04/1957).  
- The Final Sword Battle : The Dragon vs the Transcience 15, Children at Dawn 16, Seven Swords' Victory 17.  
-Jet's li fearless/le maître d'arme (2006 ost album, Shigeru Uebayashi) 01 Opening Title : Wu Shu Jing Shen, 20 season changes.  
-Drunken master 2 : Wu Wai Lap, 1994, Winnie Hsin : 08/02/1962, chanteuse de Ending love.   
+<ins>Tai chi master</ins> (1993 ost album, Stephen Edwards et Wu Wai-lap : naissance en 1937), 11 : Let go (WaWa (Jin Zhi-Juan) : chanteuse, 04/10/1964).  
+<ins>The butterfly lover</ins> (1994 ost album, Mark Lui, James Wong, Raymond Wong et Wu Wai Lap)
+<ins>Crouching tiger, hidden dragon</ins> (2000 ost album, Tan dun, né le 18/08/1957).  
+<ins>Hero</ins> (2002 ost album, Tan dun).  
+<ins>Kung fu hustle</ins> (2004 ost album, Raymond Wong, 06/04/1968).   
+<ins>House of flying dragon</ins> (2004 ost album, Shigeru Umebayashi, né le 19/02/1951), 100% de belles musiques.  
+<ins>Seven sword<i/ns> (2005 ost album, Kenji Kawai, né le 23/04/1957).  
+The Final Sword Battle : The Dragon vs the Transcience 15, Children at Dawn 16, Seven Swords' Victory 17.  
+<ins>Jet's li fearless</ins>/le maître d'arme (2006 ost album, Shigeru Uebayashi) 01 Opening Title : Wu Shu Jing Shen, 20 season changes.  
+<ins>Drunken master 2</ins> : Wu Wai Lap, 1994, Winnie Hsin : 08/02/1962, chanteuse de Ending love.   
 
 Instrumental  
 Il était une fois en chine, James Wong (1991 ost), Mr. Strong man (instrumental), George Lam (theme song).  
@@ -6942,7 +6942,7 @@ Mo Ming QI Miao (墨明棋妙groupe) : Wellson Cao (leader du groupe) ; Time tra
 Guo Yanni ( 郭燕妮): 海殇风雨 (la tempête et la mer)• • 瑶台天籁乐团 鼓浪长歌 (longue chanson de tambours et de vagues) 2023.  
 
 Chanteuses.  
-Wang Ziyu (王梓钰): né le 16/11/1995.  
+<ins>Wang Ziyu</ins> (王梓钰): né le 16/11/1995.  
 惊蛰 • 音阙诗听 • 王梓钰 • 殇小谨 • 假寐, 2018.  
 (大雪) 音阙诗听 二十四节气系列歌曲《Great Snow 》[The 24 solar terms], 2019.  
 (白露)音阙诗听（录音棚版）二十四节气系列歌曲, 2019.  
@@ -6950,123 +6950,123 @@ Wang Ziyu (王梓钰): né le 16/11/1995.
 音阙诗听/王梓钰《卯时》MusicVideo丨关于中国十二时辰, 2021.  
 音阙诗听/王梓钰(念小乔), 2022.  
 中元节 (Zhōng yuán jié), 2023.  
-Chen Sisi : 28/12/1976, jin Xiu Nai Dai album, 2006. My dear chinese people (Qin Qin de zhong guo ren), 2009. Enter the dream paradise, 2002.  
-Sa Dingding : 27/12/1980, Upwards to the Moon (左手指月), ashes of love ost, 2018. The moment, I meet you (Skate into love ost), 2020.  
-reprise (Huang xiaoyun): my ashes of love upwards to the moon[ 纯享 ] 黄霄雲《左手指月》《梦想的声音3》EP9 20181221  浙江卫视官方音乐.  
-Jade Lockheart :  锁心玉 - One Must Part Though Accompanied a Thousand Miles (Treasure Venture ost), 2004.  
-Zhang Yan : 20/07/1976, Beautiful Chinese Music  traditional Music (12) (The Wandering Songstress). La chanson classique de Zhou Xuan "Singer Girl at the End of the World". L'une des chansons thématiques du film "Street Angel" de 1937. Parolier : Tian Han. Compositeur : He Luting. Voix : Zhang Yan.  
+<ins>Chen Sisi</ins> : 28/12/1976, jin Xiu Nai Dai album, 2006. My dear chinese people (Qin Qin de zhong guo ren), 2009. Enter the dream paradise, 2002.  
+<ins>Sa Dingdin</ins>g : 27/12/1980, Upwards to the Moon (左手指月), ashes of love ost, 2018. The moment, I meet you (Skate into love ost), 2020.  
+reprise (<ins>Huang xiaoyun</ins>): my ashes of love upwards to the moon[ 纯享 ] 黄霄雲《左手指月》《梦想的声音3》EP9 20181221  浙江卫视官方音乐.  
+<ins>Jade Lockheart</ins> :  锁心玉 - One Must Part Though Accompanied a Thousand Miles (Treasure Venture ost), 2004.  
+<ins>Zhang Yan</ins> : 20/07/1976, Beautiful Chinese Music  traditional Music (12) (The Wandering Songstress). La chanson classique de Zhou Xuan "Singer Girl at the End of the World". L'une des chansons thématiques du film "Street Angel" de 1937. Parolier : Tian Han. Compositeur : He Luting. Voix : Zhang Yan.  
 Daughter of The Moon : 张燕 月亮女儿.  
-Liu shishi : Waiting For Your Season (等你的季节).  
+<ins>Liu shishi</ins> : Waiting For Your Season (等你的季节).  
 Love's Ripples – 愛的漣漪 ost.  
-Ruby Lin : 27/01/1976, Flower Falling  [Schemes Of A Beauty], 2010.  
-Han xiaomo :  清明上河圖 韓小沫版 (Image de la rivière Qingming Version Han Xiaomo : (韓小沫), My hero in my dream, Great healing heart album.  
-Into the dream (入梦也 : version chanté et la meilleure version fredonné 哼唱版), compositeur (Wang Shifu : 黄诗扶), paroles (Zuo Muxiu : 左木修), 2019.  
-Valen hsu :  Hsu Hung-hsiu, 20/09/1974, Tao hao (1995).  
-Jolin Tsai : Cai Yi Lin, 15/09/1980, Warriors In Peace (2003). The starter, Castle album, 2004.  
-Alan : Alan Dawa Dolma, 25/07/1987,  Red Cliff 〜心・戦〜 (2008).  
-Jane Zhang : Zhang Liangying, 11/10/1984, Return of The Condor Heroes (2006) OST, version 2.  
-Huang Xiaoyun : 22/12/1998, Sad Sometimes (compositeur alan walker) (Lyrics) (2019).
+<ins>Ruby Lin</ins> : 27/01/1976, Flower Falling  [Schemes Of A Beauty], 2010.  
+<ins>Han xiaomo</ins> :  清明上河圖 韓小沫版 (Image de la rivière Qingming Version Han Xiaomo : (韓小沫), My hero in my dream, Great healing heart album.  
+<ins>Into the dream</ins> (入梦也 : version chanté et la meilleure version fredonné 哼唱版), compositeur (Wang Shifu : 黄诗扶), paroles (Zuo Muxiu : 左木修), 2019.  
+<ins>Valen hsu</ins> :  Hsu Hung-hsiu, 20/09/1974, Tao hao (1995).  
+<ins>Jolin Tsai</ins> : Cai Yi Lin, 15/09/1980, Warriors In Peace (2003). The starter, Castle album, 2004.  
+<ins>Alan</ins> : Alan Dawa Dolma, 25/07/1987,  Red Cliff 〜心・戦〜 (2008).  
+<ins>Jane Zhang</ins> : Zhang Liangying, 11/10/1984, Return of The Condor Heroes (2006) OST, version 2.  
+<ins>Huang Xiaoyun</ins> : 22/12/1998, Sad Sometimes (compositeur alan walker) (Lyrics) (2019).
 Star and sea : Arranger, Composer, Lyricist, Producer (Ziqian Qu) Composer, Lyricist, Producer (Liu Tao) Lyricist (Liang Wen), 2021.  
 Reprise Return of the condor heroes:  
 [ 纯享 ] 黄霄雲《天下无双》《梦想的声音3》EP10 20181229 /浙江卫视官方音乐HD/.  
-Hua Zhou : 21/07/1993, Ask The Night (夜問), Perfect and Casual Ost, 2020.  
-Teresa Teng : (鄧麗君) titre : larmes rouges (1983) - 22 - 胭脂淚 (Yan Zhi Lei) album : dandan youqing 淡淡幽情 (29/1/1953-8/05/1995), poème Li Houzhu (Li Yu), empereur tang du sud : vie du 15 aout 937 au 15 aout 978, règne de 961 à 976, poète, peintre, calligraphe.  
-Guo shu yao (郭書瑤): (18/07/1990), Fang qi ni (放棄你), love's embrace album 2009).  
-G.E.M : Dang Zi Kei : 16/08/1991 (Hong kong), The voice within, my secret album, 2010.  
-Fiona Fung : Feng Cui Hua, 14/12/1983. Goodbye master, goodbye (Zai jian, jing Cha), Infernal affairs ost, 2002.  
-Liu Zhirong (劉芷融) et Hei Xia (何夏) : chanteuses, Du Mei Shin and Gong Li Fang, Lady of the Pier : jeu vidéo ost, 2019.  
+<ins>Hua Zhou</ins> : 21/07/1993, Ask The Night (夜問), Perfect and Casual Ost, 2020.  
+<ins>Teresa Teng</ins> : (鄧麗君) titre : larmes rouges (1983) - 22 - 胭脂淚 (Yan Zhi Lei) album : dandan youqing 淡淡幽情 (29/1/1953-8/05/1995), poème **Li Houzhu (Li Yu)**, empereur tang du sud : vie du 15 aout 937 au 15 aout 978, règne de 961 à 976, poète, peintre, calligraphe.  
+<ins>Guo shu yao</ins> (郭書瑤): (18/07/1990), Fang qi ni (放棄你), love's embrace album 2009).  
+<ins>G.E.M</ins> : Dang Zi Kei : 16/08/1991 (Hong kong), The voice within, my secret album, 2010.  
+<ins>Fiona Fung</ins> : Feng Cui Hua, 14/12/1983. Goodbye master, goodbye (Zai jian, jing Cha), Infernal affairs ost, 2002.  
+<ins>Liu Zhirong</ins> (劉芷融) et <ins>Hei Xia</ins> (何夏) : chanteuses, Du Mei Shin and Gong Li Fang, Lady of the Pier : jeu vidéo ost, 2019.  
 一颗狼星(une étoile de loup), 叮叮当(ding ding dong), 于子璐 • 执白 • 江伟伟 (Yu Zilu • Zhi Bai • Jiang Weiwei), 2023.  
 
 Duo chanteur et chanteuse  
-The myth ost, Endless love, Jackie Chan et Kim Hee-sun, 2005.  
-10 miles of peach blossom ost, Bracing the chill, Zhang Bichen et Aska Yang, 2017.  
-An empress and the warriors theme : Leon Lai et Kelly Chen, 2008.  
+<ins>The myth</ins> ost, Endless love, Jackie Chan et Kim Hee-sun, 2005.  
+<ins>10 miles of peach blossom</ins> ost, Bracing the chill, Zhang Bichen et Aska Yang, 2017.  
+<ins>An empress and the warriors</ins> theme : Leon Lai et Kelly Chen, 2008.  
 
 Corée  
 
 Album ost  
-My sassy girl (2001 ost album, Kim Hyeong seok, né le 27/09/1966).  
-Windstruck (2004 ost album, Choi Seung-hyun, né le 17/11/1971).  
-Taegukgi (2004 ost album, Lee Dong Joon, né le 05/02/1967).  
-Jumong (2006 ost album, Oh Joon-Sung, né le 25/06/1966).  
-The restless (2006 ost album, Shiro Sagisu, né le 29/08/1957) 10 Fantasy Of The Fate. 
-Kingdom of the wind (2008 ost album, Singers : Park Wan Kyu, Wheesung, Kyun Woo, Brown Eyed Girls).  
-Bichunmoo : Artistes : An Young Min, Choi Seong II (compositeur), Hae Shin, Han Eol, Howl (chaneur), Kim dong Wuk (k-ballad), Park Ji yoon, (chanteuse), Shin Eun Hee (chanteuse 1), Song Ji Eun, Soo (parolier). Paroles : Kim Yu Na. Compositeurs : Kim Bong Su, Kim Yu Na, Song Byeong. 2008.  
-Dream high (2011 ost album, Singers : Par Jin Young (JYP), Lim Jeong Hee, 2AM, 2PM, IU, Sun Ye (Wonder Girls), Ok Taec Yeon (2PM), San E, Bae Suzy, Jang Woo Young (2PM), Kim Soo Hyun).  
-The thorn birds (2011 ost, Singers: Lee So Ra, SG Wannabe, Narsha (Brown Eyed Girls), 8 memory of alca, 10 가시나무 새, 12 black, 16 의심, 17 regreat.  
-When a man's in love (2013 ost, Singers : Park Hwayobi, PIA, BEAST, Sung Hoon, BTOB, Baek A Yeon, JeA (Brown eyed Girls)). 8 Abyss, 10 Imminence.  
-Who are you school 2015 (2015 ost album, Singer : Yoon Mi Rae, Byul, Younha, Baechigi, Tiger JK, Jong Hyun (SHINee, Red Velvet, Yook Sung Jae) chanteuses et instrumentales très bien.  
-Let's fight ghost (2016 ost album, Singer : PIA, Kim So Hyun).  
-School 2017 (2017 ost album, Singer : Yozoh, Maktub (Korea), Tarin, Gugudan).  
-The liar and his lover (2017 ost album, Singer : Joy qui est né Park Su Yeong, 03/09/1996 (Red Velvet), Lee Hyun Woo, Crude play, Hong Seo Young .  
-Clean with passion for now (2018 album os, Singers : Crying Nut,
+<ins>My sassy girl</ins> (2001 ost album, Kim Hyeong seok, né le 27/09/1966).  
+<ins>Windstruck</ins> (2004 ost album, Choi Seung-hyun, né le 17/11/1971).  
+<ins>Taegukgi</ins> (2004 ost album, Lee Dong Joon, né le 05/02/1967).  
+<ins>Jumong</ins> (2006 ost album, Oh Joon-Sung, né le 25/06/1966).  
+<ins>The restless</ins> (2006 ost album, Shiro Sagisu, né le 29/08/1957) 10 Fantasy Of The Fate. 
+<ins>Kingdom of the wind</ins> (2008 ost album, Singers : Park Wan Kyu, Wheesung, Kyun Woo, Brown Eyed Girls).  
+<ins>Bichunmoo</ins> : Artistes : An Young Min, Choi Seong II (compositeur), Hae Shin, Han Eol, Howl (chaneur), Kim dong Wuk (k-ballad), Park Ji yoon, (chanteuse), Shin Eun Hee (chanteuse 1), Song Ji Eun, Soo (parolier). Paroles : Kim Yu Na. Compositeurs : Kim Bong Su, Kim Yu Na, Song Byeong. 2008.  
+<ins>Dream high</ins> (2011 ost album, Singers : Par Jin Young (JYP), Lim Jeong Hee, 2AM, 2PM, IU, Sun Ye (Wonder Girls), Ok Taec Yeon (2PM), San E, Bae Suzy, Jang Woo Young (2PM), Kim Soo Hyun).  
+<ins>The thorn birds</ins> (2011 ost, Singers: Lee So Ra, SG Wannabe, Narsha (Brown Eyed Girls), 8 memory of alca, 10 가시나무 새, 12 black, 16 의심, 17 regreat.  
+<ins>When a man's in love</ins> (2013 ost, Singers : Park Hwayobi, PIA, BEAST, Sung Hoon, BTOB, Baek A Yeon, JeA (Brown eyed Girls)). 8 Abyss, 10 Imminence.  
+<ins>Who are you school 2015</ins> (2015 ost album, Singer : Yoon Mi Rae, Byul, Younha, Baechigi, Tiger JK, Jong Hyun (SHINee, Red Velvet, Yook Sung Jae) chanteuses et instrumentales très bien.  
+<ins>Let's fight ghost</ins> (2016 ost album, Singer : PIA, Kim So Hyun).  
+<ins>School 2017</ins> (2017 ost album, Singer : Yozoh, Maktub (Korea), Tarin, Gugudan).  
+<ins>The liar and his lover</ins> (2017 ost album, Singer : Joy qui est né Park Su Yeong, 03/09/1996 (Red Velvet), Lee Hyun Woo, Crude play, Hong Seo Young .  
+<ins>Clean with passion for now</ins> (2018 album os, Singers : Crying Nut,
 Huh Gak, OH MY GIRL BANHANA, GWSN, Ju Hee, KLANG, Kim Greem, Yoo Seung Woo, Kevin Oh, Nam Sae Ra).  
 
 Chanteuses  
-Joy (Park su yeong) : Yeowooya (fox), I’m OK, Shiny boy, The road to me, your days, waiting for you, our youth, Flying butterfly (The liar and his lover ost), naissance : 03/09/1996.  
-Park hye kyung : 12/10/1974, my favorite (album : 2011), yesterday (2006).  
-Baek ji young : 25/03/1976, Bad person (Nabbeun Saram), Hwang jin yi ost (2006),  I Won't Love (사랑 안해), Don’t go, Vol.5 - Smile Again, 2006. Don’t forget me (잊지 말아요, 2009. Like being hit by a bullet, Sensibility album, 2008. 보통 (Average ou Ordinary), Pitta album, 2011.  
-Baek Ah Yeon (백아연) - 사랑학개론 (When A Man's In Love OST 2013).  
-Park ji yoon : Ya Sang Gok (Sul Ri Version 2008 bicheonmu drama ost).  
-Ryu Ji Hyun (10/09/1997) & Kim Min Ji - I Can Only See You (Let’s fight ghost ost, 2016), Suspicious you (Introverted boss ost, 2017).  
-Ben (Lee eun yeong) : 30/07/1991, Memory (Introverted boss ost), 2017. Like a dream, Another Oh Hae Young, 2016.  
-Park Bo Ram, 01/03/1994, Isn’t she lovely (Introverted boss ost, 2017). Beautiful, 2014.  
-Ez (Kim Yi Ji) : 10/03/1994, Because of you, Introverted boss ost, 2017.
-Kim so hyun : dream, 5 (Let’s fight ghost ost).  
-Rocoberry  (roco : femme et berry : homme), Console Myself (let’s fight ghost ost), 2016.  
-Kim greem (Kim geu rim): 01/03/1987, Sleeep a little more (Clean with passion for now ost, 2019).  
-Klang (Park Da Eun) : 05/11/1990, Gravity  (Clean with passion for now ost, 2019).
-Nam Sae Ra : 01/07/1997, Colored (Clean with passion for now ost, 2019).  
-Yoon Mi Rae : Natacha Shanta Reid, 31/05/1981, 3 I’ll listen to what you have to say, Who are you school 2015, 2015.  
-Byul (Kim go eun) : 22/10/1983, Remember  (Who are you school 2015).  
-Younha (Go yun  ha) : 29/04/1988, Pray (Who are you school 2015), Audition : 2006.  
-Wendy (Son seung hwan) : Return (Who are you school 2015), naissance : 21/02/1994.  
-IU (Lee ji eun) : 16/05/1993, Someday (Dream hight ost), Araro (Queen Seon Deok ost 2009).  
-Suzy (Bae su ji) : Winter child (Dream hight ost), naissance : 10/10/1994.  
-Sun ye (Min seon ye) : maybe (Dream hight ost), naissance : 12/08/1989.  
+<ins>Joy (Park su yeong)</ins> : Yeowooya (fox), I’m OK, Shiny boy, The road to me, your days, waiting for you, our youth, Flying butterfly (The liar and his lover ost), naissance : 03/09/1996.  
+<ins>Park hye kyung</ins> : 12/10/1974, my favorite (album : 2011), yesterday (2006). 
+<ins>Baek ji young</ins> : 25/03/1976, Bad person (Nabbeun Saram), Hwang jin yi ost (2006),  I Won't Love (사랑 안해), Don’t go, Vol.5 - Smile Again, 2006. Don’t forget me (잊지 말아요, 2009. Like being hit by a bullet, Sensibility album, 2008. 보통 (Average ou Ordinary), Pitta album, 2011.  
+<ins>Baek Ah Yeon</ins> (백아연) - 사랑학개론 (When A Man's In Love OST 2013).  
+<ins>Park ji yoon</ins> : Ya Sang Gok (Sul Ri Version 2008 bicheonmu drama ost).  
+<ins>Ryu Ji Hyun</ins> (10/09/1997) & Kim Min Ji - I Can Only See You (Let’s fight ghost ost, 2016), Suspicious you (Introverted boss ost, 2017).  
+<ins>Ben (Lee eun yeong)</ins> : 30/07/1991, Memory (Introverted boss ost), 2017. Like a dream, Another Oh Hae Young, 2016.  
+<ins>Park Bo Ram</ins>, 01/03/1994, Isn’t she lovely (Introverted boss ost, 2017). Beautiful, 2014.  
+<ins>Ez (Kim Yi Ji)</ins> : 10/03/1994, Because of you, Introverted boss ost, 2017.
+<ins>Kim so hyun</ins> : dream, 5 (Let’s fight ghost ost).  
+<ins>Rocoberry</ins>  (roco : femme et berry : homme), Console Myself (let’s fight ghost ost), 2016.  
+<ins>Kim greem</ins> (Kim geu rim): 01/03/1987, Sleeep a little more (Clean with passion for now ost, 2019).  
+<ins>Klang (Park Da Eun)</ins> : 05/11/1990, Gravity  (Clean with passion for now ost, 2019).
+<ins>Nam Sae Ra</ins> : 01/07/1997, Colored (Clean with passion for now ost, 2019).  
+<ins>Yoon Mi Rae</ins> : Natacha Shanta Reid, 31/05/1981, 3 I’ll listen to what you have to say, Who are you school 2015, 2015.  
+<ins>Byul (Kim go eun)</ins> : 22/10/1983, Remember  (Who are you school 2015).  
+<ins>Younha (Go yun  ha)</ins> : 29/04/1988, Pray (Who are you school 2015), Audition : 2006.  
+<ins>Wendy (Son seung hwan)</ins> : Return (Who are you school 2015), naissance : 21/02/1994.  
+<ins>IU (Lee ji eun)</ins> : 16/05/1993, Someday (Dream hight ost), Araro (Queen Seon Deok ost 2009).  
+<ins>Suzy (Bae su ji)</ins> : Winter child (Dream hight ost), naissance : 10/10/1994. 
+<ins>Sun ye (Min seon ye)</ins> : maybe (Dream hight ost), naissance : 12/08/1989.  
 다비치(Davichi) : 너라서(because it's you, big ost 2012) (가사 첨부).  
-Kim Eun Ji (Maybee) : 25/09/1983, Daso (다소), I wish, A Letter From Abell 1689 album, 2006.  
-Choi Seo-yeon (Choi Hyejin) : 11/04/1988, My love, look at me (그대 보세요). Hwang Jin-yi ost, 2006.  
-So Hyang (Kim So Hyang) : 05/04/1978, Beneath the moonlight (2), Love song for illusion ost, 2024.  
-Shin Ji Hoon (Sin Ji Hun) : 23/06/1998, Little tree, Family by choice ost, 2024.  
-Yoari (Kang Mi Jun) : 03/10/1987, A somber night, Check in Hanyang ost, 2024.  
-Cho Min-hye : 07/02/1987, Teenage superstar, 2006.  
-Lim Jeong hee : 17/05/1981, 흔적 (heunjeog).  
-Seo/suh Young-eun (서영은) : 22/07/1973, I like you (좋아), Romantic 2 album, 2006.  
-Tae Yeon : Kim Tae Yeon,  09/03/1989, Can you hear me : Beethoven Virus ost, 2008.  
-Typhoon : Sol Bi (chanteuse : Gwon Seon-mi, 30/09/1984), Vol 1 Troika album, 2006.  
-Davichi : Because it’you, Big ost, 2012.  
-Bae Seul-ki : Bae Seul Ki, 27/09/1986, 1 One by one (원 바이 원), 11 A strong wooman (강한 여자 Instrumental) : The first album, 2006.  
-Girls’ Generation (So Nyuh Shi Dae) : Into the new world, 2007.  
-Lee Sun Hee : 14/12/1964, Fox rain, My girlfriend is a nine-tailed fox ost, 2010.  
-The grace Cheon Sang Ji Hee (groupe) : My everything, The grace album, 2006.  
-Seeya (groupe) : Crazy love song, Invisble man ost, 2006.  
-Kan Mi-youn : 02/02/1982, 2 : Old woman, Refreshing album, 2006.  
-Song Ji Eun : 05/05/1990, The dance in the sky, Bichunmoo ost, 2008.  
-Lee soo-young : interprétation de Gwanghwamun love song, ancienne chanson de Lee Moon-Sae (homme) de 1988.  
-Loveholics : Hwang Ji Sun, 23/10/1979, Only if i have you, Nice dream album, 2006.  
-Orly : 19/01/2003, crush on you, 2019.  
-Bolbbalgan Sachungi (Bolbbalgan4) : Dream : Hwarang ost, 2017.  
-Yumi : 13/12/1977, Star : 200 pounds beauty ost, 2006.  
-Kim A Jung : 16/10/1982, Maria, 200 pounds beauty ost, 2006.  
-Yeyoung (예영) (Geenius), Choi Ye Yeong : 31/05/2000, 100 Days of Dreams (백일몽) Missing crown prince ost, 2024.  
+<ins>Kim Eun Ji</ins> (Maybee) : 25/09/1983, Daso (다소), I wish, A Letter From Abell 1689 album, 2006.  
+<ins>Choi Seo-yeon</ins> (Choi Hyejin) : 11/04/1988, My love, look at me (그대 보세요). Hwang Jin-yi ost, 2006.  
+<ins>So Hyang (Kim So Hyang)</ins> : 05/04/1978, Beneath the moonlight (2), Love song for illusion ost, 2024.  
+<ins>Shin Ji Hoon (Sin Ji Hun)</ins> : 23/06/1998, Little tree, Family by choice ost, 2024.  
+<ins>Yoari (Kang Mi Jun)</ins> : 03/10/1987, A somber night, Check in Hanyang ost, 2024.  
+<ins>Cho Min-hye</ins> : 07/02/1987, Teenage superstar, 2006.  
+<ins>Lim Jeong hee</ins> : 17/05/1981, 흔적 (heunjeog).  
+<ins>Seo/suh Young-eun</ins> (서영은) : 22/07/1973, I like you (좋아), Romantic 2 album, 2006.  
+<ins>Tae Yeon</ins> : Kim Tae Yeon,  09/03/1989, Can you hear me : Beethoven Virus ost, 2008.  
+<ins>Typhoon</ins> : Sol Bi (chanteuse : Gwon Seon-mi, 30/09/1984), Vol 1 Troika album, 2006.  
+<ins>Davichi</ins> : Because it’you, Big ost, 2012.  
+<ins>Bae Seul-ki</ins> : Bae Seul Ki, 27/09/1986, 1 One by one (원 바이 원), 11 A strong wooman (강한 여자 Instrumental) : The first album, 2006.  
+<ins>Girls’ Generation</ins> (So Nyuh Shi Dae) : Into the new world, 2007.  
+<ins>Lee Sun Hee</ins> : 14/12/1964, Fox rain, My girlfriend is a nine-tailed fox ost, 2010.  
+<ins>The grace Cheon Sang Ji Hee</ins> (groupe) : My everything, The grace album, 2006.  
+<ins>Seeya</ins> (groupe) : Crazy love song, Invisble man ost, 2006.  
+<ins>Kan Mi-youn</ins> : 02/02/1982, 2 : Old woman, Refreshing album, 2006.  
+<ins>Song Ji Eun</ins> : 05/05/1990, The dance in the sky, Bichunmoo ost, 2008.  
+<ins>Lee soo-young</ins> : interprétation de Gwanghwamun love song, ancienne chanson de Lee Moon-Sae (homme) de 1988.  
+<ins>Loveholics</ins> : Hwang Ji Sun, 23/10/1979, Only if i have you, Nice dream album, 2006.  
+<ins>Orly</ins> : 19/01/2003, crush on you, 2019.  
+<ins>Bolbbalgan Sachungi</ins> (Bolbbalgan4) : Dream : Hwarang ost, 2017.  
+<ins>Yumi</ins> : 13/12/1977, Star : 200 pounds beauty ost, 2006.  
+<ins>Kim A Jung</ins> : 16/10/1982, Maria, 200 pounds beauty ost, 2006.  
+<ins>Yeyoung</ins> (예영) (Geenius), Choi Ye Yeong : 31/05/2000, 100 Days of Dreams (백일몽) Missing crown prince ost, 2024.  
 
 Instrumental  
-Lee Dong Joon : 05/02/1967 à Pusan, destiny love (iris ost 2009).  
-Changyeop Jeon : thinking of noona (shining inheritance/brilliant legacy ost 2009).   
-Oh Joon Sung : 25/06/1966, sad run (city hunter ost 2011).  
+<ins>Lee Dong Joon</ins> : 05/02/1967 à Pusan, destiny love (iris ost 2009).  
+<ins>Changyeop Jeon</ins> : thinking of noona (shining inheritance/brilliant legacy ost 2009).   
+<ins>Oh Joon Sung</ins> : 25/06/1966, sad run (city hunter ost 2011).  
 Schanyeol punch stay with me (instrumental) (goblin ost 2016).   
-Park Se Jun (principal, débute en 1996 carrière parolier, compositeur et arrangeur musical) et Song Jin Seok, SAN E - Till The End (Defendant OST 2017).   
-The liar and his lover ost : Sing, yoon so rim ; Grandma and me, First meet at han river, Fall in love with Han Kyul.  
-Lee Dong Jun : 05/02/1967, Legend of evil lake, 21, Love theme 2003.  
-Chanyeol (Park Chan Yul, 27/11/1992, and Punch (Bae Jin Yeong 19/02/1993),  Stay with me, Guadian/Gobelin ost, 2017, compositeur : Lee Seung Joo/ju : 08/03/1982.  
-Jung Jae Hwan : Main theme, Virgin snow ost, 2007.  
-Let’s fight ghost ost : 07. 싸우자 귀신아 Title, 15. 현지와 봉팔이.  
-Who are you school 2015 : 10. 기도합니다, 11. 0 교시, 12. 별 비 그리고 엄마, 14. 악몽, 16. Fate, 17. 내게 기대어도돼, 20. 괜찮아, 21. Who Am I.  
+<ins>Park Se Jun</ins> (principal, débute en 1996 carrière parolier, compositeur et arrangeur musical) et Song Jin Seok, SAN E - Till The End (Defendant OST 2017).   
+<ins>The liar and his lover</ins> ost : Sing, yoon so rim ; Grandma and me, First meet at han river, Fall in love with Han Kyul.  
+<ins>Lee Dong Jun</ins> : 05/02/1967, Legend of evil lake, 21, Love theme 2003.  
+<ins>Chanyeol (Park Chan Yul, 27/11/1992), and Punch (Bae Jin Yeong 19/02/1993),  Stay with me, Guadian/Gobelin ost, 2017, compositeur : Lee Seung Joo/ju : 08/03/1982.</ins>  
+<ins>Jung Jae Hwan</ins> : Main theme, Virgin snow ost, 2007.  
+<ins>Let’s fight ghost</ins> ost : 07. 싸우자 귀신아 Title, 15. 현지와 봉팔이.  
+<ins>Who are you school 2015</ins> : 10. 기도합니다, 11. 0 교시, 12. 별 비 그리고 엄마, 14. 악몽, 16. Fate, 17. 내게 기대어도돼, 20. 괜찮아, 21. Who Am I.  
 
 Duo  
-Dream hight ost : Don’t leave me (2011) Lim jeong hee (17/05/1981), 2PM Junsu (Kim Min Jun : 15/01/1988).  
-Who are you school 2015 ost : Titre original : Reset (Feat. 진실 of Mad Soul Child) Interprète : Tiger JK (11/06/1974), Paroles : Tiger JK, Ji Hun  ou Song Don Wun : (parolier), Compositeurs : Hwang Chan Hee (21/12/1980), Lee Seung Joo (Chanteur, 08/03/1982), Arrangements : Lee Seung Joo (chanteur), Featuring : Jin Sil ou Park Jin Sil, 08/09/1987) [Mad Soul Child], Wendy (chanteuse, Red velvet, 21/02/1994).  
+<ins>Dream hight</ins> ost : Don’t leave me (2011) Lim jeong hee (17/05/1981), 2PM Junsu (Kim Min Jun : 15/01/1988).  
+<ins>Who are you school 2015</ins> ost : Titre original : Reset (Feat. 진실 of Mad Soul Child) Interprète : <ins>Tiger JK</ins> (11/06/1974), Paroles : Tiger JK, <ins>Ji Hun</ins>  ou <ins>Song Don Wun</ins> : (parolier), Compositeurs : <ins>Hwang Chan Hee</ins> (21/12/1980), <ins>Lee Seung Joo</ins> (Chanteur, 08/03/1982), Arrangements : <ins>Lee Seung Joo</ins> (chanteur), Featuring : <ins>Jin Sil</ins> ou Park Jin Sil, 08/09/1987) (Mad Soul Child), <ins>Wendy</ins> (chanteuse, Red velvet, 21/02/1994).  
 
 Japon  
 
