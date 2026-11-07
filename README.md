@@ -7413,155 +7413,156 @@ Boots Randolph : Etats-unis, 03/06/1927-03/07/2007, Yakety Sax, James « spider 
 <ins>Floyd Cramer</ins> : Etats-unis,  27/10/1933-31/12/1997,  Hot pepper 1965.  
 <ins>Herb alpert and the tijuana brass</ins>: Etats-unis, 31/03/1935-… Spanish flea 1965.  
 
-Groupes, artistes, albums  
-Yann tiersen, français, naissance : 23/06/1970.  
-Lily allen, Angleterre, 02/05/1985.  
-Beattles, album The beattles : 1962-1966 Angleterre.  
-Mickael Jackson, Américain, 29/08/1958, Thriller, Beat it, Bilie jean, Don’t’til you get enough, Heal the world, Earth song.  
-Queen, Freddie mercury, Angleterre, 05/09/1946-24/11/1991. We will rock you, We are the champions, Another one bites the dust, A king of magic, Don’t stop me now, The show must go on, Bohemian rhapsody.  
-Rhapsody of fire, métal symphonique et médiéval, groupe Italie.  
-Metallica : the black album (aussi version instrumentale).  
-Ennio Morricone : Italie, 10//11/1928-06/07/2020.  
+**Groupes, artistes, albums**  
+<ins>Yann tiersen</ins>, français, naissance : 23/06/1970.  
+<ins>Lily allen</ins>, Angleterre, 02/05/1985.  
+<ins>Beattles</ins>, album The beattles : 1962-1966 Angleterre.  
+<ins>Mickael Jackson</ins>, Américain, 29/08/1958, Thriller, Beat it, Bilie jean, Don’t’til you get enough, Heal the world, Earth song.  
+<ins>Queen</ins>, Freddie mercury, Angleterre, 05/09/1946-24/11/1991. We will rock you, We are the champions, Another one bites the dust, A king of magic, Don’t stop me now, The show must go on, Bohemian rhapsody.  
+<ins>Rhapsody of fire</ins>, métal symphonique et médiéval, groupe Italie.  
+<ins>Metallica</ins> : the black album (aussi version instrumentale).  
+<ins>Ennio Morricone</ins> : Italie, 10//11/1928-06/07/2020.  
 The good, the bad and the ugly : thème, the extasy of gold ; once upon a time in the west : man with a harmonica ; my name is nobody.  
-Chantal Kellly (Chantal bassignani) : France, Les poupées d’aujourd’hui : 1966, Je sais bien : 1967, Le vieux pin : 1969, Caribou : 1966, 08/04/1950.  
-Avril lavigne, franco-canadienne, né le 27/09/1984. Under my skin album : Who knows, Don’t tell me, Take me away, 2004.  
-Angèle van laeken, né le 03/12/1995, belge francophone. Libre, 2021. Plus de sens 2021.  
-Steven Lynn (from Chicago) : Soundtrack from an imaginary western (2023).  
-Mickey Raphael : Red river valley album (1999, harmonica et western), naissance 07/11/1951, Etats-unis. You are my sunshine.  
-Too Many Zooz : groupe de trompette, Maritza, 2018.  
-London  Symphony Orchestra : Christmas classics.  
-Johnny hallyday : France, 15/06/1943. Le pénitencier, 1964. L’envie, 1986. Vivre pour le meilleur, 1999.  
-The rough guide to bollywood (2002).  
+<ins>Chantal Kellly (Chantal bassignani)</ins> : France, Les poupées d’aujourd’hui : 1966, Je sais bien : 1967, Le vieux pin : 1969, Caribou : 1966, 08/04/1950.  
+<ins>Avril lavigne</ins>, franco-canadienne, né le 27/09/1984. Under my skin album : Who knows, Don’t tell me, Take me away, 2004.  
+<ins>Angèle van laeken</ins>, né le 03/12/1995, belge francophone. Libre, 2021. Plus de sens 2021.  
+<ins>Steven Lynn</ins> (from Chicago) : Soundtrack from an imaginary western (2023).  
+<ins>Mickey Raphael</ins> : Red river valley album (1999, harmonica et western), naissance 07/11/1951, Etats-unis. You are my sunshine.  
+<ins>Too Many Zooz</ins> : groupe de trompette, Maritza, 2018.  
+<ins>London  Symphony Orchestra</ins> : Christmas classics.  
+<ins>Johnny hallyday</ins> : France, 15/06/1943. Le pénitencier, 1964. L’envie, 1986. Vivre pour le meilleur, 1999.  
+<ins>The rough guide to bollywood</ins> (2002).  
 4, Lata Mangeshkar (chanteuse) : (chanson) Kabhi Kabhi Mere Dil Mein Khayal Aata, musique : Khayyam, Lyrics: Sahir Ludhianvi, film : Kabhi Kabhie 1976, 11, Krishnan Nair Shantakumari Chithra : kehna hi kya, paroles : Mehboob Alam Kotwal, musique : Allah Rakha Rahman, film : Bombay 1994.  
-Accordéon (Guinguette) :  
+<ins>Accordéon/ins> (Guinguette) :  
 France : Emile Vacher : 07/05/1883-08/04/1969. Maurice Alexander : 27/03/1902-27/06/1980. Jean Ségurel : 30/10/1908-29/12/1978. Jean Vaissade : 30/06/1911-01/06/1979. Emile Prud’homme : 06/06/1913-17/07/1974. André Verchurenn (André Edmon Verschuere) : 28/12/1920-10/07/2013.  
 Suisse : Frédo Gardoni : 10/01/1902 (Suisse)-19/02/1976.  
 Musique de manège :  
-Wurlitzer carousel organ varieties : 1920’s (albums, vol 1 : 1996, vol 2, vol 3).  
-Good old U.S.A carousel music : 1920’s, (albums : vol 1, vol 2).  
+<ins>Wurlitzer carousel organ varieties</ins> : 1920’s (albums, vol 1 : 1996, vol 2, vol 3).  
+<ins>Good old U.S.A carousel music</ins> : 1920’s, (albums : vol 1, vol 2).  
 
-Chansons : titres  
-Lexi Walker : 31/03/2002, What a wonderful world, composé par The piano Guys groupe (Jon Schmidt, Steven Sharp Nelson, Al van der Beek et Paul Anderson), 2017.  
-Donna Summer (31/12/1948-17/05/2012), la meilleur version est celle de 4 minutes (Figure Skating Music re-edited by J), écoutez aussi l’instrumental mais version trop longue trouvée.  
-Irina Rimes : Roumanie, 22/08/1991, Cosmos : 2017, Changer : 2023.  
-The doors : Light my fire, Break on through, The end (Apocalypse now film), Roadhouse blues.  
-Led Zeppelin : Stairway to heaven, rock and roll.  
-Eagles : Hotel california.  
-The rolling stones : Paint it black, Angie, She’s a rainbow.  
-The animals : House of the rising sun 1964, Don’t let me be misunderstood.  
-Scorpions : Wind of change, Still loving you.  
-U2 : Sunday bloody Sunday.  
-Jonh lennon : Angleterre, 09/10/1940-08/12/1980, Imagine.  
-Annie Philippe : France, Le mannequin : 1968, Je découvre tout : 1969, 17/12/1946.  
-Connie Talbot : Angleterre, 20/11/2000, Colours of the wind, 2012 reprise (cover) de Judy Kuhn : 20/05/1958, Etats-unis (film d’animation Pocahontas de 1995), musique Alan de Menken : 22/07/1949, Etas-unis.  
-Gabriela Pinzari : Moldavie, Ecoute, 2022.  
-ADELIA : Russie, Научись мечтать (Премьера трека 2024).  
-Elton john : Rocket man.  
-Kaka WLRD : Inde, Bolenath (A love story), 2023 : chanteur, music, composition et paroles de Kaka.  
-Claude françois : France, 01/02/1939-11/03/1978, Magnolias for ever (1977).  
-Dave (Wouter otto levenbach), Nederland (francophone), naissance : 04/05/1944, Vanina (1975).  
-Mike brant : Israél (francophone), 01/02/1947-25/04/1975, Qui saura (1972).  
-Emilie simon, France, naissance : 17/07/1978, fleur de saison.  
-Claire Pichet : France, rue des cascades, musique de Yann Tiersen.  
-Fredika Stahl : Suède, 24/10/1984, Twinkle twinkle little star, 2010.  
-Anuradha Sriram : Inde, Lesa lesa ost, musique de Harris Jeyaraj, 2003.  
-Louane (Anne Peichert) : France, 26/11/1996, J’ai envie, 2015. Maman, 2015.  
-Cœur de pirate (Béatrice Martin) : Québec, 22/09/1989. C’était salement romantique, 2008.  
-Noir désir (groupe) : France, Un jour en France (chanteur : Bertrand Cantat, 05/03/1964), 1996.  
-Indochine : France, L’aventurier (chanteur Nicolas Sirkis, 22/06/1959), 1982.  
-Jordan Pruitt : Etats-unis, 19/05/1991, Miss popularity, No ordinary girl album, 2007.  
-Keane (groupe): (Angleterre), Somewhere Only We Know, 2004.  
-Erfan Tahmasbi - Khodahafez ( عرفان طهماسبی - خداحافظ )  Iran, 2023.  
-Richard Harris : 01/10/1930-25/10/2002, MacArthur Park (1968), compositeur (Jimmy webb : 15/08/1946), réinterprété en 1978 par Donna Summer.  
+**Chansons : titres**  
+<ins>Lexi Walker</ins> : 31/03/2002, What a wonderful world, composé par The piano Guys groupe (Jon Schmidt, Steven Sharp Nelson, Al van der Beek et Paul Anderson), 2017.  
+<ins>Donna Summer</ins> (31/12/1948-17/05/2012), la meilleur version est celle de 4 minutes (Figure Skating Music re-edited by J), écoutez aussi l’instrumental mais version trop longue trouvée.  
+<ins>Irina Rimes</ins> : Roumanie, 22/08/1991, Cosmos : 2017, Changer : 2023.  
+<ins>The doors</ins> : Light my fire, Break on through, The end (Apocalypse now film), Roadhouse blues.  
+<ins>Led Zeppelin</ins> : Stairway to heaven, rock and roll.  
+<ins>Eagles</ins> : Hotel california.  
+<ins>The rolling stones</ins> : Paint it black, Angie, She’s a rainbow.  
+<ins>The animals</ins> : House of the rising sun 1964, Don’t let me be misunderstood. 
+<ins>Scorpions</ins> : Wind of change, Still loving you.  
+<ins>U2</ins> : Sunday bloody Sunday.  
+<ins>Jonh lennon</ins> : Angleterre, 09/10/1940-08/12/1980, Imagine.  
+<ins>Annie Philippe</ins> : France, Le mannequin : 1968, Je découvre tout : 1969, 17/12/1946.  
+<ins>Connie Talbot</ins> : Angleterre, 20/11/2000, Colours of the wind, 2012 reprise (cover) de Judy Kuhn : 20/05/1958, Etats-unis (film d’animation Pocahontas de 1995), musique Alan de Menken : 22/07/1949, Etas-unis.  
+<ins>Gabriela Pinzari</ins> : Moldavie, Ecoute, 2022.  
+<ins>ADELIA</ins> : Russie, Научись мечтать (Премьера трека 2024).  
+<ins>Elton john</ins> : Rocket man.  
+<ins>Kaka WLRD</ins> : Inde, Bolenath (A love story), 2023 : chanteur, music, composition et paroles de Kaka.  
+<ins>Claude françois</ins> : France, 01/02/1939-11/03/1978, Magnolias for ever (1977).  
+<ins>Dave</ins> (Wouter otto levenbach), Nederland (francophone), naissance : 04/05/1944, Vanina (1975).  
+<ins>Mike brant</ins> : Israél (francophone), 01/02/1947-25/04/1975, Qui saura (1972).  
+<ins>Emilie simon</ins>, France, naissance : 17/07/1978, fleur de saison.  
+<ins>Claire Pichet</ins> : France, rue des cascades, musique de Yann Tiersen.  
+<ins>Fredika Stahl</ins> : Suède, 24/10/1984, Twinkle twinkle little star, 2010.  
+<ins>Anuradha Sriram</ins> : Inde, Lesa lesa ost, musique de Harris Jeyaraj, 2003.  
+<ins>Louane (Anne Peichert)</ins> : France, 26/11/1996, J’ai envie, 2015. Maman, 2015.  
+<ins>Cœur de pirate (Béatrice Martin)</ins> : Québec, 22/09/1989. C’était salement romantique, 2008.  
+<ins>Noir désir</ins> (groupe) : France, Un jour en France (chanteur : Bertrand Cantat, 05/03/1964), 1996.  
+<ins>Indochine</ins> : France, L’aventurier (chanteur Nicolas Sirkis, 22/06/1959), 1982.  
+<ins>Jordan Pruitt</ins> : Etats-unis, 19/05/1991, Miss popularity, No ordinary girl album, 2007.  
+<ins>Keane</ins> (groupe): (Angleterre), Somewhere Only We Know, 2004.  
+<ins>Erfan Tahmasbi</ins> Khodahafez ( عرفان طهماسبی - خداحافظ ) Iran, 2023.  
+<ins>Richard Harris</ins> : 01/10/1930-25/10/2002, MacArthur Park (1968), compositeur (Jimmy webb : 15/08/1946), réinterprété en 1978 par Donna Summer.  
 
-Instrumental : titres  
-Metallica The Unforgiven, Fade To Black, nothing else matters.  
-La bande à picsou instrumentale.  
-Tartalo Music,  Battle For Camelot, 2015.  
-Daviken- Noz Vat, Soufflons sur la breizh album, 1996.  
-Cabo Norte, Ocelot, 2010.  
-Nightwish, Last of The Wilds (Tuomas Holopainen), 2007.  
-Color gitano : Compositeur : Matthieu Mendè, Renaud Rebillaud ; chanteur : Kendji Girac 2014.  
-Paul Dinletir : Here comes the king, album Canix rex II  (X-Ray Dog).  
-X-Ray Dog : Here Comes the King, Canix Rex, vol 2, 2017.  
-Color gitano : (Instrumental (Gregory, François Welgryn, Renaud Rebillaud, Mendes the dude), version chant is Kendji Girac) 2014.  
-Steven Lynn : Main Theme - Soundtrack from an Imaginary Western, 2023.  
-Nat Keefe with The Bow Ties : Cumberland Gap, 2018.  
-Rickard Nilsson : Speedy the spider, Sunny Days Ahead (music), 2022.  
-Los Kjarkas : Flor de un Dia, (Savia Andina, Ocar Santos, Castro Canaviri), 1986.  
-Too Many Zooz : Maritza, 2018.  
-David Lindup : 10/05/1928-07/01/1992. Who was that lady, Slapstick comic (Kpm 1000 series, The rhythm of modern life), 1972.  
-Manuel Penella Moreno : Mexique, 31/07/1880-24/01/1936. El Gato Montés (1916). El gato Montès version Banda de Genaro Nunez : 2013.  
-Wintergatan (groupe) : Suède, Martin Molin : naissance (1983) et  Evelina Hagglund, Marcus Sjoberg, David Zanden. Slottskogen, Disc Golf Club, Track 4, 2014.  
-Amir Kangda, Come in my arms (2006), Somo lounge roma, vol 1 oriental and deep sound.
-Gheorghe Covaci Roumanie, Cioată Tropotită din Vadul Izei Violonistes de Transylvanie.  
-Daniel Balavoine : 05/02/1952-14/01/1986, Tous les cris les S.O.S : 1985, composé, écrite et chanté par Daniel Balavoine.  
-George Baker : 08/12/1944, Una paloma blanca : 1975.  
+**Instrumental : titres**  
+<ins>Metallica</ins> The Unforgiven, Fade To Black, nothing else matters.  
+<ins>La bande à picsou</ins>, instrumentale.  
+<ins>Tartalo Music</ins>, Battle For Camelot, 2015.  
+<ins>Daviken</ins> : Noz Vat, Soufflons sur la breizh album, 1996.  
+<ins>Cabo Norte</ins>, Ocelot, 2010.  
+<ins>Nightwish</ins>, Last of The Wilds (Tuomas Holopainen), 2007.  
+<ins>Color gitano</ins> : Compositeur : Matthieu Mendè, Renaud Rebillaud ; chanteur : Kendji Girac 2014.  
+<ins>Paul Dinletir</ins> : Here comes the king, album Canix rex II  (X-Ray Dog).  
+<ins>X-Ray Dog</ins> : Here Comes the King, Canix Rex, vol 2, 2017.  
+<ins>Color gitano</ins> : (Instrumental (Gregory, François Welgryn, Renaud Rebillaud, Mendes the dude), version chant is Kendji Girac) 2014.  
+<ins>Steven Lynn</ins> : Main Theme - Soundtrack from an Imaginary Western, 2023.  
+<ins>Nat Keefe with The Bow Ties</ins> : Cumberland Gap, 2018.  
+<ins>Rickard Nilsson</ins> : Speedy the spider, Sunny Days Ahead (music), 2022.  
+<ins>Los Kjarkas</ins> : Flor de un Dia, (Savia Andina, Ocar Santos, Castro Canaviri), 1986.  
+<ins>Too Many Zooz</ins> : Maritza, 2018.  
+<ins>David Lindup</ins> : 10/05/1928-07/01/1992. Who was that lady, Slapstick comic (Kpm 1000 series, The rhythm of modern life), 1972.  
+<ins>Manuel Penella Moreno</ins> : Mexique, 31/07/1880-24/01/1936. El Gato Montés (1916). El gato Montès version Banda de Genaro Nunez : 2013.  
+<ins>Wintergatan</ins> (groupe) : Suède, Martin Molin : naissance (1983) et  Evelina Hagglund, Marcus Sjoberg, David Zanden. Slottskogen, Disc Golf Club, Track 4, 2014.  
+<ins>Amir Kangda</ins>, Come in my arms (2006), Somo lounge roma, vol 1 oriental and deep sound.
+<ins>Gheorghe Covaci</ins>, Roumanie, Cioată Tropotită din Vadul Izei Violonistes de Transylvanie.  
+<ins>Daniel Balavoine</ins> : 05/02/1952-14/01/1986, Tous les cris les S.O.S : 1985, composé, écrite et chanté par Daniel Balavoine.  
+<ins>George Baker</ins> : 08/12/1944, Una paloma blanca : 1975.  
 
 Films et séries  
-Star Wars (Débute en 1977, saga films de George Lucas) composée par John Williams, américain.  
-Le seigneur des anneaux (Débute en 2001, films de Peter Jackson de l’auteur Anglais John Ronald Reuel Tolkien : 03/01/1892-02/09/1973) composé par Howard Shore.  
-The last of the mohicans (1992, film de Michael Mann, Américain), composé par Trevor Jones (Afrique du Sud) et Rand Edelman (Américain).  
-Himalaya : France et Tibet, Bruno Coulais : 13/01/1954, l’enfance d’un chef album, 1999.  
+<ins>Star Wars</ins> (Débute en 1977, saga films de George Lucas) composée par John Williams, américain.  
+<ins>Le seigneur des anneaux</ins> (Débute en 2001, films de Peter Jackson de l’auteur Anglais John Ronald Reuel Tolkien : 03/01/1892-02/09/1973) composé par Howard Shore.  
+<ins>The last of the mohicans</ins> (1992, film de Michael Mann, Américain), composé par Trevor Jones (Afrique du Sud) et Rand Edelman (Américain).  
+<ins>Himalaya</ins> : France et Tibet, Bruno Coulais : 13/01/1954, l’enfance d’un chef album, 1999.  
 Chant : Tsering Lodoe, Lama Gyurme, Karma Tensing Nyima Lama, Tensing Phuntsock Tsalung, A Filletta (groupe vocal de Corse).   
 Tibetan institute of performing arts.  
 Michel Peyratout : Bass, Jean Philippe Audin : Cello et Violon, Christophe Barratier : Guitar, Raoul Duflot Verez : Keyboards, Slim Pezin : Lute, Jean Paul Batailley et Laurent Julia: Percussion.  
-Samsara : France, 05/08/1962, Cyril Morin, Pema’s Theme, 2003.  
-Kundun : Américain, Philip Glass : 31/01/1937, 06 : Reting’s eyes, 14, 1997.  
-The last emperor : Ryuichi Sakamoto (9 morceaux), David Byrne (5 morceaux), Cong Su (1 morceau), 1987.  
-Underground : Goran Bregovic, 22/03/1950, Bosnien. Wedding Cocek, Underground Cocek, Sheva, 1995.  
+<ins>Samsara</ins> : France, 05/08/1962, Cyril Morin, Pema’s Theme, 2003.  
+<ins>Kundun</ins> : Américain, Philip Glass : 31/01/1937, 06 : Reting’s eyes, 14, 1997.  
+<ins>The last emperor</ins> : Ryuichi Sakamoto (9 morceaux), David Byrne (5 morceaux), Cong Su (1 morceau), 1987.  
+<ins>Underground</ins> : Goran Bregovic, 22/03/1950, Bosnien. Wedding Cocek, Underground Cocek, Sheva, 1995.  
 
-Ost : titres  
-John Williams :  
+**Ost : titres**  
+<ins>John Williams</ins> :  
 STAR WARS :  
 2 Attack of the clones : 02, Across The Stars.  
 4 A new hope : 02, Rebel Blockade Runner, 09, Tie Fighter Attack, 11, End Title.
 5 The empire strikes back : 01, The Imperial March (Darth Vader's Theme). 10, The Astroid Field. 17, Finale.  
 6 Return of the jedi : 09, Leia's News Light Of The Force.  
 Superman, Main theme (1978), Indiana Jone (Main theme 1981), E.T.,the Extra-terrestial, Flying theme (1982), Retour vers le futur (Main theme 1985, Home alone : Somewhere in my memory 1990, Robin des bois (Main title 1991), Jurassic park, Theme  song (1993), Stargate (Main title 1994), 7 ans au Tibet (Main theme par Yo Yo Ma 1997), Harry Potter and the sorcere’s stone, Prologue (2001).  
-Dominic frontiere : Américain, 17/06/1931-21/12/2017, Hang ‘Em High : 1968 western.  
-Elmer bernstein : Américain, 04/04/1922-18/08/2004, Main title theme (from the man with the golden arm) 1956, The magnificent seven main theme : 1960 western.  
-Ludwig Göransson : Suéde, 01/09/1984, The Mandalorian ost 2019.  
-David Arnold et Harry Gregson-Williams : High king and queen of narnia (The chronicles of narnia ost : The voyage of the down treader : 2010).  
-Never land orchestra, Disney instrumental collection, some day my prince will come.  
-Vladimir Cosma : France, 13/04/1940, Les mondes engloutis et version instrumentale : dessin animé (1985), Les compères (1983).  
-James Newton Howard, Américain, 09/06/1951, Peter Pan, Peter returns 18 (2003).  
-Jay Asher : Zorro serie, z rides (1992).  
-Danny Elfman : 29/05/1953, The Batman theme (1989), Spiderman, Main title (2002), Edward scissorhands, Introduction (Titles) 1990.  
-Alice in wonderland : Alice’s theme 2010.  
-John Barry : James bond, Dr. No theme  (1960), naissance 03/11/1933-30/01/2011.  
-Jean-Pierre Daniel : (basé sur Theodotos demetriades Grêce, 04/12/1897-28/11/1971, 1927 : première version de la mélodie)  Misirlou (thème film Pulp fiction 1994, naissance : 04/06/1968.  
-Ramin Djawadi : Allemagne (origine iranienne), 19/07/1974, Main title (Game of thrones serie ost 2011).  
-Hans Zimmer : Allemagne, 12/09/1957, Pirates of the carribean theme ost (2003), Gladiator : Honor him, Victory theme (2000), The last of samurai, Red warrior, Idyll’s end, 2003.  
-Nicola Piovani : Italie, 26/04/1946, La vie est belle theme ost (1997).  
-Blake Neely : Américain, 28/04/1969, Supergirl ost, Supergirl theme (série, 2015).
-Jerry Goldsmith : Américain, 10/02/1929-21/07/2004, Star trek The Motion Picture, theme (série, 1979).  
-Don Davis : Américain, 04/02/1957, Matrix,  Clubbed to death (1999).  
-Dave Grusin : Américain, 26/06/1934, The Goonies, Fratelli chase (1985).  
-Adrian Johnston : Angleterre, 1961, Jude, At Christminster Return To Marygreen 1996.  
-Carter Burwell : Américain, 18/11/1954, Rob roy, Robert and Mary (David Arkenstone) 1995.  
-Anuradha Sriram : Inde, 09/07/1970, Lesa lesa, musique de Harris Jeyaraj 2003.  
-Murray Gold : Angleterre, 28/02/1969, Doctor Who, série 6 disc 1 track 1 : I am the doctor in Utah 2011, Theme 2005-2007, The majestic tale (of a madman in a box), série 6, disk 2, track 35.  
-Alan Silvestri : Américain, 26/03/1950,  Forest gump : main theme 1994.  
-Klaus Badelt : Allemagne, 12/06/1967, Guangming, the general ; Come back : Wu ji, la légende des cavaliers du vent, 2006 film chinois.  
-David Buckley : Angleterre, 07/06/1976, The forbidden kingdom : The mountain of fruit and flowers, « As one tale ends… », 2008.  
-Ray Parker (01/05/1954), Jim Morgan, Tom Szczesniak (26/01/1948) : Tintin theme, dessin-animée, 1991.  
-James Horner : Américain, 14/08/1953-22/06/2015, The mask of Zorro : Zorro’s theme, 1998. Braveheart : For the love of a princess, 1995. Willow, Willow’s theme, 1988. Titanic, Main theme, Distant memories, 1997.  
-Hugues de Courson : France, 31/07/1946, Charlemagne le prince à cheval, Générique, 1993.  
-Alan Menkel : Américain, 22/07/1949. Arabian nights (instrumenal), Aladdin ost, 2019. 
-Richard Stone, Américain, 27/11/1953-09/03/2001. Animaniacs theme instrumental (Rob Paulsen, Tress MacNeille, Jess Harnell), 1993.  
-Pasadena roof orchestra : Looney Tunes, A talking Picture album,  1978.  
-Gérard Pullicino : France, origine Italie, 06/02/1958, générique, Princesse Shéhérazade, 1996.  
-Kenji Kawai : Log off, Avalon ost, 2001.  
-Santhosh Narayanan : Inde, 15/05/1983, Theme Of Kalki (From Kalki 2898 AD) (Hindi), composer Santhosh Narayanan, Lyricist Kumaar, Inde 2024.  
-Rio, 18 flying , John Powell.  
+
+<ins>Dominic frontiere</ins> : Américain, 17/06/1931-21/12/2017, Hang ‘Em High : 1968 western.  
+<ins>Elmer bernstein</ins> : Américain, 04/04/1922-18/08/2004, Main title theme (from the man with the golden arm) 1956, The magnificent seven main theme : 1960 western.  
+<ins>Ludwig Göransson</ins> : Suéde, 01/09/1984, The Mandalorian ost 2019.  
+<ins>David Arnold et Harry Gregson-Williams</ins> : High king and queen of narnia (The chronicles of narnia ost : The voyage of the down treader : 2010).  
+<ins>Never land orchestra</ins>, Disney instrumental collection, some day my prince will come.  
+<ins>Vladimir Cosma</ins> : France, 13/04/1940, Les mondes engloutis et version instrumentale : dessin animé (1985), Les compères (1983).  
+<ins>James Newton Howard</ins>, Américain, 09/06/1951, Peter Pan, Peter returns 18 (2003).  
+<ins>Jay Asher</ins> : Zorro serie, z rides (1992).  
+<ins>Danny Elfman</ins> : 29/05/1953, The Batman theme (1989), Spiderman, Main title (2002), Edward scissorhands, Introduction (Titles) 1990.  
+<ins>Alice in wonderland</ins> : Alice’s theme 2010.  
+<ins>John Barry</ins> : James bond, Dr. No theme  (1960), naissance 03/11/1933-30/01/2011.  
+<ins>Jean-Pierre Daniel</ins> : (basé sur Theodotos demetriades Grêce, 04/12/1897-28/11/1971, 1927 : première version de la mélodie)  Misirlou (thème film Pulp fiction 1994, naissance : 04/06/1968.  
+<ins>Ramin Djawadi</ins> : Allemagne (origine iranienne), 19/07/1974, Main title (Game of thrones serie ost 2011).  
+<ins>Hans Zimmer</ins> : Allemagne, 12/09/1957, Pirates of the carribean theme ost (2003), Gladiator : Honor him, Victory theme (2000), The last of samurai, Red warrior, Idyll’s end, 2003.  
+<ins>Nicola Piovani</ins> : Italie, 26/04/1946, La vie est belle theme ost (1997).  
+<ins>Blake Neely</ins> : Américain, 28/04/1969, Supergirl ost, Supergirl theme (série, 2015).
+<ins>Jerry Goldsmith</ins> : Américain, 10/02/1929-21/07/2004, Star trek The Motion Picture, theme (série, 1979).  
+<ins>Don Davis</ins> : Américain, 04/02/1957, Matrix,  Clubbed to death (1999).  
+<ins>Dave Grusin</ins> : Américain, 26/06/1934, The Goonies, Fratelli chase (1985).  
+<ins>Adrian Johnston</ins> : Angleterre, 1961, Jude, At Christminster Return To Marygreen 1996.  
+<ins>Carter Burwell</ins> : Américain, 18/11/1954, Rob roy, Robert and Mary (David Arkenstone) 1995.  
+<ins>Anuradha Sriram</ins> : Inde, 09/07/1970, Lesa lesa, musique de Harris Jeyaraj 2003.  
+<ins>Murray Gold</ins> : Angleterre, 28/02/1969, Doctor Who, série 6 disc 1 track 1 : I am the doctor in Utah 2011, Theme 2005-2007, The majestic tale (of a madman in a box), série 6, disk 2, track 35.  
+<ins>Alan Silvestri</ins> : Américain, 26/03/1950,  Forest gump : main theme 1994.  
+<ins>Klaus Badelt</ins> : Allemagne, 12/06/1967, Guangming, the general ; Come back : Wu ji, la légende des cavaliers du vent, 2006 film chinois.  
+<ins>David Buckley</ins> : Angleterre, 07/06/1976, The forbidden kingdom : The mountain of fruit and flowers, « As one tale ends… », 2008.  
+<ins>Ray Parker</ins> (01/05/1954), Jim Morgan, Tom Szczesniak (26/01/1948) : Tintin theme, dessin-animée, 1991.  
+<ins>James Horner</ins> : Américain, 14/08/1953-22/06/2015, The mask of Zorro : Zorro’s theme, 1998. Braveheart : For the love of a princess, 1995. Willow, Willow’s theme, 1988. Titanic, Main theme, Distant memories, 1997.  
+<ins>Hugues de Courson</ins> : France, 31/07/1946, Charlemagne le prince à cheval, Générique, 1993.  
+<ins>Alan Menkel</ins> : Américain, 22/07/1949. Arabian nights (instrumenal), Aladdin ost, 2019. 
+<ins>Richard Stone</ins>, Américain, 27/11/1953-09/03/2001. Animaniacs theme instrumental (Rob Paulsen, Tress MacNeille, Jess Harnell), 1993.  
+<ins>Pasadena roof orchestra</ins> : Looney Tunes, A talking Picture album,  1978.  
+<ins>Gérard Pullicino</ins> : France, origine Italie, 06/02/1958, générique, Princesse Shéhérazade, 1996.  
+<ins>Kenji Kawai</ins> : Log off, Avalon ost, 2001.  
+<ins>Santhosh Narayanan</ins> : Inde, 15/05/1983, Theme Of Kalki (From Kalki 2898 AD) (Hindi), composer Santhosh Narayanan, Lyricist Kumaar, Inde 2024.  
+<ins>John Powell</ins>, Rio, 18 flying.  
 
 Jeux vidéo  
-Jack Wall : Américain, 1964, Mass effect 2 : Suicide mission 2010.  
-Clinton Darryl Mansell : 07/01/1963, Angleterre, Mass effect 3, Living earth 2011.
-Jean claude Charlier : En Garde! Adalia de voladore, 2023.  
-Xu Jingqing : 15/11/1942, Celestial symphony, Black myth wukong ost, 2024.  
-Lorien Testard : In Lumiere’s Name, Claire Obscure : Expédition 33, (Accordéon : Antônio Guerre, Violon Cell : Emanuel Pavon, Guitare : Vitaliy Tkachuck, Percussio : Christiano Galv 2025.  
+<ins>Jack Wall</ins> : Américain, 1964, Mass effect 2 : Suicide mission 2010.  
+<ins>Clinton Darryl Mansell</ins> : 07/01/1963, Angleterre, Mass effect 3, Living earth 2011.
+<ins>Jean claude Charlier</ins> : En Garde! Adalia de voladore, 2023.  
+<ins>Xu Jingqing</ins> : 15/11/1942, Celestial symphony, Black myth wukong ost, 2024. 
+<ins>Lorien Testard</ins> : In Lumiere’s Name, Claire Obscure : Expédition 33, (Accordéon : Antônio Guerre, Violon Cell : Emanuel Pavon, Guitare : Vitaliy Tkachuck, Percussio : Christiano Galv 2025.  
 Our Drafts Unite, 2025.  
 
 **Informations complémentaires  
