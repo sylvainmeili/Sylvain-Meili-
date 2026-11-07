@@ -7346,462 +7346,460 @@ Juventino Rosas : 25/01/1868-09/07/1894, Over the waves 1888.
 Julius Fucik : 18/07/1872-25/09/1916, Entrance of the gladiators 1897.  
 James lord pierpont : 25/04/1822-05/08/1893, jingle bells version symphonique instrumentale 1889, date d’enregistrement inconnu.  
 
-De 1900 à 1969
-Musique instrumentale
-Claude Debussy : France 22/08/1862, 25/03/1918.
-Suite Bergamasque, L. 75: III. Clair de Lune 1905.
-Edward Elgar : Angleterre, 02/06/1857-23/02/1934.
-Pump and circumstance op.39 : March, No.1 in D 1904.
-Charlie Chaplin : Angleterre, 16/04/1889-25/12/1977.
-City light film, Opening Music Cast Credits 1931.
-City Lights film, Overture - Unveiling the Statue 1931.
-Modern Times film, Titine 1936.
-Sergueï Sergueïevitch Prokofiev : 11/04/1891-05/03/1953.
-Romeo and Juliet, Op. 64 Act 1 - Dance Of The Knights 1935, Peter and the wolf : the story begin 1936.
+De 1900 à 1969  
+Musique instrumentale  
+Claude Debussy : France 22/08/1862, 25/03/1918.  
+Suite Bergamasque, L. 75: III. Clair de Lune 1905.  
+Edward Elgar : Angleterre, 02/06/1857-23/02/1934.  
+Pump and circumstance op.39 : March, No.1 in D 1904.  
+Charlie Chaplin : Angleterre, 16/04/1889-25/12/1977.  
+City light film, Opening Music Cast Credits 1931.  
+City Lights film, Overture - Unveiling the Statue 1931.  
+Modern Times film, Titine 1936.  
+Sergueï Sergueïevitch Prokofiev : 11/04/1891-05/03/1953.  
+Romeo and Juliet, Op. 64 Act 1 - Dance Of The Knights 1935, Peter and the wolf : the story begin 1936.  
 Scott joplin Afro-américain, Etats-unis, 24/11/1868-01/04/1917, the entertainer, 1902.
-Compositeur inconnu : Scotland the brave, 1911.
-Kenneth J. Alford : Angleterre, 21/02/1881-15/05/1945 Colonel bogey march, 1914.
-Gustav Holst Mars : Angleterre, 21/09/1874-25/05/1934, the bringer of war 1916.
-Pascual Marquina : Espagne, 16/05/1873-13/061848, Espana cani (gypsy spain 1923).
+Compositeur inconnu : Scotland the brave, 1911.  
+Kenneth J. Alford : Angleterre, 21/02/1881-15/05/1945 Colonel bogey march, 1914.  
+Gustav Holst Mars : Angleterre, 21/09/1874-25/05/1934, the bringer of war 1916.  
+Pascual Marquina : Espagne, 16/05/1873-13/061848, Espana cani (gypsy spain 1923).  
 Maurice Ravel : France, 07/03/1875-28/12/1937, Bolero 1928.
-Carl Orff : Allemagne, 10/07/1895-29/03/1982, Carmina Burana: O Fortuna (chant), 1936.
-Benny Goodman : 30/05/1909-13/06/1986, Sing, Sing, Sing, (Louis Prima)  1936, Sugar foot stomp 1937.
-Samuel Barber : Etats-unis, 09/03/1910-23/01/1980.
-Adagio for Strings, Op. 11 1938.
-Glenn miller : Etats-unis, 01/03/1904-15/12/1944, in the mood 1939
-Moonlight serenade, 1939.
-The charleston chasers wabash blues 1927.
-The savoy havana band : Turkish towel 1920’s.
-Aram Katchatourian : Géorgie puis Russie, 06/06/1903-01/05/1978. Saber dance 1942.
-Erskine hawkins : Etats-unis (noir), 26/07/1914-11/11/1993, Tippin’ in-fox  1945.
-Charles Williams : Angleterre, 08/05/1893-07/09/1978, Devil’s galop, 1946.
-Pee Wee Hunt : Etats-unis, 10/05/1907-22/06/1979, Twelfth street rag, 1948.
-John Williams : 08/02/1932-… Boston pops orchestra : Sleigh ride 1949.
-Leroy Anderson : Etats-unis, 29/06/1908-18/05/1975, The typewriter : 1950, Blue tango : 1951.
-Del wood (Polly Adelaide Hendricks Hazelwood) : Etats-unis, 22/02/1920-03/10/1989,  Down yonder  1951.
-Percy Faith : Canada puis naturalisée aux Etats-unis, 07/04/1908-09/02/1976, Delicado 1952, Swedish Rhapsody (midsummer vigil) 1953.
-Ray Anthony (Raymond Antonini) : 20/01/1902-… Dragnet, orchestra 1953.
-Roger Williams : Etats-unis, 01/10/1924-08/10/2011, Autumn leaves 1955.
-Dmitri Shostakovich : Russie, 25/09/1906-09/08/1975, Second  waltz 1956.
-Mitch Miller : Etats-unis, 04/07/1911-31/07/2010, The river Kwai : reprise de Kenneth J. Alford : colonel Bogey march 1958.
-Chuck Rio (Daniel Flores) : Etats-unis, 11/07/1929-19/09/2006,  Tequilla (the champs : groupe) 1958.
-David Rose : Angleterre puis Etats-unis, 15/06/1910-23/08/1990, The stripper  (orchestra) 1958.
-Dave Cortez : Etats-unis, 13/08/1938-… Happy organ album, Baby 1958.
-David Appell : Etats-unis, 24/03/1922-18/11/2014, The applejacks group, Mexican hat rock 1958.
-Dick Shory : Ding dong polka, 1958.
-Johnny and the Hurricanes : Red river rock, 1958.
-Russ Conway : Angleterre, 02/09/1925-16/11/2000, Roulette  1959, Passing breeze 1960.
-Cedric King Palmer : Angleterre, 13/02/1913-13/07/1999, Hackney carriage 1959.
-The Shadow : FBI (1960), Dance one (1962), Apache (Jerry lordan : (1960), guitare électrique
-Ed (Edward) Cobb : Etats-unis, 25/02/1938-19/09/1999, Lincoln Mayorga : Etats-unis, 28/03/1937-03/07/2023, The piltdown men groupe, Macdonald’s cave  1960.
-Les Sipolo, Jack Jay et son orchestre : Grand prix, Marche des marteaux, 1961.
-Duane Eddy : Etats-unis, 26/04/1938-… Because the’re young  1960, Ballad of paladin 1962.
-Bert Kaempfert : Allemagne, 16/10/1923-21/06/1980, A swinging safari  (orchestra) 1962.
-Kenny Ball : Angleterre, 22/05/1930-07/03/2013, Midnight in moscow 1962, The pay-off 1962.
-Clyde valley stompers (groupe) : Royaume-Uni, Peter and the wolf 1962.
-Shane Fenton and the Fentones (groupe) : The breeze and I 1962.
-Acker Bilk : Angleterre, 28/01/1929-02/11/2014, Lonely 1962.
-Joe Loss and his orchestra : Angleterre, 22/06/1909-06/06/1990,  Must be madison 1962.
-Quincy Jones : Etats-unis, 14/03/1933-…, Soul bossa nova 1962.
-The tornados (groupe) : Angleterre, Telstar : rock n roll experience 1962.
-The Surfaris (groupe) : Etats-unis, Wipe out 1962.
-Boots Randolph : Etats-unis, 03/06/1927-03/07/2007, Yakety Sax, James « spider » rich, (saxophone) 1963.
-Floyd Cramer : Etats-unis,  27/10/1933-31/12/1997,  Hot pepper 1965.
-Herb alpert and the tijuana brass: Etats-unis, 31/03/1935-… Spanish flea 1965.
+Carl Orff : Allemagne, 10/07/1895-29/03/1982, Carmina Burana: O Fortuna (chant), 1936.  
+Benny Goodman : 30/05/1909-13/06/1986, Sing, Sing, Sing, (Louis Prima)  1936, Sugar foot stomp 1937.  
+Samuel Barber : Etats-unis, 09/03/1910-23/01/1980.  
+Adagio for Strings, Op. 11 1938.  
+Glenn miller : Etats-unis, 01/03/1904-15/12/1944, in the mood 1939.  
+Moonlight serenade, 1939.  
+The charleston chasers wabash blues 1927.  
+The savoy havana band : Turkish towel 1920’s.  
+Aram Katchatourian : Géorgie puis Russie, 06/06/1903-01/05/1978. Saber dance 1942.  
+Erskine hawkins : Etats-unis (noir), 26/07/1914-11/11/1993, Tippin’ in-fox  1945.  
+Charles Williams : Angleterre, 08/05/1893-07/09/1978, Devil’s galop, 1946.  
+Pee Wee Hunt : Etats-unis, 10/05/1907-22/06/1979, Twelfth street rag, 1948.  
+John Williams : 08/02/1932-… Boston pops orchestra : Sleigh ride 1949.  
+Leroy Anderson : Etats-unis, 29/06/1908-18/05/1975, The typewriter : 1950, Blue tango : 1951.  
+Del wood (Polly Adelaide Hendricks Hazelwood) : Etats-unis, 22/02/1920-03/10/1989,  Down yonder  1951.  
+Percy Faith : Canada puis naturalisée aux Etats-unis, 07/04/1908-09/02/1976, Delicado 1952, Swedish Rhapsody (midsummer vigil) 1953.  
+Ray Anthony (Raymond Antonini) : 20/01/1902, Dragnet, orchestra 1953.  
+Roger Williams : Etats-unis, 01/10/1924-08/10/2011, Autumn leaves 1955.  
+Dmitri Shostakovich : Russie, 25/09/1906-09/08/1975, Second  waltz 1956.  
+Mitch Miller : Etats-unis, 04/07/1911-31/07/2010, The river Kwai : reprise de Kenneth J. Alford : colonel Bogey march 1958.  
+Chuck Rio (Daniel Flores) : Etats-unis, 11/07/1929-19/09/2006,  Tequilla (the champs : groupe) 1958.  
+David Rose : Angleterre puis Etats-unis, 15/06/1910-23/08/1990, The stripper  (orchestra) 1958.  
+Dave Cortez : Etats-unis, 13/08/1938-… Happy organ album, Baby 1958.  
+David Appell : Etats-unis, 24/03/1922-18/11/2014, The applejacks group, Mexican hat rock 1958.  
+Dick Shory : Ding dong polka, 1958.  
+Johnny and the Hurricanes : Red river rock, 1958.  
+Russ Conway : Angleterre, 02/09/1925-16/11/2000, Roulette  1959, Passing breeze 1960. 
+Cedric King Palmer : Angleterre, 13/02/1913-13/07/1999, Hackney carriage 1959.  
+The Shadow : FBI (1960), Dance one (1962), Apache (Jerry lordan : (1960), guitare électrique.  
+Ed (Edward) Cobb : Etats-unis, 25/02/1938-19/09/1999, Lincoln Mayorga : Etats-unis, 28/03/1937-03/07/2023, The piltdown men groupe, Macdonald’s cave  1960.  
+Les Sipolo, Jack Jay et son orchestre : Grand prix, Marche des marteaux, 1961.  
+Duane Eddy : Etats-unis, 26/04/1938-… Because the’re young  1960, Ballad of paladin 1962.  
+Bert Kaempfert : Allemagne, 16/10/1923-21/06/1980, A swinging safari  (orchestra) 1962.  
+Kenny Ball : Angleterre, 22/05/1930-07/03/2013, Midnight in moscow 1962, The pay-off 1962.  
+Clyde valley stompers (groupe) : Royaume-Uni, Peter and the wolf 1962.  
+Shane Fenton and the Fentones (groupe) : The breeze and I 1962.  
+Acker Bilk : Angleterre, 28/01/1929-02/11/2014, Lonely 1962.  
+Joe Loss and his orchestra : Angleterre, 22/06/1909-06/06/1990,  Must be madison 1962.  
+Quincy Jones : Etats-unis, 14/03/1933-…, Soul bossa nova 1962.  
+The tornados (groupe) : Angleterre, Telstar : rock n roll experience 1962.  
+The Surfaris (groupe) : Etats-unis, Wipe out 1962.  
+Boots Randolph : Etats-unis, 03/06/1927-03/07/2007, Yakety Sax, James « spider » rich, (saxophone) 1963.  
+Floyd Cramer : Etats-unis,  27/10/1933-31/12/1997,  Hot pepper 1965.  
+Herb alpert and the tijuana brass: Etats-unis, 31/03/1935-… Spanish flea 1965.  
 
-Groupes, artistes, albums
-Yann tiersen, français, naissance : 23/06/1970.
-Lily allen, Angleterre, 02/05/1985.
-Beattles, album The beattles : 1962-1966 Angleterre.
-Mickael Jackson, Américain, 29/08/1958, Thriller, Beat it, Bilie jean, Don’t’til you get enough, Heal the world, Earth song.
-Queen, Freddie mercury, Angleterre, 05/09/1946-24/11/1991. We will rock you, We are the champions, Another one bites the dust, A king of magic, Don’t stop me now, The show must go on, Bohemian rhapsody.
-Rhapsody of fire, métal symphonique et médiéval, groupe Italie. 
-Metallica : the black album (aussi version instrumentale).
-Ennio Morricone : Italie, 10//11/1928-06/07/2020
-The good, the bad and the ugly : thème, the extasy of gold ; once upon a time in the west : man with a harmonica ; my name is nobody. 
-Chantal Kellly (Chantal bassignani) : France, Les poupées d’aujourd’hui : 1966, Je sais bien : 1967, Le vieux pin : 1969, Caribou : 1966, 08/04/1950.
-Avril lavigne, franco-canadienne, né le 27/09/1984. Under my skin album : Who knows, Don’t tell me, Take me away, 2004.
-Angèle van laeken, né le 03/12/1995, belge francophone. Libre, 2021. Plus de sens 2021.
-Steven Lynn (from Chicago) : Soundtrack from an imaginary western (2023).
-Mickey Raphael : Red river valley album (1999, harmonica et western), naissance 07/11/1951, Etats-unis. You are my sunshine.
-Too Many Zooz : groupe de trompette, Maritza, 2018.
-London  Symphony Orchestra : Christmas classics
-Johnny hallyday : France, 15/06/1943. Le pénitencier, 1964. L’envie, 1986. Vivre pour le meilleur, 1999.
-The rough guide to bollywood (2002)
-4, Lata Mangeshkar (chanteuse) : (chanson) Kabhi Kabhi Mere Dil Mein Khayal Aata, musique : Khayyam, Lyrics: Sahir Ludhianvi, film : Kabhi Kabhie 1976, 11, Krishnan Nair Shantakumari Chithra : kehna hi kya, paroles : Mehboob Alam Kotwal, musique : Allah Rakha Rahman, film : Bombay 1994.
-Accordéon (Guinguette) : 
-France : Emile Vacher : 07/05/1883-08/04/1969. Maurice Alexander : 27/03/1902-27/06/1980. Jean Ségurel : 30/10/1908-29/12/1978. Jean Vaissade : 30/06/1911-01/06/1979. Emile Prud’homme : 06/06/1913-17/07/1974. André Verchurenn (André Edmon Verschuere) : 28/12/1920-10/07/2013. 
-Suisse : Frédo Gardoni : 10/01/1902 (Suisse)-19/02/1976. 
-Musique de manège :
-Wurlitzer carousel organ varieties : 1920’s (albums, vol 1 : 1996, vol 2, vol 3).
-Good old U.S.A carousel music : 1920’s, (albums : vol 1, vol 2).
+Groupes, artistes, albums  
+Yann tiersen, français, naissance : 23/06/1970.  
+Lily allen, Angleterre, 02/05/1985.  
+Beattles, album The beattles : 1962-1966 Angleterre.  
+Mickael Jackson, Américain, 29/08/1958, Thriller, Beat it, Bilie jean, Don’t’til you get enough, Heal the world, Earth song.  
+Queen, Freddie mercury, Angleterre, 05/09/1946-24/11/1991. We will rock you, We are the champions, Another one bites the dust, A king of magic, Don’t stop me now, The show must go on, Bohemian rhapsody.  
+Rhapsody of fire, métal symphonique et médiéval, groupe Italie.  
+Metallica : the black album (aussi version instrumentale).  
+Ennio Morricone : Italie, 10//11/1928-06/07/2020.  
+The good, the bad and the ugly : thème, the extasy of gold ; once upon a time in the west : man with a harmonica ; my name is nobody.  
+Chantal Kellly (Chantal bassignani) : France, Les poupées d’aujourd’hui : 1966, Je sais bien : 1967, Le vieux pin : 1969, Caribou : 1966, 08/04/1950.  
+Avril lavigne, franco-canadienne, né le 27/09/1984. Under my skin album : Who knows, Don’t tell me, Take me away, 2004.  
+Angèle van laeken, né le 03/12/1995, belge francophone. Libre, 2021. Plus de sens 2021.  
+Steven Lynn (from Chicago) : Soundtrack from an imaginary western (2023).  
+Mickey Raphael : Red river valley album (1999, harmonica et western), naissance 07/11/1951, Etats-unis. You are my sunshine.  
+Too Many Zooz : groupe de trompette, Maritza, 2018.  
+London  Symphony Orchestra : Christmas classics.  
+Johnny hallyday : France, 15/06/1943. Le pénitencier, 1964. L’envie, 1986. Vivre pour le meilleur, 1999.  
+The rough guide to bollywood (2002).  
+4, Lata Mangeshkar (chanteuse) : (chanson) Kabhi Kabhi Mere Dil Mein Khayal Aata, musique : Khayyam, Lyrics: Sahir Ludhianvi, film : Kabhi Kabhie 1976, 11, Krishnan Nair Shantakumari Chithra : kehna hi kya, paroles : Mehboob Alam Kotwal, musique : Allah Rakha Rahman, film : Bombay 1994.  
+Accordéon (Guinguette) :  
+France : Emile Vacher : 07/05/1883-08/04/1969. Maurice Alexander : 27/03/1902-27/06/1980. Jean Ségurel : 30/10/1908-29/12/1978. Jean Vaissade : 30/06/1911-01/06/1979. Emile Prud’homme : 06/06/1913-17/07/1974. André Verchurenn (André Edmon Verschuere) : 28/12/1920-10/07/2013.  
+Suisse : Frédo Gardoni : 10/01/1902 (Suisse)-19/02/1976.  
+Musique de manège :  
+Wurlitzer carousel organ varieties : 1920’s (albums, vol 1 : 1996, vol 2, vol 3).  
+Good old U.S.A carousel music : 1920’s, (albums : vol 1, vol 2).  
 
-Chansons : titres
-Lexi Walker : 31/03/2002, What a wonderful world, composé par The piano Guys groupe (Jon Schmidt, Steven Sharp Nelson, Al van der Beek et Paul Anderson), 2017.
-Donna Summer (31/12/1948-17/05/2012), la meilleur version est celle de 4 minutes (Figure Skating Music re-edited by J), écoutez aussi l’instrumental mais version trop longue trouvée.
-Irina Rimes : Roumanie, 22/08/1991, Cosmos : 2017, Changer : 2023.
-The doors : Light my fire, Break on through, The end (Apocalypse now film), Roadhouse blues.
-Led Zeppelin : Stairway to heaven, rock and roll.
-Eagles : Hotel california.
-The rolling stones : Paint it black, Angie, She’s a rainbow.
-The animals : House of the rising sun 1964, Don’t let me be misunderstood.
-Scorpions : Wind of change, Still loving you.
-U2 : Sunday bloody Sunday.
-Jonh lennon : Angleterre, 09/10/1940-08/12/1980, Imagine.
-Annie Philippe : France, Le mannequin : 1968, Je découvre tout : 1969, 17/12/1946.
-Connie Talbot : Angleterre, 20/11/2000, Colours of the wind, 2012 reprise (cover) de Judy Kuhn : 20/05/1958, Etats-unis (film d’animation Pocahontas de 1995), musique Alan de Menken : 22/07/1949, Etas-unis.
-Gabriela Pinzari : Moldavie, Ecoute, 2022.
-ADELIA : Russie, Научись мечтать (Премьера трека 2024).
-Elton john : Rocket man.
-Kaka WLRD : Inde, Bolenath (A love story), 2023 : chanteur, music, composition et paroles de Kaka, 
-Claude françois : France, 01/02/1939-11/03/1978, Magnolias for ever (1977).
-Dave (Wouter otto levenbach), Nederland (francophone), naissance : 04/05/1944, Vanina (1975).
-Mike brant : Israél (francophone), 01/02/1947-25/04/1975, Qui saura (1972).
-Emilie simon, France, naissance : 17/07/1978, fleur de saison.
-Claire Pichet : France, rue des cascades, musique de Yann Tiersen.
-Fredika Stahl : Suède, 24/10/1984, Twinkle twinkle little star, 2010. 
-Anuradha Sriram : Inde, Lesa lesa ost, musique de Harris Jeyaraj, 2003.
-Louane (Anne Peichert) : France, 26/11/1996, J’ai envie, 2015. Maman, 2015.
-Cœur de pirate (Béatrice Martin) : Québec, 22/09/1989. C’était salement romantique, 2008.
-Noir désir (groupe) : France, Un jour en France (chanteur : Bertrand Cantat, 05/03/1964), 1996.
-Indochine : France, L’aventurier (chanteur Nicolas Sirkis, 22/06/1959), 1982.
-Jordan Pruitt : Etats-unis, 19/05/1991, Miss popularity, No ordinary girl album, 2007.
-Keane (groupe): (Angleterre), Somewhere Only We Know, 2004.
+Chansons : titres  
+Lexi Walker : 31/03/2002, What a wonderful world, composé par The piano Guys groupe (Jon Schmidt, Steven Sharp Nelson, Al van der Beek et Paul Anderson), 2017.  
+Donna Summer (31/12/1948-17/05/2012), la meilleur version est celle de 4 minutes (Figure Skating Music re-edited by J), écoutez aussi l’instrumental mais version trop longue trouvée.  
+Irina Rimes : Roumanie, 22/08/1991, Cosmos : 2017, Changer : 2023.  
+The doors : Light my fire, Break on through, The end (Apocalypse now film), Roadhouse blues.  
+Led Zeppelin : Stairway to heaven, rock and roll.  
+Eagles : Hotel california.  
+The rolling stones : Paint it black, Angie, She’s a rainbow.  
+The animals : House of the rising sun 1964, Don’t let me be misunderstood.  
+Scorpions : Wind of change, Still loving you.  
+U2 : Sunday bloody Sunday.  
+Jonh lennon : Angleterre, 09/10/1940-08/12/1980, Imagine.  
+Annie Philippe : France, Le mannequin : 1968, Je découvre tout : 1969, 17/12/1946.  
+Connie Talbot : Angleterre, 20/11/2000, Colours of the wind, 2012 reprise (cover) de Judy Kuhn : 20/05/1958, Etats-unis (film d’animation Pocahontas de 1995), musique Alan de Menken : 22/07/1949, Etas-unis.  
+Gabriela Pinzari : Moldavie, Ecoute, 2022.  
+ADELIA : Russie, Научись мечтать (Премьера трека 2024).  
+Elton john : Rocket man.  
+Kaka WLRD : Inde, Bolenath (A love story), 2023 : chanteur, music, composition et paroles de Kaka.  
+Claude françois : France, 01/02/1939-11/03/1978, Magnolias for ever (1977).  
+Dave (Wouter otto levenbach), Nederland (francophone), naissance : 04/05/1944, Vanina (1975).  
+Mike brant : Israél (francophone), 01/02/1947-25/04/1975, Qui saura (1972).  
+Emilie simon, France, naissance : 17/07/1978, fleur de saison.  
+Claire Pichet : France, rue des cascades, musique de Yann Tiersen.  
+Fredika Stahl : Suède, 24/10/1984, Twinkle twinkle little star, 2010.  
+Anuradha Sriram : Inde, Lesa lesa ost, musique de Harris Jeyaraj, 2003.  
+Louane (Anne Peichert) : France, 26/11/1996, J’ai envie, 2015. Maman, 2015.  
+Cœur de pirate (Béatrice Martin) : Québec, 22/09/1989. C’était salement romantique, 2008.  
+Noir désir (groupe) : France, Un jour en France (chanteur : Bertrand Cantat, 05/03/1964), 1996.  
+Indochine : France, L’aventurier (chanteur Nicolas Sirkis, 22/06/1959), 1982.  
+Jordan Pruitt : Etats-unis, 19/05/1991, Miss popularity, No ordinary girl album, 2007.  
+Keane (groupe): (Angleterre), Somewhere Only We Know, 2004.  
+Erfan Tahmasbi - Khodahafez ( عرفان طهماسبی - خداحافظ )  Iran, 2023.  
+Richard Harris : 01/10/1930-25/10/2002, MacArthur Park (1968), compositeur (Jimmy webb : 15/08/1946), réinterprété en 1978 par Donna Summer.  
 
-Erfan Tahmasbi - Khodahafez ( عرفان طهماسبی - خداحافظ )  Iran, 2023.
-Richard Harris : 01/10/1930-25/10/2002, MacArthur Park (1968), compositeur (Jimmy webb : 15/08/1946), réinterprété en 1978 par 
-
-Instrumental : titres
-Metallica The Unforgiven, Fade To Black, nothing else matters 
-La bande à picsou instrumentale.
-Tartalo Music,  Battle For Camelot, 2015
-Daviken- Noz Vat, Soufflons sur la breizh album, 1996 
-Cabo Norte, Ocelot, 2010
-Nightwish, Last of The Wilds (Tuomas Holopainen), 2007
-Color gitano : Compositeur : Matthieu Mendè, Renaud Rebillaud ; chanteur : Kendji Girac 2014.
-Paul Dinletir : Here comes the king, album Canix rex II  (X-Ray Dog)
-X-Ray Dog : Here Comes the King, Canix Rex, vol 2, 2017.
-Color gitano : (Instrumental (Gregory, François Welgryn, Renaud Rebillaud, Mendes the dude), version chant is Kendji Girac) 2014.
-Steven Lynn : Main Theme - Soundtrack from an Imaginary Western, 2023.
-Nat Keefe with The Bow Ties : Cumberland Gap, 2018.
-Rickard Nilsson : Speedy the spider, Sunny Days Ahead (music), 2022.
-Los Kjarkas : Flor de un Dia, (Savia Andina, Ocar Santos, Castro Canaviri), 1986.
-Too Many Zooz : Maritza, 2018.
-David Lindup : 10/05/1928-07/01/1992. Who was that lady, Slapstick comic (Kpm 1000 series, The rhythm of modern life), 1972
-Manuel Penella Moreno : Mexique, 31/07/1880-24/01/1936. El Gato Montés (1916). El gato Montès version Banda de Genaro Nunez : 2013.
-Wintergatan (groupe) : Suède, Martin Molin : naissance (1983) et  Evelina Hagglund, Marcus Sjoberg, David Zanden. Slottskogen, Disc Golf Club, Track 4, 2014.
+Instrumental : titres  
+Metallica The Unforgiven, Fade To Black, nothing else matters.  
+La bande à picsou instrumentale.  
+Tartalo Music,  Battle For Camelot, 2015.  
+Daviken- Noz Vat, Soufflons sur la breizh album, 1996.  
+Cabo Norte, Ocelot, 2010.  
+Nightwish, Last of The Wilds (Tuomas Holopainen), 2007.  
+Color gitano : Compositeur : Matthieu Mendè, Renaud Rebillaud ; chanteur : Kendji Girac 2014.  
+Paul Dinletir : Here comes the king, album Canix rex II  (X-Ray Dog).  
+X-Ray Dog : Here Comes the King, Canix Rex, vol 2, 2017.  
+Color gitano : (Instrumental (Gregory, François Welgryn, Renaud Rebillaud, Mendes the dude), version chant is Kendji Girac) 2014.  
+Steven Lynn : Main Theme - Soundtrack from an Imaginary Western, 2023.  
+Nat Keefe with The Bow Ties : Cumberland Gap, 2018.  
+Rickard Nilsson : Speedy the spider, Sunny Days Ahead (music), 2022.  
+Los Kjarkas : Flor de un Dia, (Savia Andina, Ocar Santos, Castro Canaviri), 1986.  
+Too Many Zooz : Maritza, 2018.  
+David Lindup : 10/05/1928-07/01/1992. Who was that lady, Slapstick comic (Kpm 1000 series, The rhythm of modern life), 1972.  
+Manuel Penella Moreno : Mexique, 31/07/1880-24/01/1936. El Gato Montés (1916). El gato Montès version Banda de Genaro Nunez : 2013.  
+Wintergatan (groupe) : Suède, Martin Molin : naissance (1983) et  Evelina Hagglund, Marcus Sjoberg, David Zanden. Slottskogen, Disc Golf Club, Track 4, 2014.  
 Amir Kangda, Come in my arms (2006), Somo lounge roma, vol 1 oriental and deep sound.
-Gheorghe Covaci Roumanie, Cioată Tropotită din Vadul Izei Violonistes de Transylvanie.
-Daniel Balavoine : 05/02/1952-14/01/1986, Tous les cris les S.O.S : 1985, composé, écrite et chanté par Daniel Balavoine.
-George Baker : 08/12/1944, Una paloma blanca : 1975.
+Gheorghe Covaci Roumanie, Cioată Tropotită din Vadul Izei Violonistes de Transylvanie.  
+Daniel Balavoine : 05/02/1952-14/01/1986, Tous les cris les S.O.S : 1985, composé, écrite et chanté par Daniel Balavoine.  
+George Baker : 08/12/1944, Una paloma blanca : 1975.  
 
-Films et séries
-Star Wars (Débute en 1977, saga films de George Lucas) composée par John Williams, américain.
-Le seigneur des anneaux (Débute en 2001, films de Peter Jackson de l’auteur Anglais John Ronald Reuel Tolkien : 03/01/1892-02/09/1973) composé par Howard Shore.
-The last of the mohicans (1992, film de Michael Mann, Américain), composé par Trevor Jones (Afrique du Sud) et Rand Edelman (Américain).
-Himalaya : France et Tibet, Bruno Coulais : 13/01/1954, l’enfance d’un chef album, 1999.
-Chant : Tsering Lodoe, Lama Gyurme, Karma Tensing Nyima Lama, Tensing Phuntsock Tsalung, A Filletta (groupe vocal de Corse). 
-Tibetan institute of performing arts.
-Michel Peyratout : Bass, Jean Philippe Audin : Cello et Violon, Christophe Barratier : Guitar, Raoul Duflot Verez : Keyboards, Slim Pezin : Lute, Jean Paul Batailley et Laurent Julia: Percussion.
-Samsara : France, 05/08/1962, Cyril Morin, Pema’s Theme, 2003
-Kundun : Américain, Philip Glass : 31/01/1937, 06 : Reting’s eyes, 14, 1997.
-The last emperor : Ryuichi Sakamoto (9 morceaux), David Byrne (5 morceaux), Cong Su (1 morceau), 1987.
-Underground : Goran Bregovic, 22/03/1950, Bosnien. Wedding Cocek, Underground Cocek, Sheva, 1995.
+Films et séries  
+Star Wars (Débute en 1977, saga films de George Lucas) composée par John Williams, américain.  
+Le seigneur des anneaux (Débute en 2001, films de Peter Jackson de l’auteur Anglais John Ronald Reuel Tolkien : 03/01/1892-02/09/1973) composé par Howard Shore.  
+The last of the mohicans (1992, film de Michael Mann, Américain), composé par Trevor Jones (Afrique du Sud) et Rand Edelman (Américain).  
+Himalaya : France et Tibet, Bruno Coulais : 13/01/1954, l’enfance d’un chef album, 1999.  
+Chant : Tsering Lodoe, Lama Gyurme, Karma Tensing Nyima Lama, Tensing Phuntsock Tsalung, A Filletta (groupe vocal de Corse).   
+Tibetan institute of performing arts.  
+Michel Peyratout : Bass, Jean Philippe Audin : Cello et Violon, Christophe Barratier : Guitar, Raoul Duflot Verez : Keyboards, Slim Pezin : Lute, Jean Paul Batailley et Laurent Julia: Percussion.  
+Samsara : France, 05/08/1962, Cyril Morin, Pema’s Theme, 2003.  
+Kundun : Américain, Philip Glass : 31/01/1937, 06 : Reting’s eyes, 14, 1997.  
+The last emperor : Ryuichi Sakamoto (9 morceaux), David Byrne (5 morceaux), Cong Su (1 morceau), 1987.  
+Underground : Goran Bregovic, 22/03/1950, Bosnien. Wedding Cocek, Underground Cocek, Sheva, 1995.  
 
-Ost : titres
-John Williams : 
-STAR WARS : 
-2 Attack of the clones : 02, Across The Stars.
+Ost : titres  
+John Williams :  
+STAR WARS :  
+2 Attack of the clones : 02, Across The Stars.  
 4 A new hope : 02, Rebel Blockade Runner, 09, Tie Fighter Attack, 11, End Title.
-5 The empire strikes back : 01, The Imperial March (Darth Vader's Theme). 10, The Astroid Field. 17, Finale.
-6 Return of the jedi : 09, Leia's News Light Of The Force.
-Superman, Main theme (1978), Indiana Jone (Main theme 1981), E.T.,the Extra-terrestial, Flying theme (1982), Retour vers le futur (Main theme 1985, Home alone : Somewhere in my memory 1990, Robin des bois (Main title 1991), Jurassic park, Theme  song (1993), Stargate (Main title 1994), 7 ans au Tibet (Main theme par Yo Yo Ma 1997), Harry Potter and the sorcere’s stone, Prologue (2001).
-Dominic frontiere : Américain, 17/06/1931-21/12/2017, Hang ‘Em High : 1968 western
-Elmer bernstein : Américain, 04/04/1922-18/08/2004, Main title theme (from the man with the golden arm) 1956, The magnificent seven main theme : 1960 western.
-Ludwig Göransson : Suéde, 01/09/1984, The Mandalorian ost 2019.
-David Arnold et Harry Gregson-Williams : High king and queen of narnia (The chronicles of narnia ost : The voyage of the down treader : 2010).
-Never land orchestra, Disney instrumental collection, some day my prince will come 
-Vladimir Cosma : France, 13/04/1940, Les mondes engloutis et version instrumentale : dessin animé (1985), Les compères (1983).
-James Newton Howard, Américain, 09/06/1951, peter pan, peter returns 18 (2003).
-Jay Asher : Zorro serie, z rides (1992).
-Danny Elfman : 29/05/1953, The Batman theme (1989), Spiderman, Main title (2002), Edward scissorhands, Introduction (Titles) 1990, 
-Alice in wonderland : Alice’s theme 2010.
-John Barry : James bond, Dr. No theme  (1960), naissance 03/11/1933-30/01/2011.
-Jean-Pierre Daniel : (basé sur Theodotos demetriades Grêce, 04/12/1897-28/11/1971, 1927 : première version de la mélodie)  Misirlou (thème film Pulp fiction 1994, naissance : 04/06/1968.
-Ramin Djawadi : Allemagne (origine iranienne), 19/07/1974, Main title (Game of thrones serie ost 2011).
-Hans Zimmer : Allemagne, 12/09/1957, Pirates of the carribean theme ost (2003), Gladiator : Honor him, Victory theme (2000), The last of samurai, Red warrior, Idyll’s end, 2003.
-Nicola Piovani : Italie, 26/04/1946, La vie est belle theme ost (1997)
+5 The empire strikes back : 01, The Imperial March (Darth Vader's Theme). 10, The Astroid Field. 17, Finale.  
+6 Return of the jedi : 09, Leia's News Light Of The Force.  
+Superman, Main theme (1978), Indiana Jone (Main theme 1981), E.T.,the Extra-terrestial, Flying theme (1982), Retour vers le futur (Main theme 1985, Home alone : Somewhere in my memory 1990, Robin des bois (Main title 1991), Jurassic park, Theme  song (1993), Stargate (Main title 1994), 7 ans au Tibet (Main theme par Yo Yo Ma 1997), Harry Potter and the sorcere’s stone, Prologue (2001).  
+Dominic frontiere : Américain, 17/06/1931-21/12/2017, Hang ‘Em High : 1968 western.  
+Elmer bernstein : Américain, 04/04/1922-18/08/2004, Main title theme (from the man with the golden arm) 1956, The magnificent seven main theme : 1960 western.  
+Ludwig Göransson : Suéde, 01/09/1984, The Mandalorian ost 2019.  
+David Arnold et Harry Gregson-Williams : High king and queen of narnia (The chronicles of narnia ost : The voyage of the down treader : 2010).  
+Never land orchestra, Disney instrumental collection, some day my prince will come.  
+Vladimir Cosma : France, 13/04/1940, Les mondes engloutis et version instrumentale : dessin animé (1985), Les compères (1983).  
+James Newton Howard, Américain, 09/06/1951, Peter Pan, Peter returns 18 (2003).  
+Jay Asher : Zorro serie, z rides (1992).  
+Danny Elfman : 29/05/1953, The Batman theme (1989), Spiderman, Main title (2002), Edward scissorhands, Introduction (Titles) 1990.  
+Alice in wonderland : Alice’s theme 2010.  
+John Barry : James bond, Dr. No theme  (1960), naissance 03/11/1933-30/01/2011.  
+Jean-Pierre Daniel : (basé sur Theodotos demetriades Grêce, 04/12/1897-28/11/1971, 1927 : première version de la mélodie)  Misirlou (thème film Pulp fiction 1994, naissance : 04/06/1968.  
+Ramin Djawadi : Allemagne (origine iranienne), 19/07/1974, Main title (Game of thrones serie ost 2011).  
+Hans Zimmer : Allemagne, 12/09/1957, Pirates of the carribean theme ost (2003), Gladiator : Honor him, Victory theme (2000), The last of samurai, Red warrior, Idyll’s end, 2003.  
+Nicola Piovani : Italie, 26/04/1946, La vie est belle theme ost (1997).  
 Blake Neely : Américain, 28/04/1969, Supergirl ost, Supergirl theme (série, 2015).
-Jerry Goldsmith : Américain, 10/02/1929-21/07/2004, Star trek The Motion Picture, theme (série, 1979)
-Don Davis : Américain, 04/02/1957, Matrix,  Clubbed to death (1999).
-Dave Grusin : Américain, 26/06/1934, The Goonies, Fratelli chase (1985).
-Adrian Johnston : Angleterre, 1961, Jude, At Christminster Return To Marygreen 1996.
-Carter Burwell : Américain, 18/11/1954, Rob roy, Robert and Mary (David Arkenstone) 1995.
-Anuradha Sriram : Inde, 09/07/1970, Lesa lesa, musique de Harris Jeyaraj 2003.
-Murray Gold : Angleterre, 28/02/1969, Doctor Who, série 6 disc 1 track 1 : I am the doctor in Utah 2011, Theme 2005-2007, The majestic tale (of a madman in a box), série 6, disk 2, track 35 
-Alan Silvestri : Américain, 26/03/1950,  Forest gump : main theme 1994.
-Klaus Badelt : Allemagne, 12/06/1967, Guangming, the general ; Come back : Wu ji, la légende des cavaliers du vent, 2006 film chinois. 
-David Buckley : Angleterre, 07/06/1976, The forbidden kingdom : The mountain of fruit and flowers, « As one tale ends… », 2008.
-Ray Parker (01/05/1954), Jim Morgan, Tom Szczesniak (26/01/1948) : Tintin theme, dessin-animée, 1991.
-James Horner : Américain, 14/08/1953-22/06/2015, The mask of Zorro : Zorro’s theme, 1998. Braveheart : For the love of a princess, 1995. Willow, Willow’s theme, 1988. Titanic, Main theme, Distant memories, 1997.
-Hugues de Courson : France, 31/07/1946, Charlemagne le prince à cheval, Générique, 1993.
-Alan Menkel : Américain, 22/07/1949. Arabian nights (instrumenal), Aladdin ost, 2019.
-Richard Stone, Américain, 27/11/1953-09/03/2001. Animaniacs theme instrumental (Rob Paulsen, Tress MacNeille, Jess Harnell), 1993.
-Pasadena roof orchestra : Looney Tunes, A talking Picture album,  1978.
-Gérard Pullicino : France, origine Italie, 06/02/1958, générique, Princesse Shéhérazade, 1996.
-Kenji Kawai : Log off, Avalon ost, 2001.
-Santhosh Narayanan : Inde, 15/05/1983, Theme Of Kalki (From Kalki 2898 AD) (Hindi), composer Santhosh Narayanan, Lyricist Kumaar, Inde 2024.
-Rio, 18 flying , John Powell. 
+Jerry Goldsmith : Américain, 10/02/1929-21/07/2004, Star trek The Motion Picture, theme (série, 1979).  
+Don Davis : Américain, 04/02/1957, Matrix,  Clubbed to death (1999).  
+Dave Grusin : Américain, 26/06/1934, The Goonies, Fratelli chase (1985).  
+Adrian Johnston : Angleterre, 1961, Jude, At Christminster Return To Marygreen 1996.  
+Carter Burwell : Américain, 18/11/1954, Rob roy, Robert and Mary (David Arkenstone) 1995.  
+Anuradha Sriram : Inde, 09/07/1970, Lesa lesa, musique de Harris Jeyaraj 2003.  
+Murray Gold : Angleterre, 28/02/1969, Doctor Who, série 6 disc 1 track 1 : I am the doctor in Utah 2011, Theme 2005-2007, The majestic tale (of a madman in a box), série 6, disk 2, track 35.  
+Alan Silvestri : Américain, 26/03/1950,  Forest gump : main theme 1994.  
+Klaus Badelt : Allemagne, 12/06/1967, Guangming, the general ; Come back : Wu ji, la légende des cavaliers du vent, 2006 film chinois.  
+David Buckley : Angleterre, 07/06/1976, The forbidden kingdom : The mountain of fruit and flowers, « As one tale ends… », 2008.  
+Ray Parker (01/05/1954), Jim Morgan, Tom Szczesniak (26/01/1948) : Tintin theme, dessin-animée, 1991.  
+James Horner : Américain, 14/08/1953-22/06/2015, The mask of Zorro : Zorro’s theme, 1998. Braveheart : For the love of a princess, 1995. Willow, Willow’s theme, 1988. Titanic, Main theme, Distant memories, 1997.  
+Hugues de Courson : France, 31/07/1946, Charlemagne le prince à cheval, Générique, 1993.  
+Alan Menkel : Américain, 22/07/1949. Arabian nights (instrumenal), Aladdin ost, 2019. 
+Richard Stone, Américain, 27/11/1953-09/03/2001. Animaniacs theme instrumental (Rob Paulsen, Tress MacNeille, Jess Harnell), 1993.  
+Pasadena roof orchestra : Looney Tunes, A talking Picture album,  1978.  
+Gérard Pullicino : France, origine Italie, 06/02/1958, générique, Princesse Shéhérazade, 1996.  
+Kenji Kawai : Log off, Avalon ost, 2001.  
+Santhosh Narayanan : Inde, 15/05/1983, Theme Of Kalki (From Kalki 2898 AD) (Hindi), composer Santhosh Narayanan, Lyricist Kumaar, Inde 2024.  
+Rio, 18 flying , John Powell.  
 
-Jeux vidéo
-Jack Wall : Américain, 1964, Mass effect 2 : Suicide mission 2010
+Jeux vidéo  
+Jack Wall : Américain, 1964, Mass effect 2 : Suicide mission 2010.  
 Clinton Darryl Mansell : 07/01/1963, Angleterre, Mass effect 3, Living earth 2011.
-Jean claude Charlier : En Garde! Adalia de voladore, 2023
-Xu Jingqing : 15/11/1942, Celestial symphony, Black myth wukong ost, 2024.
-Lorien Testard : In Lumiere’s Name, Claire Obscure : Expédition 33, (Accordéon : Antônio Guerre, Violon Cell : Emanuel Pavon, Guitare : Vitaliy Tkachuck, Percussio : Christiano Galv 2025.
-Our Drafts Unite, 2025.
+Jean claude Charlier : En Garde! Adalia de voladore, 2023.  
+Xu Jingqing : 15/11/1942, Celestial symphony, Black myth wukong ost, 2024.  
+Lorien Testard : In Lumiere’s Name, Claire Obscure : Expédition 33, (Accordéon : Antônio Guerre, Violon Cell : Emanuel Pavon, Guitare : Vitaliy Tkachuck, Percussio : Christiano Galv 2025.  
+Our Drafts Unite, 2025.  
 
-Informations complémentaires 
+Informations complémentaires  
 et anecdotes  
 
-Photos
+Photos  
 
-1ère de couverture 
-Chêne bonsaï, auteur (Sylvain Meili, 10/05/2008).
-Cette photo est une métaphore du ying yang. L’arbre est l’univers, le genêt en fleur est la lumière et le tronc mort l’ombre, la pente qui monte symbolise l’ascension.
+1ère de couverture  
+Chêne bonsaï, auteur (Sylvain Meili, 10/05/2008).  
+Cette photo est une métaphore du ying yang. L’arbre est l’univers, le genêt en fleur est la lumière et le tronc mort l’ombre, la pente qui monte symbolise l’ascension.  
 
-4ème de couverture
-Sylvain Meili installé sur une branche de hêtre en forme de dragon Chinois, auteur (Sylvain Meili, 21/06/2008 : année des Jeux Olympiques de Chine).
+4ème de couverture  
+Sylvain Meili installé sur une branche de hêtre en forme de dragon Chinois, auteur (Sylvain Meili, 21/06/2008 : année des Jeux Olympiques de Chine).  
 
-Derniers proverbes français inédits
-Chêne dragon Chinois serpentant un rocher, auteur (Sylvain Meili, 28/03/2009, une autre photo presque identique avait aussi été prise le 10/04/2008).
+Derniers proverbes français inédits  
+Chêne dragon Chinois serpentant un rocher, auteur (Sylvain Meili, 28/03/2009, une autre photo presque identique avait aussi été prise le 10/04/2008).  
 
-112 proverbes d’amour et drôles inédits
-Photo libre de droit sur le site internet (http//www.pixabay.fr) modifié par Sylvain Meili.
+112 proverbes d’amour et drôles inédits  
+Photo libre de droit sur le site internet (http//www.pixabay.fr) modifié par Sylvain Meili.  
 
-Quiz : 100 proverbes du monde, chinois et français
-Photo libre de droit sur le site internet (http//www.pixabay.fr) modifié par Sylvain Meili.
+Quiz : 100 proverbes du monde, chinois et français  
+Photo libre de droit sur le site internet (http//www.pixabay.fr) modifié par Sylvain Meili.  
 
-Photos paréidolies et nature
-Auteur (Sylvain Meili).
+Photos paréidolies et nature  
+Auteur (Sylvain Meili).  
 
-Mes symboles
+Mes symboles  
 
-Le logo du Meilisme.
-Le dragon Chinois, le chat, la chouette, la truite fario et la forêt (avec l’épicéa commun (l’empereur de la forêt) et le bâton du Kung-fu).
-Dragon : 3 dragons en paréidolie, j’ai fait nicher une chouette rare grâce à un nichoir à chouette (symbole de la sagesse) : un nouveau point sur la carte de France, le chat est le plus beau des animaux, la truite est le plus beau des poissons, l’épicéa commun est le plus bel arbre à grimper, le bâton est la première arme du Kung-fu et représente la forêt.
+Le logo du Meilisme.  
+Le dragon Chinois, le chat, la chouette, la truite fario et la forêt (avec l’épicéa commun (l’empereur de la forêt) et le bâton du Kung-fu).  
+Dragon : 3 dragons en paréidolie, j’ai fait nicher une chouette rare grâce à un nichoir à chouette (symbole de la sagesse) : un nouveau point sur la carte de France, le chat est le plus beau des animaux, la truite est le plus beau des poissons, l’épicéa commun est le plus bel arbre à grimper, le bâton est la première arme du Kung-fu et représente la forêt.  
 
-Song huizong
+Song huizong  
 
-Song Huizong (empereur de chine)
-Anecdote : 88 ème cérémonie des oscars en 2016 à Los Angeles.
-Le chinois Yang Chun a créé une animation de 7 minutes appelé Beautiful Forest avec en partie plusieurs peintures d’oiseaux de Song Huizong, Sylvain Meili veut aussi dire Beautiful Forest symbolisé aussi par 88 (2 arbres : forêt).
-Song Huizong (Zhao Ji : 50+19=69), 05/05/1082 mais sa date de naissance a peut-être été changé pour le 02/11/1082-04/06/1135, règne : 08/02/1100-18/01/1126, poète, peintre, inventeur de la calligraphie fine d’or, écrivain : traité sur le thé blanc, paysagiste : c’était le plus beau jardin (Genyue) du monde construit pendant son règne dans la plus belle cité impériale chinoise, musicien… D’après la légende qui est la vérité, il est la réincarnation du roi Tang du sud Li Houzhu, son père a vu son portrait où il était en voyage et sa mère avait rêvé aussi de lui le jour de son accouchement,), Sylvain Meili (sēnlín měilì) veut aussi dire beauté de la forêt (forêt=88 + explications au début du livre).
+Song Huizong (empereur de chine)  
+Anecdote : 88 ème cérémonie des oscars en 2016 à Los Angeles.  
+Le chinois Yang Chun a créé une animation de 7 minutes appelé Beautiful Forest avec en partie plusieurs peintures d’oiseaux de Song Huizong, Sylvain Meili veut aussi dire Beautiful Forest symbolisé aussi par 88 (2 arbres : forêt).  
+Song Huizong (Zhao Ji : 50+19=69), 05/05/1082 mais sa date de naissance a peut-être été changé pour le 02/11/1082-04/06/1135, règne : 08/02/1100-18/01/1126, poète, peintre, inventeur de la calligraphie fine d’or, écrivain : traité sur le thé blanc, paysagiste : c’était le plus beau jardin (Genyue) du monde construit pendant son règne dans la plus belle cité impériale chinoise, musicien… D’après la légende qui est la vérité, il est la réincarnation du roi Tang du sud Li Houzhu, son père a vu son portrait où il était en voyage et sa mère avait rêvé aussi de lui le jour de son accouchement,), Sylvain Meili (sēnlín měilì) veut aussi dire beauté de la forêt (forêt=88 + explications au début du livre).  
 宋徽宗 Son nom ressemble en symétrie et densité à 383 (Song : chanson en anglais (caractère=fusion des caractères cabane et bois), 55 en numérologie (double dragon : utilisé pour son sceau), Hui ((temple, emblème) (ressemble à huit : 8)) zong (MILIEU, ancêtre, école, maître, respecter), Huizong : 100, chiffre parfait (infini milieu).
-Ecriture fine
-Au lycée, je recopiai une page de cour sur un bout de papier de 4x3 cm grâce à un crayon de papier…
+Écriture fine  
+Au lycée, je recopiai une page de cour sur un bout de papier de 4x3 cm grâce à un crayon de papier…  
 
-90 Paréidolies
+90 Paréidolies  
 
-90 Paréidolies
-90 paréidolies avec 10 photos.
-84 paréidolies trouvées en 3 minutes (5/9 de suite) le 25/12/2007.
-(IMGP1080 : Faux reflet de Sylvain Meili, IMGP1082 : Féérie de glace, IMGP1085 : Prédictions d’Homer Simpson, IMGP1086 : Révélations extraterrestres, IMGP1088 : Parodie d’affiche de Star Wars). 
-Record du monde de 60 paréidolies (catégorie : nombre) et de 18 paréidolies dans une photo (catégorie : à la suite), 16 personnages, plus deux éléments de décors : la petite mare et ce qui ressemble à un palmier, cela fait 18 paréidolies.
-15 paréidolies trouvées le 17/01/2022, 16 paréidolies le 23/01/2022, puis 18 vu peu de temps après, avant je n’avais vu que 2 paréidolies il y a longtemps.
-3 dragons : je suis le seul à avoir trouvé 3 paréidolies de dragons Chinois (dernière paréidolie du dragon découvert le 03 août 2023, j’avais déjà vu le faux nid avant).
-2 lapins.
-2 animaux endroit envers : presque toutes les paréidolies sont à l’endroit, pas à l’envers, la nature les a mise dans le bon sens sauf le dauphin (do : dernière note de musique, fin) qui donne une chouette à l’envers (ses pieds ressemblent à des chaussons chinois avec des chaussettes blanches, j’ai entendu une fois une chouette hulotte qui faisait des bruitages (ouuuu) ressemblant un peu à Bruce Lee et il a les mêmes chaussons chinois que la chouette, amusante coïncidence).
-3 têtes dans l’une.
-2 têtes de singe dans une.
-1 tête en 2 versions : à l’endroit et à l’envers, tortue ninja (tête), en regardant à l’envers cela fait une tête différente et on voit le blanc des dents.
-J’ai validé les dernères paréidolies de fééries de glaces pour atteindre 60 le 01/12/2024.
+90 paréidolies avec 10 photos.  
+84 paréidolies trouvées en 3 minutes (5/9 de suite) le 25/12/2007.  
+(IMGP1080 : Faux reflet de Sylvain Meili, IMGP1082 : Féérie de glace, IMGP1085 : Prédictions d’Homer Simpson, IMGP1086 : Révélations extraterrestres, IMGP1088 : Parodie d’affiche de Star Wars).  
+Record du monde de 60 paréidolies (catégorie : nombre) et de 18 paréidolies dans une photo (catégorie : à la suite), 16 personnages, plus deux éléments de décors : la petite mare et ce qui ressemble à un palmier, cela fait 18 paréidolies.  
+15 paréidolies trouvées le 17/01/2022, 16 paréidolies le 23/01/2022, puis 18 vu peu de temps après, avant je n’avais vu que 2 paréidolies il y a longtemps.  
+3 dragons : je suis le seul à avoir trouvé 3 paréidolies de dragons Chinois (dernière paréidolie du dragon découvert le 03 août 2023, j’avais déjà vu le faux nid avant).  
+2 lapins.  
+2 animaux endroit envers : presque toutes les paréidolies sont à l’endroit, pas à l’envers, la nature les a mise dans le bon sens sauf le dauphin (do : dernière note de musique, fin) qui donne une chouette à l’envers (ses pieds ressemblent à des chaussons chinois avec des chaussettes blanches, j’ai entendu une fois une chouette hulotte qui faisait des bruitages (ouuuu) ressemblant un peu à Bruce Lee et il a les mêmes chaussons chinois que la chouette, amusante coïncidence).  
+3 têtes dans l’une.  
+2 têtes de singe dans une.  
+1 tête en 2 versions : à l’endroit et à l’envers, tortue ninja (tête), en regardant à l’envers cela fait une tête différente et on voit le blanc des dents.  
+J’ai validé les dernières paréidolies de fééries de glaces pour atteindre 60 le 01/12/2024.  
 
-Les paréidolies cachent certains messages philosophiques.
+Les paréidolies cachent certains messages philosophiques.  
 
-Jeu de parcours des paréidolies
+Jeu de parcours des paréidolies  
 
-Jeu de parcours gratuit à imprimer (inspiré par le jeu de l’échelle) de 108 cases ou cercles, avec les personnages de paréidolies et une petite histoire. 
-Ajouter le jeu de 56 cartes des paréidolies. 
-Il est possible de jouer avec 56 cartes des paréidolies ou 54 cartes classiques en lisant la règle de mes cartes ou d’imprimer toutes les cartes de paréidolies, les découper au ciseau, imprimez la notice et le dessin du jeu. 
+Jeu de parcours gratuit à imprimer (inspiré par le jeu de l’échelle) de 108 cases ou cercles, avec les personnages de paréidolies et une petite histoire.  
+Ajouter le jeu de 56 cartes des paréidolies.  
+Il est possible de jouer avec 56 cartes des paréidolies ou 54 cartes classiques en lisant la règle de mes cartes ou d’imprimer toutes les cartes de paréidolies, les découper au ciseau, imprimez la notice et le dessin du jeu.  
 
-Règle
-Bien mélanger les cartes avant de commencer.
-Jeter un seul dé, si chiffre 3 : avancez de 3 cases et prendre la carte du paquet et suivre la consigne sur la notice générale.
-Dernière case : au choix :
-Faire exactement le chiffre restant sinon ne pas bouger si chiffre supérieur.
-Retour en arrière si dépassement du chiffre.
+Règle  
+Bien mélanger les cartes avant de commencer.  
+Jeter un seul dé, si chiffre 3 : avancez de 3 cases et prendre la carte du paquet et suivre la consigne sur la notice générale.  
+Dernière case : au choix :  
+Faire exactement le chiffre restant sinon ne pas bouger si chiffre supérieur.  
+Retour en arrière si dépassement du chiffre.  
 
-Vous pouvez aussi ajouter des échelles en faisant un trait au crayon de papier dans une version alternative, découpez des feuilles blanches en 56 cartes (option : mettre les noms des paréidolies et la règle ou lire sur la feuille).
-On peut jouer à partir de n’importe qu’elle jeu d’échelles ou parcours en changeant les règles avec mon jeu.
-18/01/2025.
+Vous pouvez aussi ajouter des échelles en faisant un trait au crayon de papier dans une version alternative, découpez des feuilles blanches en 56 cartes (option : mettre les noms des paréidolies et la règle ou lire sur la feuille).  
+On peut jouer à partir de n’importe qu’elle jeu d’échelles ou parcours en changeant les règles avec mon jeu.  
+18/01/2025.  
 
-Jeu de 56 cartes des paréidolies du Meilisme
-de Sylvain Meili
+Jeu de 56 cartes des paréidolies du Meilisme  
+de Sylvain Meili  
 
-Joker : Sylvain Meili (Co), Jésus (Ca), Yoda (T),  Empereur Palpatine (P).
-As : Femme Jedi (Co), Reine (Ca, femme en robe), Jedi vert (T), Dark Vador (P).
-K : Princesse (Co), Mandalorien (Ca), Commandant veste blanche (P),  M. Politique à long nez (T).
-Q : Ewok (Co), Bébé de l’espèce à Yoda (Ca), Soldat de l’empire (T), Humanoïde grenouille à corne (P).
-J : Père Noël (Co), Homme barbu au chapeau (Ca), Humanoïde poilu (T), Soldat extraterrestre à col noir (P).
-10 : Tortue ninja (Co), Bébé dragon (Ca), Dragon de la forêt (T), Dragon du rocher (P).
-9 : Extraterrestre bleu (Co), Pilote Starfox (Ca), Extraterrestre à tête ronde (T), Extraterrestre à large ceinture (P).
-8 : Humanoïde chien (Co), Humanoïde à corne en combinaison (Ca), Homme masqué (P), Extraterrestre gris (T).
-7 : Ours (Co), Homer Simpson (Ca), Extraterrestre gris à moustache (P), Lapin humanoïde doré (T).
-6 : Dauphin (Co), Félin (Ca), Singe blanc (T), Singe noir (P).
-5 : Oiseau vert (Co), Félin exotique à collier (Ca), Chouette (P), Chien (T).
-4 : Dinosaure (Co), Bébé chat (Ca), Monstre (P), Grand lézard (T).
-3 : Rapace (Co), Cervidé (Ca), Lapin blanc (T), Grand serpent (P).
-2 : Souris blanche (Co), Blaireau exotique (Ca), Serpent (P), Buffle (T).
+Joker : Sylvain Meili (Co), Jésus (Ca), Yoda (T),  Empereur Palpatine (P).  
+As : Femme Jedi (Co), Reine (Ca, femme en robe), Jedi vert (T), Dark Vador (P).  
+K : Princesse (Co), Mandalorien (Ca), Commandant veste blanche (P),  M. Politique à long nez (T).  
+Q : Ewok (Co), Bébé de l’espèce à Yoda (Ca), Soldat de l’empire (T), Humanoïde grenouille à corne (P).  
+J : Père Noël (Co), Homme barbu au chapeau (Ca), Humanoïde poilu (T), Soldat extraterrestre à col noir (P).  
+10 : Tortue ninja (Co), Bébé dragon (Ca), Dragon de la forêt (T), Dragon du rocher (P).  
+9 : Extraterrestre bleu (Co), Pilote Starfox (Ca), Extraterrestre à tête ronde (T), Extraterrestre à large ceinture (P).  
+8 : Humanoïde chien (Co), Humanoïde à corne en combinaison (Ca), Homme masqué (P), Extraterrestre gris (T).  
+7 : Ours (Co), Homer Simpson (Ca), Extraterrestre gris à moustache (P), Lapin humanoïde doré (T).  
+6 : Dauphin (Co), Félin (Ca), Singe blanc (T), Singe noir (P).  
+5 : Oiseau vert (Co), Félin exotique à collier (Ca), Chouette (P), Chien (T).  
+4 : Dinosaure (Co), Bébé chat (Ca), Monstre (P), Grand lézard (T).  
+3 : Rapace (Co), Cervidé (Ca), Lapin blanc (T), Grand serpent (P).  
+2 : Souris blanche (Co), Blaireau exotique (Ca), Serpent (P), Buffle (T).  
 	
-Co : Cœur, P : Pique, Ca : Carreau, T : Trèfle
+Co : Cœur, P : Pique, Ca : Carreau, T : Trèfle  
 
-Joker : 
-Sylvain Meili (Co) : La nature vous accompagne, admirer la nature, restez ici. 
-Jésus (Ca) : Ayez la foi pour avancer (là, c’est le hasard), rejouez les dés, si vous faites paire, avancez de 2 cases sinon reculez d’1 case. 
-Yoda (T) : La force vous accompagne, avancez de 3 cases. 
-Empereur Palpatine (P) : La colère du côté obscure, vous reculez de 3 cases.
-As : 
-Femme Jedi  (Co) : Sa beauté et sa force vous fait avancer de 2 cases. 
-Reine (Ca) : La reine vous fait une fleur, avancez de 2 cases.
-Jedi vert (T) : Un endroit secret vous ai révélé, avancez de 2 cases.
-Dark Vador (P) : Mauvaise rencontre en approche; vite, rejouez, faites 5 ou 6 pour avancer d'une case sinon reculez de 2 cases.
-K : 
-Princesse (Co) : La princesse veut jouer avec vous, restez ici un moment. 
-Mandalorien (Ca) : Le mandalorien vous prête un jetpack, il vous emmène 3 cases en avant. 
-M. politique à long nez (T), Il vous envoie sur le mauvais chemin, reculez de 3 cases. 
-Commandant veste blanche (P) : Le commandant vous téléporte 2 cases en avant. 
-Q : 
-Ewok (Co) : L'ewok vous propose de tirer à l'arc, rejouez, si vous faites 4,5 ou 6, il vous montrera un raccourci pour avancer de 2 cases. 
-Bébé espèce Yoda (Ca) : Le mandalorien en promenade s'occupe du bébé, c'est l'heure du goûter, prenez-en un. 
-Soldat de l'empire (T) : Danger, reculez de 2 cases. 
-Humanoïde grenouille à corne (P) : Un allié infiltré, prenez note de ses informations.
-J : 
-Père Noël (Co) : Le père Noël a un cadeau, un bâton démontable avec sa bandoulière, vous avancez de 2 cases. 
-Homme barbu au chapeau (Ca) : Il a un conseil pour vous. 
-Humanoïde poilu (T) : Un cousin à Chewbacca. 
-Soldat extraterrestre à col noir (P) : Un membre du programme spatial. 
-10 : 
-Tortue ninja (Co) : Prenez un cour d'arts martiaux de bâton. 
-Bébé dragon (Ca) : Il est rare d'en voir un, restez-là. 
-Dragon de la forêt (T) : Un dragon passe au loin. 
-Dragon du rocher (P) : Un dragon vous indique où est son rocher préféré. 
-9 : 
-Extraterrestre bleu (Co) : Un cousin à la peau bleu en visite. 
-Pilote Starfox (Ca) : Il passe dans le ciel. 
-Extraterrestre à tête ronde (T) : Vous le trouverer seulement dans un livre de la bibliothèque mobile. 
-Extraterrestre à large ceinture (P) : Il est souvent au même endroit à admirer le paysage. 
-8 : 
-M. chien humanoïde (Co) : Son petit compagnon chien est partit seul en promenade, l’avez-vous vu ? 
+Joker :  
+Sylvain Meili (Co) : La nature vous accompagne, admirer la nature, restez ici.  
+Jésus (Ca) : Ayez la foi pour avancer (là, c’est le hasard), rejouez les dés, si vous faites paire, avancez de 2 cases sinon reculez d’1 case.  
+Yoda (T) : La force vous accompagne, avancez de 3 cases.  
+Empereur Palpatine (P) : La colère du côté obscure, vous reculez de 3 cases.  
+As :  
+Femme Jedi  (Co) : Sa beauté et sa force vous fait avancer de 2 cases.  
+Reine (Ca) : La reine vous fait une fleur, avancez de 2 cases.  
+Jedi vert (T) : Un endroit secret vous ai révélé, avancez de 2 cases.  
+Dark Vador (P) : Mauvaise rencontre en approche; vite, rejouez, faites 5 ou 6 pour avancer d'une case sinon reculez de 2 cases.  
+K :  
+Princesse (Co) : La princesse veut jouer avec vous, restez ici un moment.  
+Mandalorien (Ca) : Le mandalorien vous prête un jetpack, il vous emmène 3 cases en avant.  
+M. politique à long nez (T), Il vous envoie sur le mauvais chemin, reculez de 3 cases.  
+Commandant veste blanche (P) : Le commandant vous téléporte 2 cases en avant.  
+Q :  
+Ewok (Co) : L'ewok vous propose de tirer à l'arc, rejouez, si vous faites 4,5 ou 6, il vous montrera un raccourci pour avancer de 2 cases.  
+Bébé espèce Yoda (Ca) : Le mandalorien en promenade s'occupe du bébé, c'est l'heure du goûter, prenez-en un.  
+Soldat de l'empire (T) : Danger, reculez de 2 cases.  
+Humanoïde grenouille à corne (P) : Un allié infiltré, prenez note de ses informations.  
+J :  
+Père Noël (Co) : Le père Noël a un cadeau, un bâton démontable avec sa bandoulière, vous avancez de 2 cases.  
+Homme barbu au chapeau (Ca) : Il a un conseil pour vous.  
+Humanoïde poilu (T) : Un cousin à Chewbacca.  
+Soldat extraterrestre à col noir (P) : Un membre du programme spatial.  
+10 :  
+Tortue ninja (Co) : Prenez un cour d'arts martiaux de bâton.  
+Bébé dragon (Ca) : Il est rare d'en voir un, restez-là.  
+Dragon de la forêt (T) : Un dragon passe au loin.  
+Dragon du rocher (P) : Un dragon vous indique où est son rocher préféré.  
+9 :  
+Extraterrestre bleu (Co) : Un cousin à la peau bleu en visite.  
+Pilote Starfox (Ca) : Il passe dans le ciel.  
+Extraterrestre à tête ronde (T) : Vous le trouverer seulement dans un livre de la bibliothèque mobile.  
+Extraterrestre à large ceinture (P) : Il est souvent au même endroit à admirer le paysage.  
+8 :  
+M. chien humanoïde (Co) : Son petit compagnon chien est partit seul en promenade, l’avez-vous vu ?  
 Humanoïde à corne en combinaison (Ca) : Pourquoi a-t’il gardé sa combinaison ? 
-Extraterrestre gris (T) : On ne vous croira pas si vous l’avez vu, il est aussi dans la bibliothèque mobile. 
-Homme masqué (P) : Sans commentaire. 
-7 : 
-Ours (Co) : Restez prudent et reculez de 3 cases car il est plus rapide et sait grimper aux arbres. 
-Homer Simpson (Ca) : Son sosie est dans le coin. 
-Lapin humanoïde doré  (T) : Cette espèce est très rare. 
-Extraterrestre gris à moustache (P) : C’est un promeneur avec un masque. 
-6 : 
-Dauphin (Co) : C’est une hallucination, il n’y a pas de dauphin ici, reposez-vous et passez votre prochain tour. 
-Félin (Ca) : Magnifique félin qui se promène. 
-Singe blanc (T) : Continuez, il fait sa sieste dans l’arbre. 
-Singe noir  (P) : Reculez d’1 case pour ne pas le déranger.
-5 : 
-Oiseau vert (Co) : Ils sont difficiles à voir camouflés au milieu des feuilles vertes. 
-Félin exotique à collier (Ca) : C’est le chat d’un riche homme d’affaire. 
-Chien (T) : Il est seul en promenade sans M. chien. 
-Chouette (P) : Elle dort sur une branche d’épicéa contre le tronc 
-4 :
-Dinosaure (Co) : Vous avez trouvé la copie de sa sculpture naturelle en exposition. 
-Petit chat (Ca) : Il demande une caresse. 
-Grand lézard (T) : Ralentissez, reculez d’1 case. 
-Monstre (P) : Monstre en vue, reculez de 2 cases. 
-3 : 
-Rapace (Co) : Un beau rapace est sur son perchoir. 
-Cervidé (Ca) : Il s’éloigne. 
-Lapin blanc (T) : Peut-être avez-vous vu son terrier en passant. 
-Grand serpent (P) : Reculez de 2 cases.
-2 : 
-Souris blanche (Co) : Elle visite parfois le terrier du lapin. 
-Blaireau exotique (Ca) : Un habitant de la forêt. 
-Buffle (T): Il bloque le passage, passez votre prochain tour. 
-Serpent (P) : Reculez d'1 case. 
+Extraterrestre gris (T) : On ne vous croira pas si vous l’avez vu, il est aussi dans la bibliothèque mobile.  
+Homme masqué (P) : Sans commentaire.  
+7 :  
+Ours (Co) : Restez prudent et reculez de 3 cases car il est plus rapide et sait grimper aux arbres.  
+Homer Simpson (Ca) : Son sosie est dans le coin.  
+Lapin humanoïde doré  (T) : Cette espèce est très rare.  
+Extraterrestre gris à moustache (P) : C’est un promeneur avec un masque.  
+6 :  
+Dauphin (Co) : C’est une hallucination, il n’y a pas de dauphin ici, reposez-vous et passez votre prochain tour.  
+Félin (Ca) : Magnifique félin qui se promène.  
+Singe blanc (T) : Continuez, il fait sa sieste dans l’arbre.  
+Singe noir  (P) : Reculez d’1 case pour ne pas le déranger.  
+5 :  
+Oiseau vert (Co) : Ils sont difficiles à voir camouflés au milieu des feuilles vertes.  
+Félin exotique à collier (Ca) : C’est le chat d’un riche homme d’affaire.  
+Chien (T) : Il est seul en promenade sans M. chien.  
+Chouette (P) : Elle dort sur une branche d’épicéa contre le tronc.  
+4 :  
+Dinosaure (Co) : Vous avez trouvé la copie de sa sculpture naturelle en exposition.  
+Petit chat (Ca) : Il demande une caresse.  
+Grand lézard (T) : Ralentissez, reculez d’1 case.  
+Monstre (P) : Monstre en vue, reculez de 2 cases.  
+3 :  
+Rapace (Co) : Un beau rapace est sur son perchoir.  
+Cervidé (Ca) : Il s’éloigne.  
+Lapin blanc (T) : Peut-être avez-vous vu son terrier en passant.  
+Grand serpent (P) : Reculez de 2 cases.  
+2 :  
+Souris blanche (Co) : Elle visite parfois le terrier du lapin.  
+Blaireau exotique (Ca) : Un habitant de la forêt.  
+Buffle (T): Il bloque le passage, passez votre prochain tour.  
+Serpent (P) : Reculez d'1 case.  
 
-1121 Proverbes
+1121 Proverbes  
 
-Montagne de 1112 proverbes
-Pourquoi 1112 ?  Différentes raisons.
-1. Pour faire une montagne de proverbes.
-2. Pour les 9 pas suivant avant 1121.
-3. 3+2= 5ème dimension (état de conscience de 5ème dimension)
-4. Il faut inventer une raison que je n’ai pas encore trouvée.
-5. A vous de deviner la 5ème raison.
-J’ai changé pour 1121 en 2022, l’idée est venue un peu tard pour coïncider avec le 21 de 2021, 1112 est un palier qui à sa place, réponse du point 5 : les 20 grues dessinées par Song Huizong, la 21ème peut être symbolisée par Song Huizong et Sylvain Meili, 21 est la devise pincipale des 20 autres devises.
+Montagne de 1112 proverbes  
+Pourquoi 1112 ?  Différentes raisons.  
+1. Pour faire une montagne de proverbes.  
+2. Pour les 9 pas suivant avant 1121.  
+3. 3+2= 5ème dimension (état de conscience de 5ème dimension).  
+4. Il faut inventer une raison que je n’ai pas encore trouvée.  
+5. A vous de deviner la 5ème raison.  
+J’ai changé pour 1121 en 2022, l’idée est venue un peu tard pour coïncider avec le 21 de 2021, 1112 est un palier qui à sa place, réponse du point 5 : les 20 grues dessinées par Song Huizong, la 21ème peut être symbolisée par Song Huizong et Sylvain Meili, 21 est la devise pincipale des 20 autres devises.  
 
-Proverbes et numéros
-Certains proverbes sont associés à des numéros spécifiques.
-33, 69, 88, 108, 181, 333, 383, 521, 666, 777, 789, 818, 858, 888, 955, 988, 999, 1000, 1112, 1121.
-(Attention, 18  est 3x6 (666), mais j’utilise ce chiffre pour l’empereur 1 et les 8 dragons, pas pour les méchants.
-Le 5 est pour les dragons chinois et pour mon prénom, d’autres personnes utilisent ce chiffre pour le serpent, les chiffres ne leur appartiennent pas donc j’utilise les chiffres qui me servent. 
-Les dragons sont généralement bienveillants, il existe des dragons négatifs et positifs selon l’époque, l’endroit ou la dimension).
+Proverbes et numéros  
+Certains proverbes sont associés à des numéros spécifiques.  
+33, 69, 88, 108, 181, 333, 383, 521, 666, 777, 789, 818, 858, 888, 955, 988, 999, 1000, 1112, 1121.  
+(Attention, 18  est 3x6 (666), mais j’utilise ce chiffre pour l’empereur 1 et les 8 dragons, pas pour les méchants.  
+Le 5 est pour les dragons chinois et pour mon prénom, d’autres personnes utilisent ce chiffre pour le serpent, les chiffres ne leur appartiennent pas donc j’utilise les chiffres qui me servent.  
+Les dragons sont généralement bienveillants, il existe des dragons négatifs et positifs selon l’époque, l’endroit ou la dimension).  
 
-1121 proverbes
-1+1=21 (toi + moi = aimer toi)
+1121 proverbes  
+1+1=21 (toi + moi = aimer toi).  
 
-Proverbes bonus
-En comptant certaines belles réponses alternatives de mon quiz de proverbes, cela fait plus de 1121 proverbes.
+Proverbes bonus  
+En comptant certaines belles réponses alternatives de mon quiz de proverbes, cela fait plus de 1121 proverbes.  
 
-Proverbe spéciale avant chaque poème
-Jusqu’à 777 proverbes, le proverbe avant le poème a une idée en relation avec le poème suivant.
+Proverbe spéciale avant chaque poème  
+Jusqu’à 777 proverbes, le proverbe avant le poème a une idée en relation avec le poème suivant.  
 
-Politesse
-Pour être plus poli, on peut remplacer toutes les insultes des proverbes par peu évolué, primaire, gens de peu, humain de base, mal, c’est faux ou je ne suis pas d’accord.
-Les mots existent donc je les ai utilisés, il faut bien constater un aspect de connard, méchants ou d’abrutis,  je ne vais pas me censurer et être un peu hypocrite, c’est pour montrer que c’est grave. 
+Politesse  
+Pour être plus poli, on peut remplacer toutes les insultes des proverbes par peu évolué, primaire, gens de peu, humain de base, mal, c’est faux ou je ne suis pas d’accord.  
+Les mots existent donc je les ai utilisés, il faut bien constater un aspect de connard, méchants ou d’abrutis,  je ne vais pas me censurer et être un peu hypocrite, c’est pour montrer que c’est grave.  
 Je montre un peu ma révolte, la personne n’est pas en face de moi donc pas obliger de dire que je ne suis pas d’accord, le moins de risque est de ne pas dire d’insultes.
-Je pourrais être plus poli mais je suis authentique en cachant moins ce que j’ai pensé, ça montre les ravages qu’ils infligent.
-Ne pas m’enlever des points pour quelques insultes qui sont nécessaires à ma vraie vie authentique que j’ai eu et pas hypocrite, et sont des conséquences de la bêtise subit pour expliquer.
+Je pourrais être plus poli mais je suis authentique en cachant moins ce que j’ai pensé, ça montre les ravages qu’ils infligent.  
+Ne pas m’enlever des points pour quelques insultes qui sont nécessaires à ma vraie vie authentique que j’ai eu et pas hypocrite, et sont des conséquences de la bêtise subit pour expliquer.  
 
-Jeux Olympiques  de Tokyo 2021 (Japon)
-Le 18 février 2022, Tribunal arbitral du sport : changement de médaille : La chine a remporté la médaille de bronze du relais 4x100 mètres car un Anglais a enfreint les réglementations antidopage et est testé positif à l’ostarine et au S-23 qui sont interdits pour le développement du muscle.
-Total de médaille 89 et 19 de bronze, ce qui est embêtant pour mon interprétation artistique des chiffres mais je ne vais pas enlever mon travail car cela a été vrai pendant 2021.
+Jeux Olympiques  de Tokyo 2021 (Japon)  
+Le 18 février 2022, Tribunal arbitral du sport : changement de médaille : La chine a remporté la médaille de bronze du relais 4x100 mètres car un Anglais a enfreint les réglementations antidopage et est testé positif à l’ostarine et au S-23 qui sont interdits pour le développement du muscle.  
+Total de médaille 89 et 19 de bronze, ce qui est embêtant pour mon interprétation artistique des chiffres mais je ne vais pas enlever mon travail car cela a été vrai pendant 2021.  
 
-Le Meilisme
+Le Meilisme  
 
-Définition (devise) : 
-Devise : La voie du milieu, de la nuance et de la beauté.
-Synthèse : Résumé en 20 devises. 20 est en rime comme le prénom Sylvain et comme les notes à l’école 20/20 points, comme les 20 grues (machine ou l’oiseau) qui nous élèvent (les élèves, s’élever dans le ciel comme la grue).
-La devise principale rassemble toutes les grues : n°21 (aimer toi,  2+1=3 chiffre qui représente la forme de l’oiseau de la grue qui guide toute les autres).
-Son logo (symbole) : drapeau 
-1121 proverbes pour expliquer en détails.
-75 poèmes codés du multivers plus ou moins philosophiques.
-Le jardin idéal.
-Divers arts pour accompagner.
+Définition (devise) :  
+Devise : La voie du milieu, de la nuance et de la beauté.  
+Synthèse : Résumé en 20 devises. 20 est en rime comme le prénom Sylvain et comme les notes à l’école 20/20 points, comme les 20 grues (machine ou l’oiseau) qui nous élèvent (les élèves, s’élever dans le ciel comme la grue).  
+La devise principale rassemble toutes les grues : n°21 (aimer toi,  2+1=3 chiffre qui représente la forme de l’oiseau de la grue qui guide toute les autres).  
+Son logo (symbole) : drapeau  
+1121 proverbes pour expliquer en détails.  
+75 poèmes codés du multivers plus ou moins philosophiques.  
+Le jardin idéal.  
+Divers arts pour accompagner.  
 
-C’est une philosophie inventée par Sylvain Meili, basé sur le mot Chinois Meili signifiant beauté ainsi que le sommet Meili d’une des 8 montagnes sacrés de l’himalaya en Chine dans la province du Yunan, logiquement la voie du milieu, de la nuance est aussi la voie de la beauté (tout ce qui peut être beau : conscience, musique, sagesse, nature, physique, objets…).
-Le but est d’emprunter la voie la plus juste et la plus belle et d’éviter le manichéisme du tout est parfait dans l’univers, que il y a la même conscience partout en disant que l’autre c’est toi (non, nous sommes plusieurs éternellement interconnectés) ainsi que tous les gens qui font des généralités sur des personnes ou des groupes ou éxagèrent. 
-C’est la voie qui évite des aspects d’imbéciles heureux qui peuvent vibrer haut et les idiots et les méchants qui vibrent plus bas.
+C’est une philosophie inventée par Sylvain Meili, basé sur le mot Chinois Meili signifiant beauté ainsi que le sommet Meili d’une des 8 montagnes sacrés de l’himalaya en Chine dans la province du Yunan, logiquement la voie du milieu, de la nuance est aussi la voie de la beauté (tout ce qui peut être beau : conscience, musique, sagesse, nature, physique, objets…).  
+Le but est d’emprunter la voie la plus juste et la plus belle et d’éviter le manichéisme du tout est parfait dans l’univers, que il y a la même conscience partout en disant que l’autre c’est toi (non, nous sommes plusieurs éternellement interconnectés) ainsi que tous les gens qui font des généralités sur des personnes ou des groupes ou exagèrent.  
+C’est la voie qui évite des aspects d’imbéciles heureux qui peuvent vibrer haut et les idiots et les méchants qui vibrent plus bas.  
 
-Les 75 poèmes codés du multivers 
+Les 75 poèmes codés du multivers  
 
-33 types de poème dont 16 inventions.
-17 classiques
-Acrostiche : (2) n°33, 54 (commencement par les initials du 1er mot d’une phrase qui forment un mot vertical dans un poème).
-Accrostiche initiale : 72, pareil que le précédent mais aléatoirement, 1 lettre par ligne.
-Acrostiche de mots : 72, 73, (commencement par le 1er mot d’une phrase pour créer une phrase verticale dans un poème).
-Accrostiche de rang variable : 72, 73, pareil que le précédent mais aléatoirement, 1 mot par ligne.
-Anaphore : (7) n°12, 14, 32, 46, 48, 55, 64 (reprises des débuts de phrases antécédents)
-Assonance interne : non comptabilisé car il y en a pratiquement partout, généralement sans faire exprès (répétitions des mêmes sons à la fin des mots à l’intérieur des vers).
-Centon : 71, 75, phrases historiques réorganisées en nouveau poème plus ajout).
-Dialogue (avec rimes suivies) : n°11.
-Holorime partiel : 70 (même pronciation, différents mots).
-Holorime narratif : 74 (tout le texte).
+33 types de poème dont 16 inventions.  
+17 classiques  
+Acrostiche : (2) n°33, 54 (commencement par les initiales du 1er mot d’une phrase qui forment un mot vertical dans un poème).  
+Acrostiche initiale : 72, pareil que le précédent mais aléatoirement, 1 lettre par ligne.  
+Acrostiche de mots : 72, 73, (commencement par le 1er mot d’une phrase pour créer une phrase verticale dans un poème).  
+Acrostiche de rang variable : 72, 73, pareil que le précédent mais aléatoirement, 1 mot par ligne.  
+Anaphore : (7) n°12, 14, 32, 46, 48, 55, 64 (reprises des débuts de phrases antécédents).  
+Assonance interne : non comptabilisé car il y en a pratiquement partout, généralement sans faire exprès (répétitions des mêmes sons à la fin des mots à l’intérieur des vers).  
+Centon : 71, 75, phrases historiques réorganisées en nouveau poème plus ajout).  
+Dialogue (avec rimes suivies) : n°11.  
+Holorime partiel : 70 (même pronciation, différents mots).  
+Holorime narratif : 74 (tout le texte).  
 Prose : (29) poèmes (sans rimes) n°7, 8, 9, 13, 24, 25, 29, 30, 31, 34, 35, 36, 37, 38, 39, 41, 42, 43, 47, 49, 56, 57, 59, 60, 64, 65, 66, 67, 68, 71, 72, 73, 75.
-Quatrain monorime : n°60 (aaaa).
-Rime continue (monorime) : n°26, 71 (aaa…).
-Rime suivie : (26) n°1, 2, 3, 6, 9, 10, 11, 12, 15, 16, 17, 19, 20, 21, 23, 27, 28, 35, 40, 47, 50, 52, 53, 60, 62, 69, 75 (aa).
-Rime embrassée : n°45, 72 (abba).
-Rimes croisées : n°62 (abab).
-Téléstiche : 72, 73 (contraire d’acrostiche en fin de phrase).
+Quatrain monorime : n°60 (aaaa).  
+Rime continue (monorime) : n°26, 71 (aaa…).  
+Rime suivie : (26) n°1, 2, 3, 6, 9, 10, 11, 12, 15, 16, 17, 19, 20, 21, 23, 27, 28, 35, 40, 47, 50, 52, 53, 60, 62, 69, 75 (aa).  
+Rime embrassée : n°45, 72 (abba).  
+Rimes croisées : n°62 (abab).  
+Téléstiche : 72, 73 (contraire d’acrostiche en fin de phrase).  
 
 16 inventions
 9 poémes de structure 
