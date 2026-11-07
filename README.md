@@ -2945,7 +2945,7 @@ cela peut prendre des milliers d’années ou des centaines d’années ou moins
 749  
 Quand on a un jardin, il faut cultiver une partie de sa nourriture au lieu de l’acheter car cela fait des emballages, rajoute du travail à la société et pollue.  
 750  
-L’amour inconditionnel est dans la tempérance de l’équilibre.  
+<ins>L’amour inconditionnel est dans la tempérance de l’équilibre</ins>.  
 L’amour inconditionnel n’importe où ne veut pas dire la meilleure décision car il faut aimer de façon à ce que l’autre ne soit pas trop dépendant des autres ou qu’il puisse évoluer.  
 
 Une journée idéale   
@@ -3025,8 +3025,8 @@ Celui qui souffre peut s’expliquer par plusieurs raisons, sa vibration n’est
 772  
 Avec le bien et le mal, le concept de conséquences peut rendre malléable la définition du bien et du mal.  
 773  
-Le libre arbitre  
-L’école et la religion  
+**Le libre arbitre**  
+<ins>L’école et la religion</ins>  
 On peut enseigner la philosophie qui concerne la vie terrestre mais dès que cela concerne dieu, la réincarnation et l’au-delà, c’est une infraction du libre arbitre si il n y a pas de confrontation des religions en cous ou en débat. Je pense qu’il  faut confronter au moins 3 doctrines où il y a présence de sujets de l’au-delà.  
 La confrontation des idées permet d’éclairer en partie ce qui est le meilleur.  
 Si une école enseigne seulement une religion, cela est contre le libre arbitre, elle est autorisée seulement si c’est une option en accès libre.  
@@ -3044,7 +3044,7 @@ Une paix par la sagesse est plus solide qu’une paix par des circonstances mais
 Un égo équilibré est la voie du paradis.  
 777  
 Se rapprocher de dieu, les révélations : oui mais avec toutes les bonnes options.  
-Imagination d’un paradis  
+**Imagination d’un paradis**  
 Un homme et sa femme (ou inversement, égalité).  
 Prendre l’apparence que l’on veut (métamorphe) ou ne garder que sa conscience sans forme quand on veut, se rapetisser, grandir.  
 Le plaisir du corps et de la nourriture.  
@@ -3174,14 +3174,14 @@ Il y a deux formes de nez parfait, le nez droit et le nez courbé vers le ciel a
 780  
 Ne pas épargner son argent ou le dépenser dans des choses irrécupérables ou non fondamentales pour faire vivre une image sociale maintient une forme d’esclavage et de dépendance auto-imposé. Ce n’est pas la voie d’une dépense raisonnée, c’est la voie du moujonc. Quand on est en couple, garder chacun son compte en banque pour ne pas risquer d’être volé, avoir le compte vidé ou être pris au piège d’un dictateur.  
 781  
-Erreurs de jugement  
+**Erreurs de jugement**  
 Avant de dire que quelqu’un a un égo surdimensionné, vérifie si c’est vrai ce qu’il a dit ou si il s’est surestimé sinon tais-toi si tu n’a pas d’arguments.
 Le constat d’une qualité n’est pas un excès d’égo sauf si on le dit trop de fois dans un certain contexte. C’est plus souvent accepté de dire qu’une personne est la meilleure mais quand c’est pour soi, on en fait un problème, et toi je peux dire tu as un excès d’égo pour croire que c’est toi qui a raison en disant que le meilleur c’est cette personne si je suis ta logique programmée. Mon avis sur moi-même est aussi un avis et je reconnais les domaines ou je suis moins fort.  
 Si l’on reste juste à constater que l’on est le meilleur ou parmi les meilleurs ou simplement l’égal dans certains domaines (ex : philosophie), certains font l’amalgame en nous traitant de mégalomane narcissique, soit on les dérange par notre talent ou soient ils nous croient plus cons qu’on ne l’est, ils ne sont pas devins et ça reste en vain.  
 Ils disent : si tu le dis, c’est que tu ne l’est pas ou que c’est le contraire : comme si c’était la phrase qui annulait toutes les choses intelligentes dites dans un livre ou avant (ridicule argument). Même si il y a des gens qui se trouvent les meilleurs et sont assez cons, cela ne veut pas dire que c’est tout le monde pareil, il y a parfois des cas où ce sont vraiment les meilleurs.  
 Il y en a qui jugent avant de lire et n’ont pas d’arguments, prouvez que ces personnes sont meilleurs que moi au lieu de me rabaisser. 
 Il se permet de dire que lui est meilleur que moi, mais moi je n’ai pas le droit de dire que je suis meilleur que celui qu’il désigne, alors que j’ai plus d’arguments, il fait le même genre de phrase que moi mais rejette la faute sur moi. 0 humilité, toi aussi, tu crois que t’as raison, je te renvoie l’accusation. Il me rabaisse par rapport à un individu, moi aussi j’ai le droit de dire que je suis meilleur. Meilleur en romanesque ne veut pas dire meilleur en philosophie, non mais il a l’air de croire que je dois mettre de la poésie et des métaphores quasi partout, je ne fais pas un roman, je préfère ma philosophie plutôt que celle de Nietzsche, j’ai le droit.  
-Il n’aime pas qu’une personne qu’il trouve inférieure se considère au-dessus de lui le dramaturge. C’est lui qui fait beaucoup plus d’attaques négatives sur toi mais il se venge en faisant des pronostics négatifs sur ton futur (tu auras zéro impact sur la société, tu vas finir tout seul, sans amis : c’est pas encore le cas, 0 impact est manichéen, j’en ai déjà un peu et j’ai pas dit tout ce que j’ai fait), disant que tu lui a rien appris (ce qui est faux), en te rabaissant, en t’insultant d’autiste (vérifie la définition M. Moujonc, j’ai dragué une fois 23 asiatiques dehors dans la même journée) et de philosophe d’un gamin de 15 ans, (c’est pas bien de ci, de ça dans mon livre: il exagère, 20 ans pour écrire mon livre, c’est plus que 15), il a mis 7/20 à mon 1er livre 383 proverbes français inédits (la plupart ont mis une bonne note), après 1121 proverbes il trouve ça fade, il me rajoute plus d’un an sur mon âge, il a peur et s’énerve plus que moi simplement parce que je me trouve meilleur, il critique surtout la forme, il croit que me sens faible et fais de la merde alors que je pense que je suis très fort, donc il fait des déductions fausses, que je ne suis pas assez ouvert d’esprit : plus que toi au vu de tous les sujets abordés dans mon livre). Au moins il trouve mes poèmes bons, certains trucs en philosophie intéressants, il m’encourage mais en disant des bêtises.  
+Il n’aime pas qu’une personne qu’il trouve inférieure se considère au-dessus de lui le dramaturge. C’est lui qui fait beaucoup plus d’attaques négatives sur toi mais il se venge en faisant des <ins>pronostics négatifs sur ton futur</ins> (tu auras zéro impact sur la société, tu vas finir tout seul, sans amis : c’est pas encore le cas, 0 impact est manichéen, j’en ai déjà un peu et j’ai pas dit tout ce que j’ai fait), disant que <ins>tu lui a rien appris</ins> (ce qui est faux), en <ins>te rabaissant</ins>, en <ins>t’insultant</ins> d’autiste (vérifie la définition M. Moujonc, j’ai dragué une fois 23 asiatiques dehors dans la même journée) et de philosophe d’un gamin de 15 ans, (c’est pas bien de ci, de ça dans mon livre: il exagère, 20 ans pour écrire mon livre, c’est plus que 15), il a mis 7/20 à mon 1er livre 383 proverbes français inédits (la plupart ont mis une bonne note), après 1121 proverbes il trouve ça fade, il me rajoute plus d’un an sur mon âge, il a peur et s’énerve plus que moi simplement parce que je me trouve meilleur, il critique surtout la forme, il croit que me sens faible et fais de la merde alors que je pense que je suis très fort, donc il <ins>fait des déductions fausses</ins>, que je ne suis pas assez ouvert d’esprit : plus que toi au vu de tous les sujets abordés dans mon livre). Au moins il trouve mes poèmes bons, certains trucs en philosophie intéressants, il m’encourage mais en disant des bêtises.  
 Je ne vais pas changer les ¾ de mon livre pour lui plaire et rendre plus faux et moins compréhensible tout ça pour faire beau.  
 
 Ce qui est souligné est le type de comportement négligent des gens quant tu les contrarie, il faut vraiment résister à ce genre de personne.  
@@ -3191,7 +3191,7 @@ Pour que les gens soient plus juste à faire le constat d’un philosophe, j’a
 Certains pays ont réalisé plus d’inventions que d’autres parce que les réincarnations de génies peuvent se faire connaître plus facilement à partir de ces pays.
 Dans les réincarnations, il est possible qu’un talent d’une autre vie soit bloqué pour qu’on fasse autre chose dans la prochaine vie.  
 783  
-Humain de base.  
+**Humain de base**.  
 La personne qui est dans la moyenne, banale, qui ne dépasse pas du troupeau, comme les autres, j’ai trouvé et inventer la dénomination d’humain de base.  
 784  
 Attention à ne pas mettre des vêtements trop serrant où cela fera apparaître des déformations, des creux ou des vergetures, cela peut aussi diminue l’énergie et favoriser les douleurs.  
@@ -3203,13 +3203,13 @@ Le moujonc suit de très près les autres, parfois à être trop collé dans une
 786  
 Préserver les races, c’est l’amour des différentes beautés égales dans le monde idéal (chacun ses goûts, on estimera toujours qu’il y en a qui paraissent plus beaux que d’autres même au sein d’une race ou d’un type d’apparences).  
 787  
-Un peu de santé  
+**Un peu de santé**  
 Sentir le vent à une température agréable est meilleur pour la santé qu’un air statique, il réduit l’humidité et donc les tensions et les nœuds musculaires. On peut utiliser un ventilateur.  
 Les dents : mettre un composite blanc au creux des dents limite beaucoup la formation de caries.  
 788  
 Quand on achète une console de jeux vidéo ou peut-être d’autres choses, ne pas jeter la boîte mais les consciences de court terme n’ont pas conscience de l’utilité de la boite pour un futur rangement, un déménagement, un héritier ou une revente.  
 789  
-Déterminer le meilleur philosophe ou livre de philosophie  
+**Déterminer le meilleur philosophe ou livre de philosophie**  
 Un riche vocabulaire plus ou moins rare et des phrases compliquées sont utilisés par certains et peuvent faire croire qu’ils sont les plus intelligents mais tendent à masquer sur certains préceptes qu’ils ne sont pas dans la vérité.  
 Exemple : 1000 proverbes et réflexions.  
 1er cas : phrases plus élaborées, compliquées (moins accessible aux très jeunes) et métaphores mais seulement 92% de vérités.  
@@ -3217,25 +3217,25 @@ Exemple : 1000 proverbes et réflexions.
 Le 2ème cas est meilleur pour faire évoluer mais si il dit certaines vérités difficiles à accepter pour l’époque ou l’individu, la lucidité du 2ème cas sera rabaissé par le mépris de ceux qui trouvent meilleur le 1er cas car il a trouvé plus de phrases complexes.  
 Dans le pourcentage d’erreurs, on doit prendre aussi en compte que certaines peuvent être graves ou très aberrantes, par conséquent une très grosse erreur peut en valoir 2 plus petites.  
 En plus du pourcentage d’erreurs, il doit être considéré leurs gravités.  
-Le fond est plus important que la forme quand on sait dans l’histoire les idées suivis qui ont provoqué les pires horreurs.  
-Le fond, la forme, le pourcentage et la gravité des erreurs, ainsi que la diversité des sujets doivent être étudiés pour évaluer la qualité d’un philosophe, on peut ajouter la mise en scène artistique qui se chevauche notamment avec des poèmes philosophiques ou autres arts qui pourraient être empreints de philosophie.  
-Le plus beau n’est pas celui qui a le plus joli costume mais le plus splendide corps, accompagné d’accessoires la sublimation en est magnifiée. (Réponse métaphorique pour créer le meilleur livre).  
-Le summum de l’union du corps, du costume et des accessoires aboutit à la quintessence de l’œuvre légendaire. (Si c’est possible).  
+**Le fond est plus important que la forme quand on sait dans l’histoire les idées suivis qui ont provoqué les pires horreurs.  
+Le fond, la forme, le pourcentage et la gravité des erreurs, ainsi que la diversité des sujets doivent être étudiés pour évaluer la qualité d’un philosophe, on peut ajouter la mise en scène artistique qui se chevauche notamment avec des poèmes philosophiques ou autres arts qui pourraient être empreints de philosophie**.  
+<ins>Le plus beau n’est pas celui qui a le plus joli costume mais le plus splendide corps, accompagné d’accessoires la sublimation en est magnifiée</ins>. (Réponse métaphorique pour créer le meilleur livre).  
+<ins>Le summum de l’union du corps, du costume et des accessoires aboutit à la quintessence de l’œuvre légendaire</ins>. (Si c’est possible).  
 Corps : vérité, costume : beauté, métaphore ou complexité des phrases, accessoires : toutes les inventions justifiées de différents arts pour soutenir toute l’œuvre.  
 
 Pour faire évoluer le plus rapidement, il faut être clair et ne pas parler trop longuement dans des phrases compliquées qui nous embrouillent et sont moins pertinentes.  
 
 790  
-Les différents classements de la philosophie  
+**Les différents classements de la philosophie**  
 Le meilleur philosophe peut différer selon le point de vue d’approche systèmique de pensée. 
 Pour catégoriser le meilleur phiosophe, différents paramètres peuvent changer le classement.  
-1. Le meilleur philosophe universel (le plus prés de la vérité sur le plus de sujets différents : 1 ou plusieurs livres).  
-2. Le meilleure philosophe pour son œuvre (un livre : diversité des sujets, vérités, qualités (éloquence, poésies philosophiques et autres arts associés).  
-3. Le meilleur philosophe toutes œuvres compilées d’une vie (quantité, qualité, vérités : plus subjective car pourcentages de vérités généralement un peu plus bas).  
-4. Le meilleur philosophe sur 1 ou plusieurs sujets.  
+1. <ins>Le meilleur philosophe universel</ins> (le plus prés de la vérité sur le plus de sujets différents : 1 ou plusieurs livres).  
+2. <ins>Le meilleure philosophe pour son œuvre</ins> (un livre : diversité des sujets, vérités, qualités (éloquence, poésies philosophiques et autres arts associés).  
+3. <ins>Le meilleur philosophe toutes œuvres compilées</ins> d’une vie (quantité, qualité, vérités : plus subjective car pourcentages de vérités généralement un peu plus bas).  
+4. <ins>Le meilleur philosophe sur 1 ou plusieurs sujets</ins>.  
 Pour être dans les meilleurs philosophes au sens général selon moi.  
 Il faut environ 1000 proverbes ou environ 1000 phrases plus ou moins développés.  
-Les différents classements de la poésie  
+**Les différents classements de la poésie**  
 Le meilleur poète.  
 La meilleure œuvre de poésies.  
 Le meilleur poème.  
@@ -3260,7 +3260,7 @@ Les relations peuvent mettre les plus mauvais au premier plan d’influence.
 797  
 Celui qui stresse tes nerfs baisse ton énergie.  
 798  
-Maquillage  
+**Maquillage**  
 Quand une miss beauté d’un pays sera élue sans maquillage, ça sera une beauté authentique qui aura le courage et la sagesse de montrer à toutes les autres qu’on est pas obligée d’être maquillée pour être la plus belle car le maquillage ne veut pas dire rendre plus belle et peut rendre aussi moins belle.  
 C’est un peu comme un déguisement.  
 
@@ -3302,17 +3302,17 @@ Pour décrisper un visage, écarter un peu sa bouche en allant un peu vers le ba
 813  
 Il faut savoir où est le mauvais et le bon chemin pour prendre le bon chemin.  
 814  
-Jeter des choses et détérioration  
+**Jeter des choses et détérioration**  
 Des capricieux qui veulent changer la décoration en achetant une maison, un appartement ou changent d’avis polluent la planète en changeant le carrelage ou toute matière artificiel qui est balancé dans une décharge, qui n’est pas recycler ou qui finit dans la nature sauvage car quelqu’un ne veut pas payer la taxe de déchetterie ou par fainéantise.  
 Tous les gens qui jettent des choses en bon état et sont détruites alors que cela fait partie du patrimoine, ou un meuble sculpté cassé à un endroit dont on peut récupérer une partie pour faire un autre, mais non ils sont pressés de se débarrasser.  
 Les gens qui cassent des briques pour faire des arts martiaux sont des pollueurs et des gaspilleurs.  
 Le pollueur renvoie ses cagettes vides en enroulant pleins de rouleaux de plastiques au lieu d’utiliser de la ficelle naturelle pour tout faire tenir, pareil pour d’autres choses, qu’ils arrêtent leurs méthodes polluantes pour faire tenir des paquets ensemble.  
-Maison abandonnée  
+<ins>Maison abandonnée</ins>  
 Une maison abandonnée dont le lierre va casser la vitre ou une maison déjà ouverte, entretenir la maison sans être propriétaire en attendant qu’un vrai propriétaire revienne est une bonne action contre la destruction du patrimoine, des meubles qui pourrissent donc dans le futur : plus d’arbres coupés faute d’avoir sauver ces meubles, plus la pollution.  
 Se contenter d’entretenir sans rien changer de place, en laissant au maximum dans l’état d’avant.  
 Ne pas taguer, c’est non respectueux et rajoute du travail de restauration et fait perdre plus d’argent, ce qui polluera plus la planète de ne pas envoyer son travail et son argent pour construire, aider ou sauvegarder plutôt que de réparer la bêtise des autres.  
 Attention à faire ça discrètement pour éviter malentendu ou amalgame avec d’autres gens plus malveillants, ou trouver une manière plus sûre de prouver de ses bonnes intentions au cas où.  
-Déchetterie  
+<ins>Déchetterie</ins>  
 Autoriser ceux qui travaillent dans les déchetteries à sauver un objet au lieu de sa destruction, il devra le signaler qu’il l’a prit genre autorisation de prendre pour soi un certain nombre d’objets par mois ou organisme agréé de sauvetage de vie supplémentaire.  
 815  
 Le point le plus haut n’est pas l’esprit seul, c’est l’esprit avec un maximum d’options.  
@@ -3321,13 +3321,13 @@ On parle d un autre sujet et on nous répète pour nous programmer et pour évit
 817  
 Les proverbes nous font réfléchir et peuvent être plus ou moins des vérités ou non, logiques, poétiques, des jeux de mots, drôles, le tout, c’est de choisir les bons.  
 818  
-La perfection est de faire ce que l’on veut dans la forme que l’on veut sans souffrir et sans faire souffrir les autres.  
+**La perfection est de faire ce que l’on veut dans la forme que l’on veut sans souffrir et sans faire souffrir les autres.  
 La perfection est d’être toujours plusieurs unis pour l’éternité.  
 Être sans forme et ne rien faire avant la première forme de toute la création n’est pas la perfection, c’est peut-être être conscient mais ce n’est pas vivre » (en réponse a une théorie de certains).  
 Il faut faire aussi sa part de services aux autres.  
 Toute la création peut faire évoluer la source.  
 Toute la création fait partie de dieu.  
-La vie est faite pour être partagée.  
+La vie est faite pour être partagée**.  
 Il y a la source, le créateur ou dieu primordial (première conscience) de l’univers central et de tous les univers et un dieu pour chaque univers.  
 Pour l’éternité, la possibilité de prendre conscience dans la forme sinon la source est conne.  
 (Réflexions de théories selon moi).  
@@ -3356,14 +3356,14 @@ Ils interviennent seulement discrètement généralement quand les méchants d�
 Même si les choses sont impossibles, je demande à la source et au dieu de cet univers d’empêcher toute torture insupportable mais ils ne veulent pas changer au lieu de mettre un niveau d’intelligence et d’assistance minimum divine. Ils ne veulent pas changer.  
 La souffrance nous oblige à faire des efforts de créativité pour évoluer.  
 La source aussi évolue selon moi.  
-Lire le livre Conversation avec Dieu de Neale Donald Walsch, je ne suis pas d’accord sur plusieurs point, je suis contre tout est parfait et contre que tout est moi car d’après ce qu’il dit ; moi dans la logique, je peux décider de ne pas être lui éternellement si je suis créateur de ma vie :
+Lire le livre <ins>Conversation avec Dieu de Neale Donald Walsch</ins>, je ne suis pas d’accord sur plusieurs point, je suis contre tout est parfait et contre que tout est moi car d’après ce qu’il dit ; moi dans la logique, je peux décider de ne pas être lui éternellement si je suis créateur de ma vie :
 J’ordonne que la planète terre est éternelle ou qu’elle soit téléportée dans un autre système solaire ou univers si celui-ci disparait, je demande même si ils disent que c’est impossible.  
-Je décide de rester éternellement séparé de la source tout en étant connecté, dans ce cas là nous serons toujours au moins 2, dans la voie du milieu, du bien-être de la forme et de la connaissance de faire ce que je veux dans le bien ; comme ça, je garde mon individualité, c’est moi qui a raison.  
-Donc 2 options : perde son individualité en fusionnant avec la source ou garder son individualité en étant connecté à la source.  
+**Je décide de rester éternellement séparé de la source tout en étant connecté, dans ce cas là nous serons toujours au moins 2, dans la voie du milieu, du bien-être de la forme et de la connaissance de faire ce que je veux dans le bien ; comme ça, je garde mon individualité, c’est moi qui a raison.  
+Donc 2 options : perde son individualité en fusionnant avec la source ou garder son individualité en étant connecté à la source**.  
 819  
-Le syndrome des « imbéciles » heureux   
+**Le syndrome des « imbéciles » heureux**   
 Ce terme est une exagération, cela signifie pas être imbécile en tant que personne mais imbécile sur certains aspects ou sujets, voici ci-dessous un certain nombre de propos de ceux qui se contente du rien, ou font des phrases trop courtes, ce qui fait qu’elles deviennent plus fausses et manichéennes, qui trouvent une excuse à tout, répètent comme des perroquets ou des  « mougeons/moujoncs », je corrige ces propos rapidement au plus simple selon mon avis, certaines phrases ne font pas forcément imbécile heureux, voici la collection de phrases.  
-« Tout est parfait/ tout est juste/ tout va toujours bien. »  
+<ins>« Tout est parfait/ tout est juste/ tout va toujours bien. »<ins>  
 J’ordonne que tout est juste.  
 Ou alors le dire pour attirer le juste car le verbe est créateur mais ça veut pas dire que tout est juste.  
 Les premiers créateurs de l’univers, arrêter de croire que votre système est parfait dès le premier univers créé, c’est ridicule.  
@@ -3374,137 +3374,137 @@ Si on n’éduque pas un enfant bien, le monde sera pire, donc il aura un mauvai
 Le mal est un moyen de tester la réaction de mauvaises attitudes potentielles mais arrêter d’abuser car cela fait pire.  
 Vous pouvez peut-être dire : tout est accepté (incarnation) au risque d’événements incertains. Accepter ne veut pas dire rendre parfait ou juste donc changez le vocabulaire.  
 Tout est juste est un argument que peuvent utiliser les méchants pour continuer leurs conneries et c’est une phrase énervante car c’est faux.  
-Tout est parfait dans l’univers est un argument de dictateur pour justifier tout ce qu’il fait (tout son système).  
+**Tout est parfait dans l’univers est un argument de dictateur pour justifier tout ce qu’il fait (tout son système)**.  
 Une chose nécessaire n’est pas forcément une chose juste mais le chemin le plus optimisé.  
 Croire que tout est parfait est comme faire un code de triche ou mettre une paire de lunettes magiques hypnotiques pour s’enlever toutes ses contrariétés pour vibrer haut mais en trichant sur un mensonge. Au lieu de transmuter le négatif en positif normalement, ils s’inventent une phrase mensongère, et cela fait baisser la vibration d’autres d’entendre une telle bêtise. On peut évoluer sans utiliser des phrases illogiques.  
-Ce n’est pas parce que il faut une dualité pour évoluer dans de nombreux cas que tout est parfait, il faut enseigner la meilleure des sagesses pour réduire au maximum la dualité.  
-Les consciences de l’au-delà et les extraterrestres positifs, pas besoin de nous aider, tout est parfait, mais si on nous aide pas, donc davantage de souffrances, et si on nous aide cela devient plus parfait que quand tout était parfait avec moins d’aides donc mon argument vous a battu donc tout est parfait est faux.  
+**Ce n’est pas parce que il faut une dualité pour évoluer dans de nombreux cas que tout est parfait, il faut enseigner la meilleure des sagesses pour réduire au maximum la dualité**.  
+Les consciences de l’au-delà et les extraterrestres positifs, pas besoin de nous aider, **tout est parfait, mais si on nous aide pas, donc davantage de souffrances, et si on nous aide cela devient plus parfait que quand tout était parfait avec moins d’aides donc mon argument vous a battu donc tout est parfait est faux**.  
 Leur réponse : « On vous aide pour qu’il y a moins de souffrance mais tout est juste. » Donc pas d’argument supérieur à moi.
 Ils ont trouvé une autre explication : tout est parfait car on a toujours l’occasion d’envoyer de l’amour (dans ce cas enlève tout est parfait et garde on a toujours l’occasion d’envoyer de l’amour sinon c’est ridicule).  
 Et l’animal ou l’humain qui agonise horriblement à cause d’un inventeur de maladies, vas-tu vérifier ta phrase et lui dire pendant qu’il souffre : quoi qu’il se passe, tout est juste. Je t’ai piégé.  
-« Le réel est sans conscience, sans mots, sans histoires, sans forme. »  
+<ins>« Le réel est sans conscience, sans mots, sans histoires, sans forme. »</ins>  
 Tout ce qui existe fait parti du réel sauf que certaines choses durent un temps et que le créateur est éternel.  
 L’irréel est sans conscience ni rien d’autres et le réel est conscience.  
 Il y a les réalités éternelles et les réalités passagères.  
-« La terre 3D est un monde d’illusions ou la forme est une illusion. »  
+<ins>« La terre 3D est un monde d’illusions ou la forme est une illusion. »</ins>  
 C’est un monde réel (plus) limité déconnecté en partie de la source dans un monde où la vérité totale n’est pas accessible directement, ou la souffrance et le mensonge existe pendant un temps qui n’est pas éternel. Ils disent un monde d’illusion là où il n y a pas d’amour (quand on reçoit l’explication). Il y a des gens qui ont des croyances illusoires, l’illusion peut être un hologramme ou un trucage de fausse magie.  
-« La matière est une illusion.»  
+<ins>« La matière est une illusion.»</ins>  
 Dire que la matière est une illusion parce que au niveau nanoscopique et subatomique, ce qui constitue la matière protons, neutrons, électrons et autres particules sont surtout entourés de vide est ridicule, expliquer la matière n’est pas prouver qu’elle est une illusion.  
-« Le passé n’a jamais existé. »  
+<ins>« Le passé n’a jamais existé. »</ins>  
 Si le passé n’a jamais existé, tu n’existe pas alors ? Le présent est les conséquences du passé.  
-« Il n’y a pas d’erreurs, que des leçons. »  
+<ins>« Il n’y a pas d’erreurs, que des leçons. » </ins> 
 Des erreurs répétées ne sont pas encore des leçons.  
 Ex : le pollueur qui jette par terre des centaines de fois sa cigarette de produits toxiques.  
-« Il n’y a pas de hasard. »  
+<ins>« Il n’y a pas de hasard. »</ins>  
 Il y a un hasard qui peut-être prédéterminé ou modifié plus ou moins facilement par l’univers. Quand on jette un dé, il y a le hasard, ça s’appelle les probabilités (1 chance sur 6). Si on pose une question à l’univers avec des dés, il faudra lancer les 3 dés des centaines de fois ou plus de 1000 fois pour que le chiffre de la réponse sorte plus que d’autres car influencé par l’univers car le hasard est dominant et que l’on peut influencer seulement en partie. (Il faut faire le vide dans son esprit pour ne pas influencer). 3x3 pour oui 3x4 pour non.  
 Il y a les vraies coïncidences qui peuvent être parfois considérées comme des synchronicités, les fausses coïncidences qui sont des coïncidences hasardeuses, et le hasard.  
 3 autres explications. Il peut y avoir le hasard ou alors c’est un message de l’au-delà quand quelqu’un dit le même mot que toi à la télé 1 seconde après ou en écoutant 2 vidéos en même temps. Peut-être qu’on capte le futur inconsciemment et que cela influence le mot que l’on dit.  
-« Pas besoin de revivre ce qui a été vécu. »  
-Le sage ne se lasse pas des bonnes choses.  
-« Tu es la source en incarnation »  
+<ins>« Pas besoin de revivre ce qui a été vécu. »</ins>  
+*Le sage ne se lasse pas des bonnes choses*.  
+<ins>« Tu es la source en incarnation »</ins>  
 Non car alors dans ta logique, l’arbre, la mouche est aussi la source en incarnation et la bactérie est moi en incarnation mais je ne vais pas me réincarner en mouche ni faire toutes les réincarnations de l’univers.  
 Je fais partie de l’ensemble de la création.  
-« On est responsable de sa vie et de sa souffrance. »  
-Je ne suis pas forcément responsable de ce que les autres m’infligent mais il y a aussi une partie de karma.  
+<ins>« On est responsable de sa vie et de sa souffrance. »</ins>  
+*Je ne suis pas forcément responsable de ce que les autres m’infligent mais il y a aussi une partie de karma*.  
 Pas à 100%, pas toujours vrai, par exemple si l’on avait prévu de faire des enfants avec une personne en se réincarnant et qu’elle n’est pas venue. Aller dire ça aux bébés et enfants maltraités s’ils sont responsables de leurs souffrances, si quelqu’un te tape très fort et que tu as mal, tu souffres donc pas responsable de sa souffrance si tu es innocent, c’est n’importe quoi. Même si quelqu’un choisi de s’incarner, arrêter de dire ça.   
 Si un méchant envoie un virus qui tue et torture horriblement les gens, c’est de leurs fautes car ils ne vibrent pas assez haut pour ne pas avoir de symptômes, c’est très abusé votre logique qui est injuste.  
 C’est peut-être le karma mais qui n’est pas une excuse à tout.  
 Si quelqu’un pollue et que l’on doit s’embêter à dépolluer.  
 On doit être en paix dans toutes les circonstances donc on n’est pas assez fort si on s’énerve ou si on a une blessure physique, impossible d’être parfait.
-« Chaque être est là ou il doit être. »  
-On peut avoir pleins d’ambitions prévu pour une réincarnation mais on peut ne pas réussir à faire tout ce qui était prévu. 100% de ce qui est prévu n’est pas à 100% prévu et des fois qu’à 50%.  
+<ins>« Chaque être est là ou il doit être. »</ins>  
+*On peut avoir pleins d’ambitions prévu pour une réincarnation mais on peut ne pas réussir à faire tout ce qui était prévu. 100% de ce qui est prévu n’est pas à 100% prévu et des fois qu’à 50%*.  
 Plus tu fais d’efforts, plus tu peux sauver des humains et des animaux donc il ne sera pas au même endroit que si tu ne fais rien.  
-« Il vous arrive ce que vous êtes. »  
-Il vous arrive la venue d’événements de vibrations similaires en énergie à la vôtre (ma phrase est mieux).   
+<ins>« Il vous arrive ce que vous êtes. »</ins>  
+*Il vous arrive la venue d’événements de vibrations similaires en énergie à la vôtre* (ma phrase est mieux).   
 Si un moustique me pique où des mouches se mettent à plusieurs toute la journée à embêter une vache, donc il vous arrive ce que vous êtes. Si quelqu’un jette un déchet dans mon jardin, cela ne veut pas dire que moi aussi je jette de déchets dans la nature. Arrêtez de dire des phrases aussi débiles, je ne vais pas chercher d’autres exemples parce que j’en ai marre de répondre à de telles absurdités manichéennes. Le seul fond de vérité est que si on vibre bas, on va attirer plus des vibrations de même intensité, la malchance et les emmerdeurs.  
-« Ce qui se passe à l’extérieur correspond à notre état intérieur. »  
-Correction : Notre état de vibration augmente la probabilité de recevoir dans nos circonstances de vie des événements de vibrations similaires.  
+<ins>« Ce qui se passe à l’extérieur correspond à notre état intérieur. »</ins>  
+Correction : *Notre état de vibration augmente la probabilité de recevoir dans nos circonstances de vie des événements de vibrations similaires*.  
 Encore une phrase manichéenne, tout le monde est différent du pire au meilleur, donc cela ne peut pas correspondre. Je ne suis pas responsable de toute la création et de la connerie des autres.  
-« Vous créez 100% de votre réalité. »  
-Non, je ne commande pas tout ce que font les autres.  
+<ins>« Vous créez 100% de votre réalité. »</ins>  
+Non, *je ne commande pas tout ce que font les autres*.  
 Encore une excuse à toutes les injustices de la vie.  
-« Tout ce que vous vivez est ce que vous décidez de vivre. »  
-« Il n’ y a pas de victime, qui que ce soit joue le rôle que vous lui avait demandé de jouer. »  
+<ins>« Tout ce que vous vivez est ce que vous décidez de vivre. »</ins>  
+<ins>« Il n’ y a pas de victime, qui que ce soit joue le rôle que vous lui avait demandé de jouer. »</ins>  
 Les tiques et moustiques qui me piquent, je ne l’ai pas décidé…  
 Et toutes les souffrances et tortures qui sont faites par inattention, méchants ou incendies, ce n’est pas tout le monde qui l’a décidé.  
 Extrèmiste manichéen qui fait de ce qui peut être des fois vrai en partie 100% des cas.  
 Les personnes qui tapent des gens vont pouvoir ressortir ta 2ème phrase comme justification, tu excuses tous les méchants et abrutis, perroquet de menteur, t’es complice du mal avec ce genre de propos.  
 Si je te mets une grosse claque, tu diras que c’est toi qui l’avais demandé.  
-« Il n’y a pas de mal et de bien. »  
-Le moins bon comportement (mal) peut apprendre à avoir le meilleur comportement en réponse à sa réaction (bien).  
+<ins>« Il n’y a pas de mal et de bien. »</ins>  
+*Le moins bon comportement (mal) peut apprendre à avoir le meilleur comportement en réponse à sa réaction (bien)*.  
 Ahaha ! Encore une excuse à tout, c’est pour te faire évoluer mais arrêter d’exagérer et de faire comme si vous ignorez l’existence du mal. Mettre toutes les personnes et les actions aux bons endroits est impossible d’être parfait.  
-« Tout est parfait dans l’imperfection. »  
-La solution la plus optimisée ne veut pas dire à tous les moments qu’elle est parfaite mais la plus adaptée à la situation.  
-L’univers essaye d’optimiser pour mettre la lumière à l’ombre, pour que la leçon soit apprise, pour l’évolution et l’équilibre. Essayer ou se sentir parfait en toute circonstance ne valide pas la phrase tout est parfait.dans l’univers ou sa vie. Ils ont des simulateurs dans l’au-delà.  
+<ins>« Tout est parfait dans l’imperfection. »</ins>  
+*La solution la plus optimisée ne veut pas dire à tous les moments qu’elle est parfaite mais la plus adaptée à la situation.  
+L’univers essaye d’optimiser pour mettre la lumière à l’ombre, pour que la leçon soit apprise, pour l’évolution et l’équilibre*. Essayer ou se sentir parfait en toute circonstance ne valide pas la phrase tout est parfait.dans l’univers ou sa vie. Ils ont des simulateurs dans l’au-delà.  
 Ils veulent laisser essayer toutes les conneries possibles, ça leur sert d’excuse. Je décide que jamais on doit m’obliger à me réincarner pour souffrir, compris les dictateurs. Il parait que l’on doit se réincarner pour évoluer et se purifier, ils n’ont peut-être pas inventé le téléchargement automatique de sagesse. Plus rapide avec des simulateurs accélérateurs d’évolution.  
-« Le temps n’existe pas. »  
-Il existe parce que l’on a inventé l’horloge et le chronomètre. Il permet dévaluer le temps qu’on met pour aller à un autre endroit, distance + temps + moyen de vitesse : corps avec ou sans véhicule.  
+<ins>« Le temps n’existe pas. »</ins>  
+*Il existe parce que l’on a inventé l’horloge et le chronomètre. Il permet dévaluer le temps qu’on met pour aller à un autre endroit, distance + temps + moyen de vitesse : corps avec ou sans véhicule.  
 Si on a une machine à voyager dans le temps, ou soi-même ce pouvoir, ça va plus vite. Ici sur Terre, on n’est pas en dehors du temps, peut-être ailleurs.  
-Si le temps n’existe pas, alors crée-moi un paradis éternel où je reste à l’infini avec mon jardin et une belle femme. Mais il paraît que l’univers va finir pas disparaître car pas une seule planète éternelle mais quand on change de dimension, donc le temps existe sauf quand il n’y a peut-être plus une seule forme dans l’univers, même sans forme, la conscience a des suites de pensée donc c’est comme du temps.  
+Si le temps n’existe pas, alors crée-moi un paradis éternel où je reste à l’infini avec mon jardin et une belle femme. Mais il paraît que l’univers va finir pas disparaître car pas une seule planète éternelle mais quand on change de dimension, donc le temps existe sauf quand il n’y a peut-être plus une seule forme dans l’univers, même sans forme, la conscience a des suites de pensée donc c’est comme du temps*.  
 Il paraît qu’on peut changer la passé, dans ce cas, cela veut dire que quelqu’un d’autre joue le rôle de ta version modifié, et les univers parallèles et l’astral aussi ou on a des doubles.  
 J’ai lu que la dimension juste en-dessous de dieu enregistrait tout.  
 Si il y’ en a qui disent que tout a déjà été créé car le temps n’existe pas, c’est que la création est limité à un nombre de scénario sinon on ne pourrait pas prédire l’infini parce qu’on ne peut pas voir ce qui n’a jamais de fin.  
 Le temps existe partout, avoir le pouvoir d’aller instantanément partout par téléportation ou à toute époque ne signifie pas que le temps n’existe pas car chaque histoire met un certain temps ainsi que le temps d’aller instantanément partout de sa propre histoire. Avoir une conscience c’est penser, donc c’est du temps qui permet d’évaluer depuis combien de temps on peut penser…  
-Conclusion : le temps existe : passé, présent, futur et tous les temps existent en même temps car tout est enregistré quelquepart et il est possible d’aller dans tous les temps comme un ordinateur, changer le passé qui devient un futur pour celui qui y va.  
-On écrit toujours le temps de son histoire.  
-« La vie ne sert à rien. »  
-La vie sert à expérimenter, s’amuser...  
-« Il y a autant de croyances que de vérités, tout le monde a raison. »  
+<ins>Conclusion</ins> : le temps existe : passé, présent, futur et tous les temps existent en même temps car tout est enregistré quelquepart et il est possible d’aller dans tous les temps comme un ordinateur, changer le passé qui devient un futur pour celui qui y va.  
+**On écrit toujours le temps de son histoire**.  
+<ins>« La vie ne sert à rien. »</ins>  
+*La vie sert à expérimenter, s’amuser*...  
+<ins>« Il y a autant de croyances que de vérités, tout le monde a raison. »</ins>  
 Cela sous-entend que tout le monde a raison : ridicule, non, car il y en a qui disent des mensonges ou se font manipuler.  
-« Vous êtes cet inconnu mais qui vous tend les bras, vous êtes le Réel, vous êtes le grand Silence et vous êtes antérieurs à la conscience. »  
+<ins>« Vous êtes cet inconnu mais qui vous tend les bras, vous êtes le Réel, vous êtes le grand Silence et vous êtes antérieurs à la conscience. »</ins>  
 Antérieur à la conscience, il dit donc qu’on doit retourner dans le néant où on est tous mort ce gros débile d’imbécile heureux. On m’a dit que j’étais immortel ceux dans haut, menteur que tu es. Tu es le mal sur ce sujet pour nous emmener avec tes idées dans ton néant. Toi, tu défends le néant. Moi, je défends la vie.  
-« L’ombre sert toujours la lumière. L’ombre n’est ni bonne ni mauvaise, elle propose et l’humanité dispose. »  
-Quand le mal est caché ou t’attaque, on ne dispose pas d’une proposition. N’importe quoi, si tu ne surveille pas assez ton enfant et qu’un sataniste enlève et torture ton enfant. Il faut essayer de mettre le plus possible la lumière sur l’ombre, l’arrêter ou le rééduquer, il faut être prudent pour l’empêcher d’avancer et de répandre le mal. C’est manichéen de trouver une excuse à tout. Dire que l’on a choisi ce qu’on subit par exemple avant de s’incarner, mais choisir par défaut pour aider les autres et les sauver avec le risque de se faire torturer parce que aucun ne veut le faire à ta place, choisir par défaut n’est pas un vrai choix à 100%.  
+<ins>« L’ombre sert toujours la lumière. L’ombre n’est ni bonne ni mauvaise, elle propose et l’humanité dispose. »</ins>  
+*Quand le mal est caché ou t’attaque, on ne dispose pas d’une proposition*. N’importe quoi, si tu ne surveille pas assez ton enfant et qu’un sataniste enlève et torture ton enfant. Il faut essayer de mettre le plus possible la lumière sur l’ombre, l’arrêter ou le rééduquer, il faut être prudent pour l’empêcher d’avancer et de répandre le mal. C’est manichéen de trouver une excuse à tout. Dire que l’on a choisi ce qu’on subit par exemple avant de s’incarner, mais choisir par défaut pour aider les autres et les sauver avec le risque de se faire torturer parce que aucun ne veut le faire à ta place, choisir par défaut n’est pas un vrai choix à 100%.  
 Tous les animaux tués par un prédateur ou les humains dans la souffrance. Quand un con coupe mon arbre préféré, on ne demande pas mon avis. 3 tiques te mordent en même temps, attraper une verrue, les moustiques qui te piquent, la liste est longue…  
-« Le bien gagne toujours. »  
+<ins>« Le bien gagne toujours. »</ins>  
 Non. Le bien peut perdre mais la victoire arrive un jour quand on est enfin tranquille.  
 Le mal finit par s’arrêter un jour.  
-« Il n’y a pas de chemins meilleurs que d’autres. »  
+<ins>« Il n’y a pas de chemins meilleurs que d’autres. »</ins>  
 Mon chemin est largement meilleur que celui d’un sataniste.  
-« Il n’y a rien de ce qui nous arrive dont on soit victime, rien que l’on soit capable de dépasser. » « Il ne vous arrive rien que vous ne pouvez gérer ».
+<ins>« Il n’y a rien de ce qui nous arrive dont on soit victime, rien que l’on soit capable de dépasser. » « Il ne vous arrive rien que vous ne pouvez gérer ».</ins>
 Encore une excuse à tout contexte de subir les pires horreurs, une torture horrible avant de crever : tu subis et meurs, tu surmonte après parce que ça s’arrête et tu changes de dimension.  
-« Chacun joue son rôle à la perfection. »  
+<ins>« Chacun joue son rôle à la perfection. »</ins>  
 Fais n’importe quoi, de toute façon, tu joues ton rôle à la perfection, et si je tape celui qui a dit cette phrase ou le torture un peu, est-ce que tu continueras à dire que je joue mon rôle à la perfection, bien sûr, je ne le ferais jamais, c’est pour l’exemple.  
 Voilà, encore bienvenue dans le monde des imbéciles heureux.  
-« Il n y a pas de meilleurs (petits ou grands) rôles que d’autres, pas de gens meilleurs ou plus intelligents ».  
+<ins>« Il n y a pas de meilleurs (petits ou grands) rôles que d’autres, pas de gens meilleurs ou plus intelligents ».</ins>  
 1 seule personne peut-être à l’origine d’une partie d’une galaxie qui n’aurait pas été libérée sans ses actions, donc c’est un plus grand rôle, il y a des gens plus intelligents que d’autres en capacité ou sagesse, encore plus entre animaux et humains ou extraterrestres avec un cerveau et des capacités plus développés.
 L’imbécile heureux veut plaire à tout le monde, en niant la réalité, il plaira surtout à ceux qui ont un radar de sagesse plus limité.  
-« Tout ce qu vous voyez dans ce monde est votre projection, vous êtes la cause et le monde est l’effet, jamais l’inverse. »  
+<ins>« Tout ce qu vous voyez dans ce monde est votre projection, vous êtes la cause et le monde est l’effet, jamais l’inverse. »</ins>  
 Je ne suis pas la cause de celui qui torture dans mon pays.  
-« La vérité n’existe pas, prends ce qui résonne dans l’amour. »  
+<ins>« La vérité n’existe pas, prends ce qui résonne dans l’amour. »</ins>  
 Si la vérité n’existe pas, rien n’existe, je suis humain est une vérité, ah non la vérité n’existe pas (ahaha.), ta phrase n’est donc pas la vérité aussi car ça s’applique aussi à ta phrase.  
-« Rien de réel ne peut être menacé. »  
+<ins>« Rien de réel ne peut être menacé. »</ins>  
 Je suis réel et j’ai déjà été menacé (Je n’en peux plus de ces phrases d’attardés mentaux programmés perroquets qui répètent).  
- « Dieu voit la fin depuis le commencement », « aucune chose n’est nouvelle pour dieu », « ses jours n’ont ni commencement ni fin ». (p34 livre Urantia)
+<ins>« Dieu voit la fin depuis le commencement », « aucune chose n’est nouvelle pour dieu », « ses jours n’ont ni commencement ni fin.</ins> (p34 livre Urantia)
 Si aucune chose n’est nouvelle, l’éternité va s’arrêter et tout ce qui existe cessera d’exister, il a dit que mon âme est éternelle, je viens de prouver la contradiction et l’illogisme de sa phrase car on ne peut pas connaître le futur éternel, si il n’y a pas de fin, il y aura des choses nouvelles à commencer par les pensées.  
-« Dès l’instant où vous vivez le Réel, où nous vivons le Réel collectivement, il n’y aura strictement aucune volonté, aucun désir de revêtir une conscience au sein d’une forme, mais tout cela l’ego ne peut absolument pas se le représenter et la conscience non plus. »  
+<ins>« Dès l’instant où vous vivez le Réel, où nous vivons le Réel collectivement, il n’y aura strictement aucune volonté, aucun désir de revêtir une conscience au sein d’une forme, mais tout cela l’ego ne peut absolument pas se le représenter et la conscience non plus. »</ins>  
 Tu ne m’obligeras pas à penser comme un imbécile heureux comme toi, la forme m’attirera toujours et c’est le but de la vie.  
-« Personne d’autre que vous ne peut réaliser vos rêves »  
+<ins>« Personne d’autre que vous ne peut réaliser vos rêves »</ins>  
 Faux, si ton rêve est d’avoir une copine, tu es obligé que l’autre réalise ton rêve. Certaines ne font quasiment pas d’efforts et ça arrive, alors que d’autres méritent largement et paraissent maudits.  
-« On peut pas dire je travaille pour moi ou mon image, y a 1, y a rien à sauver, il y a pas d'autres. »  
+<ins>« On peut pas dire je travaille pour moi ou mon image, y a 1, y a rien à sauver, il y a pas d'autres. »</ins>  
 Certaines consciences sont mortes pour toujours et il faut faire une bonne philosophie pour sauver de la souffrance future.  
-« J’ai cru que j’étais un humain, finalement, il m’est rien arrivé. »  
+<ins>« J’ai cru que j’étais un humain, finalement, il m’est rien arrivé. »</ins>  
 Si tu subi de la torture dans ta vie, c’est arrivé alors arrête de dire n’importe quoi.  
-« Tu ne peux pas devenir ce que tu es déjà. Tu peux seulement te souvenir que tu l’as toujours été. » (En parlant de la source).  
+<ins>« Tu ne peux pas devenir ce que tu es déjà. Tu peux seulement te souvenir que tu l’as toujours été. » (En parlant de la source).</ins>  
 « L’âme est créée. Oui, créée. Elle n’est pas éternelle dans le passé, seulement dans le futur. Elle a un point de commencement ».  
 Il se contredit, la 2ème phrase est correcte, la source ne peut pas prendre de forme donc dire que tu l’a toujours été est faux car avant la conscience n’était jamais née.  
-« Toutes les pensées sont fausses, sauf si tu décides qu’elles sont vraies, alors, choisis celles que tu veux pour définir ta réalité. »  
+<ins>« Toutes les pensées sont fausses, sauf si tu décides qu’elles sont vraies, alors, choisis celles que tu veux pour définir ta réalité. »</ins>  
 Non, c’est manichéen, facile à contredire.  
 Ce qui est vrai est vrai, ce qui est faux est faux mais tes pensées peuvent augmenter les probabilités qu’une chose ou un événement arrive. Selon le contexte une méthode est plus adaptée.  
 
 Critiquez les messages que vous canalisé, ce n’est pas parce que c’est la source qui parle d’après certains que l’on ne peut pas critiquer, être la première conscience de l’univers ne garantit pas d’avoir raison parfaitement sur tous les sujets car la source apprend de tous les autres créateurs connectés. On est une équipe sinon étiqueter la perfection totale sur une conscience incontestable est de l’extrémisme, elle ne découvre pas tout avant nous et ne contrôle  pas toutes nos pensées et nos découvertes qui sortent du néant.  
 La source n’est pas tout, elle fait vivre le tout grâce à son énergie mais est connecté à tout, pour être l’autre, il faut fusionner 2 consciences en 1, pas simplement être connecté.  
 
-Conclusion :  
+**Conclusion** :  
 Cela montre que leur technique de parler n’est pas la bonne et qu’ils devraient changer de phrases pour faire évoluer l’univers au lieu d’énerver pleins de gens.  
 Tout est parfait dans l’univers est un mensonge de ceux qui le disent, c’est une excuse de ne pas constater pour s’enlever toutes ses propres contrariétés. 
 Manichéens du syndrome d’imbécile heureux, je suis le seul à bien vous contredire et à vous piéger dans votre logique tordue.  
 820  
-Une phrase qui ne paraît pas méchante peut être en analysant bien la pire de toute la création.  
+<ins>Une phrase qui ne paraît pas méchante peut être en analysant bien la pire de toute la création</ins>.  
 Il faudrait être une grosse pourriture pour obliger quelqu’un à le reprogrammer et effacer sa mémoire pour faire toutes les expériences (cailloux, particule d’hydrogène, bactérie, plantes, animaux, humains) et le cycle d’incarnation d’un autre avec ses pires tortures ou être le pire des méchants, donc tout ce qui existe, et passer par des milliards de milliards de milliards de tortures...  
 Mais il parait que l’on peut faire la vie de l’autre d'une manière qui peut être en partie différente recréant une nouvelle ligne de temps. Et mon double dans l'astral je ne refais pas sa vie, je peux fusionner seulement car on a la même âme.  
 Une âme qui décide d’une incarnation si elle se sépare en plusieurs consciences ou que les consciences étaient déjà séparées de l’âme, si les autres ne sont pas d’accord pour s’incarner, ne pas dire que c’est toi qui l’a décidé, c’est toi ou l’âme ou les deux.  
-(Un jour je serai toi maintenant ou « tu dois faire toutes les expériences (sous-entend pas que humains) et les réincarnations des humains, les autres sont tous toi-même » L’autre est toi-même est la pire phrase de tout les temps, une phrase qui ne paraît pas méchante peut être en analysant bien la pire de tous les temps. Il vaut mieux fusionner en haut que se taper l’horreur d’à côté).  
+(Un jour je serai toi maintenant ou *« tu dois faire toutes les expériences (sous-entend pas que humains) et les réincarnations des humains, les autres sont tous toi-même »*. **L’autre est toi-même** est la pire phrase de tout les temps, une phrase qui ne paraît pas méchante peut être en analysant bien la pire de tous les temps. Il vaut mieux fusionner en haut que se taper l’horreur d’à côté).  
 Certains se sont incarnés en animal avant de devenir humain.  
 C’est pour savoir qui tu es il dit (la source en incarnation), je veux juste vivre bien connard de dictateur. Ce perroquet qui canalise, ce n’est pas qu’il dit de l’eau, non il dit dans plusieurs sujets de la merde d’un gourou de l’au-delà et en plus il se contredit.   
 Quand je dis, je ne vais pas me réincarner en bactérie, plante, limace, il répond : tu la créé pour toi-même (réponse évasive ambigu entre deux).   
@@ -3514,24 +3514,23 @@ Il dit que tout est parfait, on récolte ce que l’on a semé (manichéen et ce
 Il dit, c’est comme être amoureux de Dieu, pour s’en rapprocher il faut faire toutes les expériences. Mon plus grand amour sera toujours moi-même, pas ton système de dictature horrible.  
 Vidéo  
 Transincarnation : plusieurs vie en même temps, 9 dec 2020 à 1h08 30s.  
-« Ça fini jamais, c'est un cycle infini, et le cycle est tellement infini qu'il y a un moment au lieu de faire mon cycle de transincarnation, je vais faire le tiens Nora, c'est-à-dire qu'à un moment ou un autre, vous allez tous vivre ma vie et moi je vais vivre la vôtre.  
+*« Ça fini jamais, c'est un cycle infini, et le cycle est tellement infini qu'il y a un moment au lieu de faire mon cycle de transincarnation, je vais faire le tiens Nora, c'est-à-dire qu'à un moment ou un autre, vous allez tous vivre ma vie et moi je vais vivre la vôtre»*.  
 
 L'entre deux vie à 1h13, 6 mars 2024 20h30.  
-« Dieu quand il dit l'amour est le chemin, il nous demande de vivre toutes les expériences que lui il a vécu, et c'est pour ça que le libre arbitre est pas si grand que ça, c'est pour que les gens quand il revivent son expérience gardent à peu près la même trajectoire, car on se souvient qu'il nous as dit, tu me rejoindra quand tu seras comme moi, alors comment on fait pour être comme quelqu'un qui a tout vécu, tout vu, tout lu, toutes les époques et qui finalement est tout, le seul moyen, c'est de trouver des systèmes qui nous permettent de prendre conscience de ce tout, de le vivre et de vivre chacune des expériences et toutes, et c'est pour ça que je sais que ça va énerver certaines personnes quand je dis ça, nous devons vivre toutes les expériences. »  
+*« Dieu quand il dit l'amour est le chemin, il nous demande de vivre toutes les expériences que lui il a vécu, et c'est pour ça que le libre arbitre est pas si grand que ça, c'est pour que les gens quand il revivent son expérience gardent à peu près la même trajectoire, car on se souvient qu'il nous as dit, tu me rejoindra quand tu seras comme moi, alors comment on fait pour être comme quelqu'un qui a tout vécu, tout vu, tout lu, toutes les époques et qui finalement est tout, le seul moyen, c'est de trouver des systèmes qui nous permettent de prendre conscience de ce tout, de le vivre et de vivre chacune des expériences et toutes, et c'est pour ça que je sais que ça va énerver certaines personnes quand je dis ça, nous devons vivre toutes les expériences. »*  
 Il y a l’original qui fait la première vie et les autres qui refont presque la même, on nous oblige à tout faire, sadique.  
 Il dit dans une autre vidéo le 4 février 2026, « quand vous aimez quelque chose ou quelqu’un, vous n’en serez plus jamais séparé », cela forme une contradiction avec ce qui est dit avant, car paroles incompatibles parce que si on doit se réincarner en voisins et les autres, cela fait des milliards de milliards de fois et plus ou on ne peut pas les retrouver éternellement car oublié et on aime quelqu’un d’autre, en plus avec des milliards de doubles, est ce que tu parles à la même version.  
-La religion des dictateurs qui dit que tu dois faire toutes les expériences ; si tu fusionne en haut, t'es pas obligé de tout faire,  on partage le travail pour pas que tout le monde fasse tout, et celui qui veut garder sa conscience individuelle, on lui fout la paix, les expériences sont infinis alors obliger à tout faire pour se rapprocher de Dieu est une dictature, en plus il paraît qu'il y a aussi l'univers central (livre Urantia) et le cycle d'incarnation du plus méchant dont l'énergie a été absorbé par Dieu avec effacement de conscience et de souvenir, (voir message universelle de Matthew Ward sur internet https//www.matthewbook.com : «Elles ont constamment décliné les offres de grâce divine de l’Être Divin et le seul autre moyen de les arrêter est de transmuter leur énergie. Cependant, comme toutes les autres Âmes, elles sont de l’essence du Créateur, et Lui seul est assez puissant pour gérer la densité de ses créations qui sont devenues des malfaiteurs consommés. Après avoir purifié leur énergie en éteignant toute Conscience et tout souvenir, le Créateur ramène cette essence d’amour et de Lumière en Lui-même. »), (ou sinon p37 du livre d’Urantia, ils en parlent). Cela veut dire qu’il cesse d’exister. Si tout le monde fait sa vie, tout le monde mourra pour toujours, tuer une conscience doit être interdit, seulement effacer mémoire, alors il n’est pas parfait pour autoriser ça sinon il utiliserait un moyen d’effacement de mémoire puis il se réincarnerait sous une forme inférieure genre plante ou autre pour remonter ensuite. 
-« Je suis toi, tu es moi./Il n’y a pas d’autres. »  
-Je préfère dire, nous sommes tous reliés au premier être éternel, je suis comme toi une expression de dieu.  
+La religion des dictateurs qui dit que tu dois faire toutes les expériences ; si tu fusionne en haut, t'es pas obligé de tout faire,  on partage le travail pour pas que tout le monde fasse tout, et celui qui veut garder sa conscience individuelle, on lui fout la paix, les expériences sont infinis alors obliger à tout faire pour se rapprocher de Dieu est une dictature, en plus il paraît qu'il y a aussi l'univers central (livre Urantia) et le cycle d'incarnation du plus méchant dont l'énergie a été absorbé par Dieu avec effacement de conscience et de souvenir, (voir message universelle de Matthew Ward sur internet https//www.matthewbook.com : *«Elles ont constamment décliné les offres de grâce divine de l’Être Divin et le seul autre moyen de les arrêter est de transmuter leur énergie. Cependant, comme toutes les autres Âmes, elles sont de l’essence du Créateur, et Lui seul est assez puissant pour gérer la densité de ses créations qui sont devenues des malfaiteurs consommés. Après avoir purifié leur énergie en éteignant toute Conscience et tout souvenir, le Créateur ramène cette essence d’amour et de Lumière en Lui-même. »*), (ou sinon p37 du livre d’Urantia, ils en parlent). Cela veut dire qu’il cesse d’exister. Si tout le monde fait sa vie, tout le monde mourra pour toujours, tuer une conscience doit être interdit, seulement effacer mémoire, alors il n’est pas parfait pour autoriser ça sinon il utiliserait un moyen d’effacement de mémoire puis il se réincarnerait sous une forme inférieure genre plante ou autre pour remonter ensuite. 
+<ins>« Je suis toi, tu es moi./Il n’y a pas d’autres. »</ins>  
+Je préfère dire, *nous sommes tous reliés au premier être éternel, je suis comme toi une expression de dieu*.  
 Cette phrase semble dire ou sous-entend que je vais me réincarner dans le cycle de réincarnation du voisin, si ce n’est pas le cas, changer vos phrases. Je n’ai pas envie d’être toi ou de me réincarner en toi, dictateur, pour me programmer ta débilité, ta méchanceté, ta mocheté ou ta torture.  
 Si tous les humains doivent refaire toutes les vies de chacun, cela s’appelle une dictature avec des milliards de milliards de tortures horribles.   
-Pour l’instant, je suis moi et tu es toi relié à la conscience source du créateur. Je suis moi, pas toi dans le présent, ou alors peut-être toi dans le futur seulement si nos deux consciences fusionnent.  
+Pour l’instant, *je suis moi et tu es toi relié à la conscience source du créateur*. Je suis moi, pas toi dans le présent, ou alors peut-être toi dans le futur seulement si nos deux consciences fusionnent.  
 Si une conscience se sépare en 2 en se réincarnant en jumeaux, ce n’est pas la même conscience, cela fait 2, il faut refusionner pour que cela soit la même conscience, pareil avec la source, si je veux jamais refusionner avec elle et perdre mon individualité je serais toujours moi et pas elle.  
 Il n’y a pas d’autres ils disent et après ils disent vous n'êtes pas obligé de vivre cette expérience parce que quelqu'un d'autre la vit, donc si on es pas obligé, c’est qu’il y a un autre.  
 Le père absolu canalisé par Marta le 10/07/2025 dit :  
-« Les biorobots, en l’absence d’une âme, après la mort des corps physiques restent dans les couches astrales inférieures de votre planète uniquement avec leur conscience.  
-Quant aux clones, leur corps, ainsi que leur conscience, se désintègrent complètement après leur mort physique, ne laissant aucune trace sur le plan subtil de la Terre. »  
-Donc ces consciences ne peuvent pas être toi.  
+*« Les biorobots, en l’absence d’une âme, après la mort des corps physiques restent dans les couches astrales inférieures de votre planète uniquement avec leur conscience.  
+Quant aux clones, leur corps, ainsi que leur conscience, se désintègrent complètement après leur mort physique, ne laissant aucune trace sur le plan subtil de la Terre. »* Donc ces consciences ne peuvent pas être toi.  
 Une autre possibilité est le transfert d’une conscience dans un clone, puis la conscience vit après la mort du clone, il y a des exceptions selon le type de clone ou grâce à la technologie.  
 
 Nous devons traiter l’autre dans l’amour et la vérité et trouver la meilleure harmonie et sortir de la peur, trouver le pardon et la compassion, toutes ces vies sont pour apprendre des choses pour nous et le créateur suprême, nous devons sortir de cette réalité très altérée et programmée pour nous reconnecter à la source.  
@@ -3541,26 +3540,26 @@ En plus, je crois que dans l'histoire, des consciences sont mortes pour toujours
 Le but de la vie n’est pas de redevenir dieu au point zéro, c'est de vivre dans la forme, faire son quota de travail, s'amuser, apprendre, la beauté de la vie, c'est d'avoir éternellement plusieurs consciences, pas une seule sado maso qui fait tout le tour, et en plus ton Dieu dit qu'il a tout fait, facile quand tu absorbe la conscience de l'autre qui fait le travail, je crée des milliards de consciences et quand ils ont tout fait, je les absorbe, celui qui est tout en haut ne souffre pas comme ça et dit qu'il a tout fait.  
 Par exemple, si tu fusionnes la conscience de 1 milliards d’individus qui sont montés dans ta dimension dans ta conscience pour faire une seule conscience, toi en haut n’a pas souffert de toutes les tortures des autres car tu n’a pas fait toutes les vies mais récupères les informations qui donne l’impression que tu as tout fait.  
 Ils se sentent tellement unis en haut, au lieu de dire, vous serez comme nous, ils disent nous sommes vous dans le futur, ce qui est faux et trompe les gens.
-En plus il y a peut-être des consciences créées par le mal qui ne sont pas éternelles. Il y a des consciences qui ne sont jamais né, réponse à ceux qui disent que l’on est jamais né, jamais mort. D’après le livre Urantia, il y en a qui sont toujours né dans l’univers central et d’autres nés après, certaines consciences sont mortes pour toujours.  
+En plus il y a peut-être des consciences créées par le mal qui ne sont pas éternelles. Il y a des consciences qui ne sont jamais né, réponse à ceux qui disent que l’on est jamais né, jamais mort. D’après le livre Urantia, il y en a qui sont toujours né dans l’univers central et d’autres nés après, **certaines consciences sont mortes pour toujours**.  
 Il paraît que la source ne peut pas prendre de forme alors si tu fusionne à la fin de tout ce qui existe, tu seras coincé et donc il n’y aura plus rien d’autres ou si il existe encore d’autres vies l’autre ne peut pas être toi-même sauf si il fusionne avec toi qui est devenu la source à la fin. 
-Si la source crée à l’infini, tu ne dois pas faire toutes les incarnations de tes voisins car la création n’a pas de fin donc tu ne peux pas devenir la source dans la logique que je viens de piéger.  
+**Si la source crée à l’infini, tu ne dois pas faire toutes les incarnations de tes voisins car la création n’a pas de fin donc tu ne peux pas devenir la source dans la logique que je viens de piéger**.  
 Le but de la vie n’est pas d’arrêter la forme et d’arrêter de créer donc je t’es piégé le moujonc. La vie est de vivre, pas d’être un esclave qu’on efface sa mémoire et reprogramme à la fin pour refaire le cycle du voisin pour engendrer des données d’un gros « ordinateur (métaphore) ».  
 Il dit que Dieu est amour, mais aussi qu’il n’est pas parfait, il dit que tout le monde est dieu (non).  
 
-Conclusion de critique  
+**Conclusion de critique**  
 Crois pas que tu va m’obliger à faire la vie des autres, connard.  
 Il n’y a pas qu’une conscience, il y’ en a plusieurs éternelles.  
 C’est la secte des imbéciles heureux, une doctrine sado maso.  
 Dans ce cas il est le pire de tous les mals pour inventer un système aussi horrible, connard démoniaque qui propage ta religion à un médium.  
-Conclusion finale  
-Tu ne peux pas te créer toi-même, tu es sorti du néant mais grâce à l’énergie de la source par la source elle-même ou un intermédiaire, on ne fusionne jamais totalement avec la source car on peut choisir de la ressentir comme étant elle, et on peut choisir tant qu’on veut d’expérimenter son individualité.  
+**Conclusion finale**  
+<ins>**Tu ne peux pas te créer toi-même**</ins>, **tu es sorti du néant mais grâce à l’énergie de la source par la source elle-même ou un intermédiaire, on ne fusionne jamais totalement avec la source car on peut choisir de la ressentir comme étant elle, et on peut choisir tant qu’on veut d’expérimenter son individualité.  
 Si tu rejoues le personnage original d’à côté, tu ne seras pas la même conscience mais jouera le même rôle ou de manière un peu ou beaucoup plus différente.
 Très rare qu’une personne rejoue son propre rôle différemment.  
 Les imbéciles heureux confondent tout est un mais seulement dans la connexion, l’autre n’est pas toi tant que tu n’as pas fusionné avec sa conscience comme une partie de ton âme qui est dans l’astral.  
-L’âme est éternelle.  
+L’âme est éternelle**.  
 
 821  
-La beauté.  
+**La beauté**.  
 Le mouvement façonne la beauté du monde, pour que la joie nous inonde.  
 Quand il fait très chaud, on peut prendre une ombrelle et un éventail, c’est joli et c’est plus convenable que de polluer avec une pommade anti UV désagréable.
 Les plus beaux yeux, c’est en amande et le pli de la paupière proche des cils.  
@@ -3576,7 +3575,7 @@ pour développer des capacités, cela libère de la DMT (diméthyltryptanime) qu
 825  
 Il y a des gens chochottes qui nous dérangent en nous interpellant car on est sur la ligne droite de leur chemin alors qu'on est là avant, immobile et qu'ils ont la place pour dévier d'1 mètre ou 2.  
 826  
-Anonymat   
+**Anonymat**   
 On a le droit d’être anonyme pour pouvoir dire ce que l’on pense sans stress, sans être trop interpellé dans la rue parce qu’on devient connu, pour ne pas se faire agresser ou tuer et si un gouvernement de dictateur méchant ou idiot nous empêche de parler parce qu’on dit des choses différentes ou parce qu’on est intelligent avant d’autres. Ce n’est pas parce que des gens menacent ou insultent sur internet que l’on doit interdire l’anonymat sinon, c’est une dictature, il y a qu’en cas de choses graves que les services de l’état peuvent remonter la source de l’agresseur, mais pas entre les personnes de la population.
 On a le droit d’être anonyme en choisissant un nom d’auteur surtout si il y a pleins d’homonymes.  
 827  
@@ -3601,7 +3600,7 @@ Le dictateur établit des sondages truqués pour orienter les gens plus facileme
 836  
 Quand tu prêtes quelque chose à quelqu’un, on doit te le rendre ou s’il n’a pas envie de te voir, il devrait l’envoyer par la poste.  
 837  
-Préservation  
+**Préservation**  
 4 emballages pour protéger un objet : une maison, un meuble, une grande boîte + d’autres boîtes hermétiques aux insectes dans la grande boîte.  
 Entre chaque photo sur papier glacé, mettre une feuille sinon les photos vont se coller dans le futur.   
 Il est parfois dommage que quand on met des photos sur Internet, quand on retélécharge, la photo est plus floutée et la date originale disparaît, on ne pourra plus voir certaines paréidolies de fééries de glaces en zoomant car flou, le patrimoine humain disparaît en partie parce qu’ils se permettent de baisser la résolution. Si je veux qu’on n’ait pas la copie originale, je peux moi-même baisser la qualité avant de l’envoyer, je n’aime pas qu’on décide à ma place. On sauve le patrimoine en copiant.  
@@ -3630,7 +3629,7 @@ L’univers s’arrange pour corriger nos imperfections.
 Quand on fait une interview à quelqu’un qui veut un article sur lui, il faut lui faire relire l’article fini pour éviter l’entourloupe.  
 Ce n’est pas parce que l’on fait une interview à quelqu’un que l’on est d’accord avec lui ou que l’on est dans son groupe.  
 846  
-Relation, la critique est pour les deux sens.  
+**Relation, la critique est pour les deux sens**.  
 Ce n’est pas parce que je n’ai pas envie de m’afficher devant les autres en couple qu’une personne me fait forcément honte, c’est pour ma tranquillité psychique ou le respect des autres, pour marcher libre ou pas transpirer des mains.  
 La société sera assez évolué quand on pourra avoir une copine et aller voir des amies femmes sans qu’on t’empêche parce qu’on croît qu’on te trompe mais elle peut être au courant et d’accord.  
 Arrêter de dramatiser si on regarde quelquefois des femmes sur internet, on en voit aussi dans les films, dans ses pensées, cocher le bouton j’aime d’une publication de quelqu’un ne veut pas forcément dire draguer si c’est pour soutenir une artiste ou pour se faire remarquer car on a un compte utile qui sert l’humanité, à condition que tout cela soit dans la juste mesure et approprier à la situation et ne doit pas empiéter une saine relation, certaines accusent que regarder est déjà tromper : ton avis n’est pas une preuve, si des gens sont trop susceptibles ou incompatibles, il faut trouver une personnalité adéquate, à vous de définir les règles selon vos personnalités.  
@@ -3703,15 +3702,15 @@ L’univers doit être un équilibre entre le nombre et les types de consciences
 857  
 Il y a deux sortes d'immortalité : la vie éternelle et j’espère le paradis.  
 858  
-Tout sur Terre devra un jour être gratuit (s’en rapprocher).  
+**Tout sur Terre devra un jour être gratuit** (s’en rapprocher).  
 
-La richesse, c’est de pouvoir accéder à un maximum de choses gratuites en peu de temps.  
+<ins>La richesse</ins>, c’est de pouvoir accéder à un maximum de choses gratuites en peu de temps.  
 
-Intellectuelle et culturelle : Culture de tous les savoirs et de tous les arts (internet, livres, films, vidéos, télévision, photos, dessins, peintures, musique, jeux, jeux vidéo, proverbes, poèmes…).  
-Technologique et matérielle : voyage rapide (téléportation ou vaisseau spatiale très rapide), objets, argent (billets de banque, numérique, or, argent), les constructions (maison, transports, ville), un réplicateur ou matérialiseur d’objets ou de nourriture, un dématérialiseur de déchets), robot et IA, ordinateur…
-Personnelle et corporelle : soi-même et ses capacités (talents, aptitudes sportives), notre beauté, intelligence, sagesse et autres capacités personnelles comme la télépathie…  
-Sociale : les relations humaines, avoir une copine, le partage.  
-Naturelle et paysagère : nature (toujours proche, de qualité et diversifiée avec de très anciens arbres), nourriture.  
+**Intellectuelle et culturelle** : Culture de tous les savoirs et de tous les arts (internet, livres, films, vidéos, télévision, photos, dessins, peintures, musique, jeux, jeux vidéo, proverbes, poèmes…).  
+**Technologique et matérielle** : voyage rapide (téléportation ou vaisseau spatiale très rapide), objets, argent (billets de banque, numérique, or, argent), les constructions (maison, transports, ville), un réplicateur ou matérialiseur d’objets ou de nourriture, un dématérialiseur de déchets), robot et IA, ordinateur…
+**Personnelle et corporelle** : soi-même et ses capacités (talents, aptitudes sportives), notre beauté, intelligence, sagesse et autres capacités personnelles comme la télépathie…  
+**Sociale** : les relations humaines, avoir une copine, le partage.  
+**Naturelle et paysagère** : nature (toujours proche, de qualité et diversifiée avec de très anciens arbres), nourriture.  
 
 La richesse comprend tout ce qui existe.  
 
@@ -3738,7 +3737,7 @@ Conclusion : ce n’est pas parfait, à améliorer.
 859  
 Il faut savoir se plier un temps comme le bambou pour une victoire plus efficace.  
 860  
-La publicité  
+**La publicité**  
 Si la publicité est pour acheter, ce n’est pas forcément bienveillant.et utile, ça peut être gênant, tout est possible.   
 Si on fait sa pub gratuitement dans l’intérêt général pour embellir la vie des autres, c’est pas la peine de dramatiser alors que c’était pour offrir gratuitement son travail comme montrer le meilleur de toutes les playlists, paréidolies, proverbes, poèmes, photos, tant pis pour toi si t’a pas la curiosité de rajouter des magnifiques musiques dans ta vie que tout aurait pu découvrir mais non, on voit le mal et dit qu’on fait baisser sa vibration, c’est toi qui a fait baisser la mienne.  
 861  
@@ -3770,8 +3769,8 @@ Le dictateur met l’accent sur un mauvais individu pour discréditer tout un gr
 871  
 Attention à ne pas se révolter trop fort face à un imbécile qui va trouver le prétexte de t’emmerder encore plus si tu dois le revoir.  
 872  
-Les arbres  
-Protéger la beauté et l’originalité des arbres.  
+**Les arbres**  
+**Protéger la beauté et l’originalité des arbres**.  
 Un homme a coupé l’épicéa impérial aux branches tombantes au sol, on pouvait monter à 15 mètres de hauteur et avoir le plaisir de regarder un village et se faufiler dans ses magnifiques branches souples, c’était le plus bel épicéa et le plus bel arbre à grimper sur des centaines de km, voir plus.  
 Il était au milieu d’un près et embellissait un village.   
 Le moujonc préfère la banalité de son herbe pour son cheval qu’un monde magnifique et peut-être que le cheval aimait se mettre en dessous de l’arbre.  
@@ -3784,7 +3783,7 @@ Moins il y a de gros arbres dans et autour des villages, plus les habitants sont
 On devrait faire un concours sans fin, à ceux qui possèdent  le plus bel arbre ou le plus âgé, notre pays s’en trouverait plus beau.  
 S’il n’y a pas d’arbres remarquables, organisez-vous pour sélectionner les arbres remarquables de demain.  
 On peut ainsi en planter des nouveaux et faire la promesse qu’on ne les coupera pas.  
-Planter un épicéa   
+<ins>Planter un épicéa</ins>   
 Il est préférable au sapin car plus beau, ses épines sont plus étoffées et il laisse ses cônes tomber au sol, ce qui n’est pas le cas du sapin.  
 C’est l’empereur des arbres à monter.  
 Il doit être planté au milieu d’un près pour ne pas manquer de lumière.   
@@ -3792,14 +3791,14 @@ Il faudra impérativement ne couper aucune branche, sauf au pire celles du bas j
 On coupera les petits bouts de branches mortes naturellement à proximité du tronc pour pouvoir escalader l’arbre toujours plus haut au fur et à mesure de l’avancée en âge de l’arbre. Ne serait-il pas plaisant pour vos enfants et aussi les adultes de grimper dans un gros joli épicéa, il n’y a pas d’âge pour grimper dans les arbres.  
 On peut planter son épicéa dans un terrain public ou privé : dans ce cas, ne soyez pas égoïste et partager votre arbre à grimper. Dans les régions très neigeuses et froides, les branches d’épicéas sont plus difficiles à grimper car affaissées par le poids de la neige des hivers.
 On peut planter aussi des espèces locales qui ressemblent à l’épicéa et sont cousins et presque identiques, pour les Chinois (Picea Aspereta), Japonais ou autres continents.  
-Arbres remarquables (ou à préserver)  
+<ins>Arbres remarquables</ins> (ou à préserver)  
 J’ai établis les critères d’un arbre remarquable ou à futur potentiel remarquable, sa beauté qui représente :  
 Son âge.  
 Sa forme originale.  
 Sa grosseur.  
 Sa hauteur.  
 Son utilité, arbre à grimper : épicéa, cavités.  
-On doit élargir les arbres protégés remarquable avec une 2ème catégorie : les arbres à futur remarquable. On choisit ainsi les arbres remarquables du futur.
+On doit élargir les arbres protégés remarquable avec une 2ème catégorie : les <ins>arbres à futur remarquable</ins>. On choisit ainsi les arbres remarquables du futur.
 On doit protéger les sujets les plus âgés de toutes les espèces d’arbres et arbustes, les plus grands, les plus gros ou autres formes particulières de chênes, hêtres, épicéas, tilleuls, saules, charmes, aulnes,  noisetiers, néfliers, lierre…  
 Il arrive qu’un arbre multi centenaire meurt mais la mort d’un arbre n’est pas la mort de sa beauté, il sera toujours utile pour les oiseaux, pics et son imposant tronc sera visible encore de nombreuses années.  
 Il est donc important de ne pas le couper comme cela à déjà été le cas, s’il comporte un risque de chute sur des passants, il faut privilégier un élagage des branches au lieu de la destruction totale.  
@@ -3824,7 +3823,7 @@ Pour amener un début de vérité à quelqu’un de programmé, dire qu’il y a
 877  
 L’idiot culpabilise les problèmes de l’autre qui l’inquiète alors qu’il est demandé juste qu’on lui fiche la paix au lieu de ralentir la résolution de ses problèmes en envoyant des énergies négatives qui démoralisent.  
 878  
-Réplicateur  
+**Réplicateur**  
 Avec un réplicateur, casser un objet est moins grave mais ce n’est pas une raison pour moins prendre soin des objets et programmer des mauvais comportements.
 Garder des vêtements ou des photos de vêtements préserve le patrimoine, si le vêtement est composé d’une matière polluante, on peut garder l’aspect en changeant la matière ou en modifiant un peu. Le réplicateur (synthétiseur de matière) peut reproduire ces vêtements et changer la matière.
 L’option dématérialiseur serait bien pour supprimer des gravats et des matières polluantes.  
@@ -3846,7 +3845,7 @@ Il faut aussi chercher au profond de soi plutôt que toujours chercher les répo
 886  
 Le non-agir différemment des autres pour éviter les troubles n’est pas la voie de vivre comme on veut si on respecte l’équilibre du monde.  
 887  
-Mur  
+**Mur**  
 Quand on bouche les jointures trous entre les pierres il ne faut pas mettre du ciment car il devient impossible ensuite de séparer le ciment de la pierre sans la casser, surtout quand c’est fait très moche en débordant largement sur les pierres, on ne peut pas corriger, il faut choisir une matière recyclable.  
 Le ciment empêche le mur de respirer et retient l’humidité.  
 Quand on perce un trou dans un mûr pour accrocher quelque chose, il faut privilégier le trou dans la jointure plutôt qu’au milieu d’une pierre ou d’une brique. 
@@ -3854,11 +3853,11 @@ Quand on perce un trou dans un mûr pour accrocher quelque chose, il faut privil
 L’abondance créé la vraie richesse, la rareté la fausse richesse (parce que peu de gens peuvent en profiter).  
 3 personnes à l’infini, soyons un groupe pour l’éternité.  
 889  
-Entretien de santé physique facile  
-Méthode simplifié de bonne santé physique, remise en forme : marcher 20 minutes, monter équivalent de 4 ou 5 étages avec l’escalier ou la colline, tourner sur soi-même 25 fois, les 3 à faire chaque jour ou encore mieux 2 fois dans la journée accélérera la forme ou la guérison. faire la planche sans faire de pompe horizontale ou en diagonale pour les santés fragiles.Faire une sieste en milieu de journée.  
-Pour maigrir facilement, voir Méthode abdos tout terrain n°890.  
-Mal de dos : pour remettre son dos droit, décoincer les vertèbres et avoir moins mal au dos, il faut se mettre dos au sol allongé jusqu’aux pieds, lever les 2 bras vers l’arrière en inspirant et revenir en expirant.  
-Pour récupérer rapidement l’énergie après les exercices, voir Position de régénération n°891. On peut faire un massage ou auto massage juste avant.  
+**Entretien de santé physique facile**  
+<ins>Méthode simplifié de bonne santé physique, remise en forme</ins> : marcher 20 minutes, monter équivalent de 4 ou 5 étages avec l’escalier ou la colline, tourner sur soi-même 25 fois, les 3 à faire chaque jour ou encore mieux 2 fois dans la journée accélérera la forme ou la guérison. faire la planche sans faire de pompe horizontale ou en diagonale pour les santés fragiles.Faire une sieste en milieu de journée.  
+<ins>Pour maigrir facilement</ins>, voir *Méthode abdos tout terrain* n°890.  
+<ins>Mal de dos</ins> : pour remettre son dos droit, décoincer les vertèbres et avoir moins mal au dos, il faut se mettre dos au sol allongé jusqu’aux pieds, lever les 2 bras vers l’arrière en inspirant et revenir en expirant.  
+<ins>Pour récupérer rapidement l’énergie</ins> après les exercices, voir Position de régénération n°891. On peut faire un massage ou auto massage juste avant.  
 Compléments et autres explications. Une méthode douce et efficace est de marcher 20 minutes et monter 1 étage d’escalier aux 4, 8, 12, 16 et 20ème minutes.  
 Compléter avec 30 secondes (1 minute, 2 fois 30 secondes selon état de votre corps) de bras tendus mains au sol avec corps droit (position des pompes), faire 25 petits sauts des pieds sur place 2 fois.  
 Faire des monter de genoux sans déplier les jambes (cela est bon pour renforcer avant de s’étirer au grand écart latéral), environ 50 en marchant ou sur place, tourner sur soi-même renforce aussi des muscles.  
@@ -3870,34 +3869,34 @@ En cas de nœuds musculaires (différent de simple tension musculaire), ne pas p
 Marcher 20 minutes dès le lever en allant dehors ou en aller retour chez soi, 5 étages de monter d’escaliers en milieu de journée, remarcher 20 minutes au soir, jongler avec un ballon fait travailler pleins de muscles.  
 Quand les gens sont très blessés, la ligne de guérison peut être très mince : faire les bons types d’exercices, ni trop fort ni trop peu.  
 Une dépression ou très énervé ou stressé diminue la guérison de moitié pour les douleurs musculaires.  
-3 exercices de musculation ou d’endurance  
+**3 exercices de musculation ou d’endurance**  
 1. Pédaler avec ses 2 bras horizontaux, l’un et l’autre se passant devant en tournant, au moins une minute.  
 2. Pédaler dos au lit avec ses 2 jambes 2 fois 50 tours ou plus.  
 3. Méthode abdos tout terrain voir (890).  
-3 étirements à faire au lit (idéalement après avoir échauffé ses muscles en pédalant avec ses pieds).  
+**3 étirements à faire au lit** (idéalement après avoir échauffé ses muscles en pédalant avec ses pieds).  
 Prévoir une petite pause entre chaque exercice est mieux.  
 Plusieurs minutes en alternant et en refaisant quelques fois le même.  
 1. Le grand écart de la grenouille : jambes pliées, cuisses écartées sur les genoux face couchée sur le matelas.  
 2. S’asseoir sur ses talons et se laisser descendre dos au matelas et rester en étirement, à un plus haut niveau : ajouter un petit coussin sous les pieds pour augmenter l’amplitude d’étirement.  
 3. A partir de la position précédente, éloigner les pieds vers l’extérieur du matelas, on peut aussi le faire en remontant les genoux pieds écartés.  
 890  
-La méthode abdos tout terrain  
+**La méthode abdos tout terrain**  
 Faire ce qui suit dès l’enfance permettra d’empêcher de futurs surpoids, c’est la méthode d’abdos la plus facile. Pour ne pas grossir, se maintenir en forme, maigrir en étant immobile assis ou couché, mettre ses deux mains sur son ventre et faire des contractions d’abdos, au moins 500 par jour ou 1000, 2000 ou 3000 pour plus d’efficacité selon votre forme ou vos besoins, à faire par série de 50 pour mieux compter par 500, idéalement 500 en se réveillant et 500 au soir.  
 Pour ceux qui ont seulement des grosses fesses, faire des séries de contractions de fesses en étant assis ou couché ou alors les abdos ont peut-être l’effet de diminuer la graisse de plus bas.  
 Je ne garantie pas que ça maigrisse si vous manger beaucoup trop mais cela a son effet et enlève une partie de graisse qui ne s’accumule pas.  
 La digestion est aussi accélérée, ainsi que l’évacuation des gaz.  
 Si tu as trop mangé et tu te sens comprimé, tu sais ce qu’il te reste à faire.  
 891  
-La position/la sieste du repli régénérant.  
+**La position/la sieste du repli régénérant**.  
 Faire une sieste après le repas du milieu de journée ou après le sport permet d’optimiser son énergie et d’être en meilleur santé.  
-Position de régénération rapide du lit.  
+<ins>Position de régénération rapide du lit</ins>.  
 Avoir une barre au-dessus du niveau des pieds ou tenir ses pieds en l’air sous le drap et la couverture de son lit permet de poser ses pieds dessus en position allongé sur le ventre et régénère bien plus vite pendant la sieste.  
 Remarque : un torchon posé sur le coussin ou l’oreiller au tissage aéré pas trop fin ni trop plat permet au front de moins transpirer.  
 Une des meilleures positions est assise sur une chaise de bar, avec sa barre en dessous pour que les pieds soit plus libre de tensions d’appuis.
 Cette position permet une récupération optimale d’énergie avec moins de pression de contact avec trop de muscles, alors que dans le lit trop de muscles sont compressés.  
 On pourrait aussi inventer une chaise spéciale avec un support pour poser sa tête pour une sieste de repli régénérant.  
 892  
-Amalgame d’imitations  
+**Amalgame d’imitations**  
 Quand on compare quelqu’un à un animal, cela plait plus ou moins selon que l’on privilégie la beauté, l’intelligence ou les capacités plus ou moins positives ou que l’on met une volonté de nuire.  
 Si on associe quelqu’un à un singe et l’autre à un chat, certains vont penser qu’on discrimine l’ethnie du singe sauf que le singe est plus intelligent et plus fort que le chat, donc on discrimine l’ethnie du chat sauf que le chat est plus beau et plus rapide que le singe.  
 Tu es agile comme un singe : c’est positif, tu es intelligent comme un singe : c’est perçu négativement, normal car c’est discriminant.  
@@ -3974,8 +3973,8 @@ Il faut éviter d’acheter des gadgets électroniques qui consomment la planèt
 907  
 Le rôle d’un roi, d’un empereur, d’un président, d’un ministre ou d’un sage est de mettre en avant les talents de son pays dans l’équilibre d’au moins trois pouvoirs (pour éviter que l’un anéantisse l’autre, de faire en sorte que l’on ne soit pas trop riche et de redistribuer l’argent aux plus pauvres et aux projets de bienfaits communs.  
 
-Pas de partis politiques. Les ministres de chaque domaine devraient être sélectionnés par un examen spécifique ouvert à tous qui ont les compétences pour y répondre ayant fait des études ou écrit un livre qui qualifie leurs compétences pour participer, aussi répondre à un test de questions de sagesse, toutes les réponses des candidats et leurs notes aux examens sont rendus publique immédiatement pour éviter la triche. Ensuite ils élisent le représentant ou le grand sage qui joue surtout le rôle d’orateur, quelques milliers de citoyens sont tirés au sort pour former toute la cour, le tirage au sort serait changé plus souvent que les ministres pour éviter qu’ils aient le temps d’être corrompus ou menacés, ils sont quelques milliers pour éviter d’être menacé car c’est moins facile qu’un petit groupe plus facilement attaquable. Les ministres peuvent être révocables à tout moment par un vote de la cour.  
-Avant un vote, faire un double débat de personnes contres et pour, 2 personnes choisis et 2 personnes tirés au sort parmi le peuple inscrit (le principal de ce texte en italique et surtout souligné est l’idée d’un autre que j’ai reformulé complètement avec mes phrases et modifié un peu les idées).  
+<ins>*Pas de partis politiques. Les ministres de chaque domaine devraient être sélectionnés par un examen spécifique ouvert à tous qui ont les compétences pour y répondre ayant fait des études*</ins> *ou écrit un livre qui qualifie leurs compétences pour participer, aussi répondre à un test de questions de sagesse, toutes les réponses des candidats et leurs notes aux examens sont rendus publique immédiatement pour éviter la triche. Ensuite ils élisent le représentant ou le grand sage qui joue surtout le rôle d’orateur*, <ins>*quelques milliers de citoyens sont tirés au sort*</ins> *pour former toute la cour, le tirage au sort serait changé plus souvent que les ministres* <ins>*pour éviter qu’ils aient le temps d’être corrompus ou menacés*<ins>, *ils sont quelques milliers pour éviter d’être menacé car c’est moins facile qu’un petit groupe plus facilement attaquable*. <ins>*Les ministres peuvent être révocables à tout moment par un vote de la cour*</ins>.  
+Avant un vote, faire un double </ins>débat de personnes contres et pour</ins>, 2 personnes choisis et 2 personnes tirés au sort parmi le peuple inscrit *(le principal de ce texte en italique et surtout souligné est l’idée d’un autre que j’ai reformulé complètement avec mes phrases et modifié un peu les idées)*.  
 
 908  
 Des éléments de vérités cachées, de vérités comparables ou de projets futuristes sont montrés dans les films mais beaucoup croient que ça ne peut pas être vrai. Les films peuvent nous programmer en partie vers un futur souhaité.  
@@ -3995,32 +3994,32 @@ Certains animaux sont plus sages que certains humains.
 915  
 C’est en s’imprégnant du talent des autres et de leurs paroles que l’on s’inspire.  
 916  
-Les rêves  
+<ins>Les rêves<ins>  
 Mon enquête  
 4 types :  
-Vraies personnes  
-Hologrammes, internes au cerveau (illusions) ou extérieurs (projetés par une technologie ou une magie de soi-même ou d’une personne de l’astral).   
-Vies antérieures (mémoires temporelles).  
-Prémonitoires (moments de vie future).  
+<ins>Vraies personnes</ins>  
+<ins>Hologrammes</ins>, internes au cerveau (illusions) ou extérieurs (projetés par une technologie ou une magie de soi-même ou d’une personne de l’astral).   
+<ins>Vies antérieures</ins> (mémoires temporelles).  
+<ins>Prémonitoires</ins> (moments de vie future).  
 
 De l’autre côté existe la technologie et la vrai magie.  
 
 Garder sa conscience lucide, explorer, essayer, apprendre.  
 
-L’astral a 3 plans subdivisés  
-Astral supérieur (inférieur moyen, haut)  
-Astral moyen (inférieur, moyen, haut)  
-Astral inférieur ou bas astral (inférieur, moyen, haut)  
+**L’astral a 3 plans subdivisés**  
+<ins>Astral supérieur</ins> (inférieur moyen, haut)  
+<ins>Astral moyen</ins> (inférieur, moyen, haut)  
+<ins>Astral inférieur ou bas astral</ins> (inférieur, moyen, haut)  
 Pour ma part, j’ai demandé plusieurs fois où j’étais dans l’astral : on m’a répondu : moyen astral moyen, moyen astral inférieur, haut astral.  
 
 Le défi de s’endormir pour le rêve est de garder sa conscience comme éveillée, donc augmenter sa conscience.  
 
-Notre corps a de multiples corps qui s’emboîtent.  
+**Notre corps a de multiples corps qui s’emboîtent**.  
 On peut être dans un rêve et s’endormir dans un autre rêve (sortir de son corps astral comme pour un 2ème corps astral ou plus haut (ressemblant comme les poupées russes qui s’emboîtent).  
 J’ai demandé dans l’astral ou ils atterrissent quand ils rêvent, plusieurs d’un groupe de personnes disent qu’ils sont au bafa dans la plénitude, ça doit être une dimension supérieur au haut astral où ils ont encore une forme, où il y a les anges, d’autres appellent cette zone autrement d’habitude (paradis, plan céleste), j’ai reçu cette information dans deux rêves différents.  
 
-Pouvoirs magiques  
-Métamorphe  
+**Pouvoirs magiques**  
+<ins>Métamorphe</ins>  
 Il y a les métamorphes qui se transforment en autre humain, animal, objets…  
 Il y a des humains qui se transforment en animal.  
 J’ai déjà été transformé en magnifique femme blonde, asiatique, brune, ce n’est pas une de mes vies antérieures car on m’a dit que je n’avais jamais été un animal ni une femme en tant qu’incarnation complète.  
@@ -4029,46 +4028,47 @@ J’ai pensé à toucher mon clitoris pour voir l’effet pendant 10 secondes, p
 Je préfère avoir l’apparence d’une belle femme en transformation qu’un autre homme d’apparence insupportable, normal c’est plus agréable de me regarder dans le miroir.  
 J’ai mis la laisse à un chien, je me suis retrouvé avec un humain debout en laisse, une personne a dit une phrase genre choqué, c’était encore un métamorphe.  
 
-Téléportation    
+<ins>Téléportation</ins>    
 On m’a dit qu’on m’avait téléporté, J’ai réussi aussi à voir une personne se téléporter de quelques mètres.  
 Dans un grand hall de bâtiment, j’ai demandé à quelqu’un de me téléporter pour  aller au WC, il m’a téléporté de plusieurs dizaines de mètres en ajoutant un bruitage de téléportation (sûrement pour l’humour).  
 
-Voler  
+<ins>Voler</ins>  
 Je sais voler, c’est le pouvoir que j’utilise le plus souvent, le plus facile.  
 Une fois, j’étais en train de voler en haut de l’intérieur d’un grand hall et en redescendant fort vite, j’ai freiné très brusquement et mon anti gravité a produit une onde choc en cassant des vitres autour.  
 
-Matérialisation et dématérialisation d’objets ou de substances  
+<ins>Matérialisation et dématérialisation d’objets ou de substances</ins>  
 J’ai déjà fait apparaître et disparaître un objet : une chaise (j’ai réussi à la faire disparaitre et réapparaitre).  
 Des gens se permettent de changer tes vêtements et même parfois ton apparence.  
 
-Télékinésie  
- Le pouvoir de léviter (ex : un petit objet pour ma part mais d’autres fois, je n’arrive pas), J’ai soulevé une voiture en posant la main contre verticalement. 
+<ins>Télékinésie</ins>  
+Le pouvoir de léviter (ex : un petit objet pour ma part mais d’autres fois, je n’arrive pas), J’ai soulevé une voiture en posant la main contre verticalement. 
 Une autre personne m’a poursuivi avec un sabre genre Maghreb ou arabe qui tournait dans l’air pour m’atteindre en le dirigeant par la pensée parce que j’ai traversé sa terrasse en haut d’un immeuble en volant, il m’a rattrapé et je me suis réveillé, une autre fois c’était un viking avec sa hache volante.   
 
-Traverser la matière  
-J’ai déjà traversé des murs plusieurs fois.  
-Multi instrumentation musicale de pensée  
+<ins>Traverser la matière</ins>  
+J’ai déjà traversé des murs plusieurs fois.
+
+<ins>Multi instrumentation musicale de pensée</ins>  
 Accompagné de l’action d’un seul instrument réel pour ma part.  
 J’ai réussi à créer une fois une très belle musique de 2 minutes avec un seul instrument de piano en complétant par des autres instruments seulement grâce à la pensée.  
 
-Invisibilité  
+<ins>Invisibilité</ins>  
 J’ai entendu du bruit dans une salle de classe où je ne voyais pas de personne, je me suis dit, il me faudrait un radar (dans mes yeux), j’ai découvert qu’il était en mode invisible, j’ai dit M. cheveux mi-long, il y en a un qui a dit comment il a fait.  
 J’ai vu plusieurs fois le mode invisible, j’en ai vu disparaitre mais je voyais l’onde de leur forme.  
 
-Hologrammes  
+**Hologrammes**  
 Il y a des purs hologrammes créés plus ou moins consciemment par soi, des hologrammes que les gens se mettent devant eux en illusion pour te faire croire qu’ils sont quelqu’un d’autre, technologie de projection holographique, les hologrammes durcis, une simulation entière d’hologrammes durcis.  
 Il y avait un groupe qui semblait être des hologrammes, j’ai touché où il ne fallait pas et quelqu’un derrière m’a dit : « tu vas arrêter, j’ai dit : c’est un hologramme et il ma répondu : oui c’est vrai.  
 J’ai vu un hologramme de dessin-animé, j’ai voulu le toucher et il était durci au moins sur sa couche externe.  
 
-Vies antérieures  
+**Vies antérieures**  
 J’ai rêvé que je dessinais une aigrette, j’ai retrouvé mon dessin, impossible de confondre avec d’autres dessins d’oiseaux.  
 J’en ai fait plus d’une dizaine de vies antérieures avant de trouver les faits historiques.  
 J’ai déjà lu un texte en entier en rêve.  
 
-Rêves prémonitoires  
+**Rêves prémonitoires**  
 J’ai fait des rêves prémonitoires (souvent quelques semaines ou mois à l’avance), une fille m’a dit que je suis un trésor, et m’a dit la même chose exactement à la même place de la bibliothèque, j’ai rêvé d’une douche dans un couloir, je l’ai vu en vrai. J’ai rêvé que j’avais des douleurs horribles dans un lit de chez mes parents et c’est arrivé alors que j’étais seulement venu pour les vacances, encore d’autres…  
 
-Anecdotes et autres…  
+**Anecdotes et autres**…  
 Je suis régulièrement conscient pendant le rêve que je suis dans un rêve (rêve lucide).  
 Certains te testent pour enseigner des leçons ou voir si tu réagis de la bonne façon, d’autre pour s’amuser ou d’autres pour te tromper et t’embêter, beaucoup de prétextes sont possible.  
 Il y a des gens qui veulent t’hypnotiser et t’influence pour faire de mauvaises choses.  
@@ -4114,19 +4114,19 @@ J’ai vu une grande ville d’eau où toutes les rues étaient de l’eau, à l
 Un homme m’a dit qu’il avait 387 ans sans paraître plus de 50 ans.  
 Tomber dans un état de coma sur Terre plusieurs années et avoir une vraie vie pendant plusieurs années avec des vrais gens et même faire un enfant est possible, dire que c’est l’imagination n’est pas une preuve que c’est faux.  
 
-Réponses de mon antériorité  
+<ins>Réponses de mon antériorité</ins>  
 On m’a dit que je pouvais poser des questions et de bien retenir.  
 La première fois que j’ai été créé : 250 millions d’années, 120 000 que je suis sur Terre, jamais été un animal ni une femme.  
 
 (Je viens d’un autre univers, hors contexte du rêve : médium).  
 
-Voyage temporel :  
+<ins>Voyage temporel</ins> :  
 1. J’ai discuté avec une personne, je lui ai dit mon nom et prénom, que j’étais en 2023 (je me suis trompé c’était 2025), il fut prit d’un étonnement et me dit qu’il était de 2300 et quelques années (oublié la date précise), je lui ai parlé de mon chêne bonsaï de mon livre qui représente l’univers, je lui ait parlé de 2 espèces d’extraterrestres (klingon et …), quand j’ai dit le nom d’une, il m’a fait un signe (doigt horizontal au niveau du coup, je ne dit pas l’espèce pour ne pas poser de problème diplomatique futur, à très grandes oreilles), je lui ai demandé de me dire un nom d’une autre sorte d’extraterrestre mais trop compliqué et j’ai oublié.  
 Attention si vous êtes un O’brien du 24ème siècle ou fin 23ème, ne lisez pas ce qui suit en 2, cela pourrait changer le futur.  
 2. J’ai encore rencontré une personne du 24ème siècle, je me suis dit d’abord en voyant cet inconnu aux cheveux bruns très courts, je vais essayer de deviner son prénom, Mickael (musicien violoncelle), il me répond oui et me dit que c’est le père de miles O’Brien (vérifier internet, c’est vrai) dans star trek et que je vais me réincarner dans sa lignée, peut-être dans ses ancêtres je crois genre grand-père ou arrière grand père, j’ai oublié, je dis que je ne suis pas d’accord, dit que je suis obligé, il me dit aussi que je me réincarnerais plus dans ma famille actuelle, je me suis énervé car je déteste qu’on me donne des ordres…  
 C’est dangereux si quelqu’un fait une série sur le futur avec des vrais faits d’un voyageur temporel, possible, restons prudent si c’est vrai ou non.  
 
-La même personne (différents individus)  
+**La même personne** (différents individus)  
 Une personne peut être :  
 1. Son double d’une autre dimension  
 2. Un métamorphe  
@@ -4134,7 +4134,7 @@ Une personne peut être :
 4. La vraie personne rejoint dans un rêve (rêves partagés)  
 5. Un hologramme en projection technologique ou mental, ou un hologramme durci par manifestation de matérialisation de conscience ou par une technologie (ex : holodeck).  
 
-Les rêves sont une autre réalité  
+**Les rêves sont une autre réalité**  
 Plus que des rêves.  
 J’ai demandé si il y’ avait des dormeurs, plusieurs ont levé la main. J’ai déjà ressenti des grosses douleurs dans mes rêves mais aussi des balles de pistolet qui ne m’ont pas fait mal.  
 On m’a dit que je devenais chauve dans un rêve, c’est comme cela que je l’ai découvert pour la première fois mais mes cheveux ont repoussé après (les mougeons m’avaient trop énervé et fait perdre quelques cheveux).  
@@ -4151,7 +4151,7 @@ Il vaut mieux boire dans de l’eau en bouteille de verre que du plastique qui l
 919  
 Les gens de peu n’arrivent pas à se passer d’alcool pour faire la fête et cela baisse la conscience pendant la consommation et aussi la sagesse générale après remise en état de sobriété.  
 920  
-Véhicule ou voiture  
+**Véhicule ou voiture**  
 Avoir une voiture au début du 21ème siècle, c’est le prix d’un appartement minimum ou d’une maison au cour d’une vie : achat, réparation obligatoire, payer l’assurance chaque année, essence. Autant prendre un vélo avec une remorque si l’on n’a pas des besoins trop éloignés et ainsi gagner en qualité de vie dans d’autres domaines plutôt qu’entretenir sa pauvreté pour certains.  
 Garder ses distances avec les véhicules, toujours vérifier 2 fois avant de traverser à pieds ou en voiture même avec le feu vert, toujours regarder derrière quand quelqu’un dépasse en voiture ou en vélo.  
 Avoir un hammerdex pour casser une vitre très solide quand on reste coincé dans une voiture ou un véhicule.  
@@ -4267,16 +4267,16 @@ Le plus grand défi est d’être le plus parfait au milieu de tous les types d�
 954  
 La pluie qui tombe sur le toit fait une jolie compagnie avant le voyage des rêves.  
 955  
-L’eau est une merveille, c’est un miroir des beautés.  
+**L’eau est une merveille, c’est un miroir des beautés**.  
 L’eau pure est le miroir reflétant de la beauté des couleurs rayonnantes.  
-  En glace, du sport : on peut y faire du patin à glace de vitesse ou artistique, du hockey, curling, bobsleigh, luge.   
+  <ins>En glace</ins>, du sport : on peut y faire du patin à glace de vitesse ou artistique, du hockey, curling, bobsleigh, luge.   
 Elle peut nous apprendre à sculpter sans couper d’arbre, on s’amuse à la craquer sous nos pieds. Elle crée des stalactites et des stalagmites.  
-  En grêle, dommage, il  n’y a rien à dire.  
-  En neige, tants de sports : on y glisse sur des luges, skis, planches.  
+  <ins>En grêle</ins>, dommage, il  n’y a rien à dire.  
+  <ins>En neige</ins>, tants de sports : on y glisse sur des luges, skis, planches.  
 On crée des décors, des igloos, on joue à la bataille de boules de neige.  
-  En eau, on fait des sports : la liste est très longue… On nage avec, on saute dedans, on navigue, on se balance et on y glisse à l’aide d’objets, on se lance des ballons, jeu de celui qui tombe dans l’eau en premier de diverses manières, on fait des ricochets.  
+  <ins>En eau</ins>, on fait des sports : la liste est très longue… On nage avec, on saute dedans, on navigue, on se balance et on y glisse à l’aide d’objets, on se lance des ballons, jeu de celui qui tombe dans l’eau en premier de diverses manières, on fait des ricochets.  
 Elle chantonne dans des chutes d’eau et en tombant sur les divers surfaces, elle polit les pierres et purifie nos corps, elle crée des arcs en ciel.  
-  En vapeur, elle décors les plaines et les collines de brumes ainsi que les montagnes et le ciel de nuages de diverses formes.  
+  <ins>En vapeur</ins>, elle décors les plaines et les collines de brumes ainsi que les montagnes et le ciel de nuages de diverses formes.  
 On n’a pas encore trouvé de sport dans la vapeur.  
 956  
 On devrait ne jamais construire des habitations à moins de 20 km d’un volcan.  
@@ -4301,8 +4301,8 @@ Le moujonc a la tendance du sens de la girouette.
 963  
 Tout ce qui exige du sang dans un rituel est un sorcier du mal.  
 964  
-Vengeance et mal  
-Souhaiter la souffrance de son ennemi, c’est se mettre du côté du mal  .
+**Vengeance et mal**  
+<ins>Souhaiter la souffrance de son ennemi, c’est se mettre du côté du mal</ins>.
 Celui qui se venge en torturant est le mal, infligé plus de douleur physique que ce que l’autre a fait est un acte de mal, laisser mourir dans un endroit où les circonstances le font mourir de torture est faire le mal, envoyer de pensées de torture (ou taper les gens de manière à faire mal) envers quelqu’un quoi qu’il fait même si c’est un tortureur est faire le mal, les mauvaises pensées atteignent inconsciemment la conscience collective et influence l’augmentation des malheurs. 
 
 Je ne suis pas responsable des mauvais agissements de mes ancêtres ou d’un membre de ma famille car je ne les ai pas obligatoirement mal incités, chaque conscience d’une famille peut penser différemment et même à l’opposé surtout qu’en se réincarnant on peut avoir des ancêtres européens ou asiatiques, je ne m’excuse pas mais je peux reconnaître qu’ils ont mal agis et m’engager pour un monde plus égalitaire.  
@@ -4329,7 +4329,7 @@ Celui qui a peur des esprits désincarnés et n’y croit pas y croit un peu sin
 971  
 Plus tu es méchant, plus un futur pauvre t’attends. Plus tu es conscient et juste, plus la richesse de l’univers est accessible. Tout cela ne se calcule pas à l’échelle que d’une seule vie mais sur plusieurs.  
 972  
-Le consentement   
+**Le consentement**   
 (Attention, mon avis n’est pas le même que certaines lois).  
 Le consentement dépend de la capacité de la conscience, de son savoir, la capacité de répondre et de se défendre.  
 Un consentement est vrai seulement quand il est librement éclairé par des explications véridiques et sur les conséquences. Sinon s’il y a un piège, il est moins consenti par l’idiotie ou l’ignorance de la victime ou par le chantage de quelques libertés ou de l’appât d’une petite récompense. S’il y a du chantage qui risque de détruire sa vie par des menaces, ce n’est pas un vrai consentement.  
@@ -4341,7 +4341,7 @@ On demande l’avis de la personne supposée victime ou pas, qui peut ne pas se 
 Certaines de 14 ans peuvent paraître le même âge que certaines de 18 ans.  
 Quand on touche un sein sans prévenir même si ça ne se fait pas, ainsi qu’embrasser sans prévenir ou en allant trop vite sans le temps d’esquiver, les mougeons qualifient ça d’agression sexuel alors que le sexe est plus bas et si une femme touche les pectoraux d’un homme sans prévenir, on en fait rarement un drame, on devrait parler d’attouchement inapproprié. En utilisant des mots qui ne correspondent pas, cela met de la confusion dans la pensée alors changez vos définitions.  
 La frontière du mal varie selon les gens et leurs goûts, il y a une universalité du bien mais qui ne peut pas être parfaitement définie et peut être flou sur certains aspects.  
-L’animal n’est pas consentant quand on le tue pour le manger.  
+<ins>L’animal n’est pas consentant quand on le tue pour le manger</ins>.  
 En dehors d’une survie obligée, donner à manger de la viande aux enfants sans expliquer comment l’animal  a été tué et sans se mettre à sa place, n’est-ce pas de la corruption contre les animaux, sans explications, ce n’est pas un vrai consentement.  
 Sommes nous vraiment consentent quand on se fait arnaquer ? (pas assez informé par l’éducation ou pas assez curieux du savoir ou manque d’intelligence)
 On ne perd pas l’innocence, c’est celui qui fait le mal qui est coupable.  
@@ -4356,8 +4356,8 @@ Une bonne poésie peut donner une leçon tout en étant belle et en rimes.
 974  
 Il est important de comprendre son erreur, moins d’être informé qu’on la faite. Il  faut essayer de s’entrainer à trouver la réponse seul avant qu’on nous la donne sauf quand c’est trop difficile.  
 975  
-Il n’y a pas d’égalité dans l’ascension car on n’a pas tous les mêmes circonstances. Le programme automatique n’est pas assez perfectionné pour faire la différence entre celui qui vibre bas à cause de la méchanceté des autres et celui qui vibre bas parce que c’est un vrai con, il se contente de renvoyer tes énergies/vibrations sans discernements avec des nouveaux cons ou emmerdeurs ou défaites. Il faut trouver un nouveau contrat de réincarnation pour demander réparation, alors même si certains méchants s’en sortent bien cette fois ci, dans leur prochaine vie, attention pour eux.  
-A cause de mauvaises circonstances de réincarnation, on peut te croire plus con que lors de ta précédente incarnation, alors que tu as gagné en évolution, simplement parce que il y a quelquechose que tu n’as pas réussi à avoir dans cette vie à cause des cons.  
+<ins>Il n’y a pas d’égalité dans l’ascension car on n’a pas tous les mêmes circonstances</ins>. Le programme automatique n’est pas assez perfectionné pour faire la différence entre celui qui vibre bas à cause de la méchanceté des autres et celui qui vibre bas parce que c’est un vrai con, il se contente de renvoyer tes énergies/vibrations sans discernements avec des nouveaux cons ou emmerdeurs ou défaites. Il faut trouver un nouveau contrat de réincarnation pour demander réparation, alors même si certains méchants s’en sortent bien cette fois ci, dans leur prochaine vie, attention pour eux.  
+<ins>A cause de mauvaises circonstances de réincarnation, on peut te croire plus con que lors de ta précédente incarnation, alors que tu as gagné en évolution, simplement parce que il y a quelquechose que tu n’as pas réussi à avoir dans cette vie à cause des cons</ins>.  
 976  
 Les plus grands génies peuvent être les plus mal servis.  
 C’est un génie artistique et philosophique mais il n’arrive pas à avoir une vie normale (à cause des cons).  
@@ -4387,7 +4387,7 @@ Plus la vibration est basse, plus le corps est lourd et dense, moins il y a de m
 Il y en a qui font croire qu’ils ont de la magie où sont des dieux grâce à la technologie (téléportation, hologramme, onde tremblement de terre).
 La magie peut aussi être naturelle dans une haute dimension ou l’astral.
 988  
-Vaisseau spatial antigravité (synthèse de séries de science-fiction)  
+**Vaisseau spatial antigravité (synthèse de séries de science-fiction)**  
 500 ou 1500 mètres de long ou plus.  
 Quelques centaines de personnes à bord.  
 Plusieurs couches de coque ultra solide, au moins 3.  
@@ -4438,7 +4438,7 @@ Ensuite, des droits inférieurs injustes à cause d’une intelligence inférieu
 La vie sera toujours beaucoup plus riche dans le partage de tous et la sagesse que pour un dictateur le plus riche d’une planète qui a une illusion éphémère.
 Le dictateur s’accapare des portions de la galaxie ou de nature et empêche l’exploration des visiteurs qui sont sans intention de nuire. Il est justifié de demander aux visiteurs leur intention au cas d’un souci sanitaire de possible maladie ou de danger d’un groupe ou de l’autre.  
 991  
-Philosophie du jardin  
+**Philosophie du jardin**  
 Le paysage général des Humains donne un aperçu de leurs jardins intérieurs.  
 S’occuper de son jardin et de la nature demande de la philosophie. Créer le plus beau jardin du monde requiert d’être un bon philosophe sur ce sujet.  
 992  
@@ -4459,7 +4459,7 @@ Quand le mental est rassasié, on se tait dans le silence de l’intuition.
 999  
 Il faut augmenter sa conscience au maximum pour avoir l’intuition d’éviter le mauvais hasard.  
 1000  
-Paréidolies  
+**Paréidolies**  
 Les paréidolies ne proviennent pas toutes du hasard dans la nature.  
 Les paréidolies sont parfois une partie du reflet du divin.  
 (Des forces de consciences ont dû créer les circonstances pour les photos de 18 et 60 paréidolies qui sont en plein dans le 1000 ainsi que des autres)  
@@ -4494,7 +4494,7 @@ longue vie illuminée et toujours nirvana avec merveilles.
 Sylvain Meili (22-23/02/2022 : n°23)  
 
 
-112 proverbes d’amour et drôles inédits  
+**112 proverbes d’amour et drôles inédits**  
 
 Proverbes d’amour  
 et d’humour  
