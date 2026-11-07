@@ -8013,16 +8013,16 @@ Pendant mon enfance depuis la fenêtre de ma chambre en plein jour, j’ai vu un
 Je pense qu’il devait faire environ une dizaine de mètres à une distance de plusieurs centaines de mètres.  
 
 
-Les 59 holorimes  
-du ninja  
+**Les 59 holorimes  
+du ninja**  
 
 Manier les mots comme un ninja  
 3 Records du monde  
 
-Les 59 holorimes  
-du ninja  
+**Les 59 holorimes  
+du ninja**  
 
-Présentation  
+**Présentation**  
 
 Mon nom en chinois est : Sēnlín Shuài Méilǐ (森林 帅 梅里).  
 Sēnlín Shuài Méilǐ en numérologie des lettres :  
@@ -8036,75 +8036,75 @@ Je suis un esthète passionné de philosophie, poésie, nature, Kung-fu et de be
 
 Le jeu bonus à la lecture peut être de cacher l’un des paragraphes et de deviner l’autre paragraphe.  
 
-1. Le miroir de l’ombre vaincue Sylvain Meili (08/05/2026)  
+**1. Le miroir de l’ombre vaincue** Sylvain Meili (08/05/2026)  
 
-Challenge : 24 holorimes en 24 h : Réalisé en moins de 21 heures.  
-Challenge : 36 holorimes en 36h : Réalisé en 34 heures environ.  
+<ins>Challenge : 24 holorimes en 24 h</ins> : Réalisé en moins de 21 heures.  
+<ins>Challenge : 36 holorimes en 36h</ins> : Réalisé en 34 heures environ.  
 Après 21h le 15/05/2026 jusqu’au 17/05/2026 à 7h, soit 36 poème en 34 h environ. 2 nuits blanches, dormi toute la fin des matinées.  
-2. Se réveiller et se sauver (15/05/2026)  
-3. Se défaire et construire (15/05/2026)  
-4. Maniement du bâton et récupérer les voleurs (16/05/2026)  
-5. Belles décorations (16/05/2026)  
-6. Chapeau l’artiste et tourner la page (16/05/2026)  
-7. Le temps du jeu (16/05/2026)  
-8. Chemins antagonistes (16/05/2026)  
-9. Une soirée pas comme l’autre (16/05/2026)  
-10. Lola et le lapin (16/05/2026)  
-11. La fumée et le parfum (16/05/2026)  
-12. Cuisinier incompétent (16/05/2026)  
-13. Rivière et pêcheur (16/05/2026)  
-14. Marion, Marie et Emma (16/05/2026)  
-15. Balade sans fumer (16/05/2026)  
-16. Camping (16/05/2026)  
-17. Fête et jeu de cartes (16/05/2026)  
-18. Secret-aire (16/05/2026)  
-19. Question : où suis-je ? (16/05/2026)  
-20. Chargé de vie (16/05/2026)  
-21. Nettoie après la danse et bois un thé (16/05/2026)  
-22. Foot et coupe (16/05/2026)  
-23. Le karaté est beau (16/05/2026)  
-24. Un ninja élevé (16/05/2026)  
-25. Trop de poids, manger des pois (16/05/2026)  
-26. Billes (17/05/2026)  
-27. Repos doré (17/05/2026)  
-28. Piquant ou douceur (17/05/2026)  
-29. Se protéger (17/05/2026)  
-30. Jeux vidéo (17/05/2026)  
+**2. Se réveiller et se sauver** (15/05/2026)  
+**3. Se défaire et construire** (15/05/2026)  
+**4. Maniement du bâton et récupérer les voleurs** (16/05/2026)  
+**5. Belles décorations** (16/05/2026)  
+**6. Chapeau l’artiste et tourner la page** (16/05/2026)  
+**7. Le temps du jeu** (16/05/2026)  
+**8. Chemins antagonistes** (16/05/2026)  
+**9. Une soirée pas comme l’autre** (16/05/2026)  
+**10. Lola et le lapin** (16/05/2026)  
+**11. La fumée et le parfum** (16/05/2026)  
+**12. Cuisinier incompétent** (16/05/2026)  
+**13. Rivière et pêcheur** (16/05/2026)  
+**14. Marion, Marie et Emma** (16/05/2026)  
+**15. Balade sans fumer** (16/05/2026)  
+**16. Camping** (16/05/2026)  
+**17. Fête et jeu de cartes** (16/05/2026)  
+**18. Secret-aire** (16/05/2026)  
+**19. Question** : où suis-je ? (16/05/2026)  
+**20. Chargé de vie** (16/05/2026)  
+**21. Nettoie après la danse et bois un thé** (16/05/2026)  
+**22. Foot et coupe** (16/05/2026)  
+**23. Le karaté est beau** (16/05/2026)  
+**24. Un ninja élevé** (16/05/2026)  
+**25. Trop de poids, manger des pois** (16/05/2026)  
+**26. Billes** (17/05/2026)  
+**27. Repos doré** (17/05/2026)  
+**28. Piquant ou douceur** (17/05/2026)  
+**29. Se protéger** (17/05/2026)  
+**30. Jeux vidéo** (17/05/2026)  
 
-Histoire de 31 à 36  
-31. 2 voleurs et la pluie (17/05/2026)  
-32. Une galère avant un bon vin (17/05/2026)  
-33. Trop bu (17/05/2026)  
-34. Nuit de sommeil (17/05/2026)  
-35. Réveil (17/05/2026)  
-36. Le karma (17/05/2026)  
+<ins>Histoire de 31 à 36</ins>  
+**31. 2 voleurs et la pluie** (17/05/2026)  
+**32. Une galère avant un bon vin** (17/05/2026)  
+**33. Trop bu** (17/05/2026)  
+**34. Nuit de sommeil** (17/05/2026)  
+**35. Réveil** (17/05/2026)  
+**36. Le karma** (17/05/2026)  
 
-37. La récompense (17/05/2026)  
+**37. La récompense** (17/05/2026)  
 Fin du challenge  
 
-38. Sage ou passage (17/05/2026), Record du monde de longueur d’holorime.  
-39. Nettoyer (18/05/2026)  
-40. Monter (18/05/2026)  
-41. Chute, écoute (18/05/2026)  
-42. Les gueux (18/05/2026)  
-43. Fleurs doubles (18/05/2026)  
-44. Malin tendu (18/05/2026)  
-45. Fourberies des bois (18/05/2026)  
-46. Boxer comme un chat à Mardis gras (18/05/2026)  
-47. Fleur sent mauvais (18/05/2026)  
-48. Le pic creuse et le pic veille (18/05/2026)  
-49. Holorimes en chaînes (18/05/2026), Record du monde de longueur d’holorimes en chaînes.  
-50. Lola dans son bain (18/05/2026)  
-51. Ricochet syllabique aléatoire direct (20/05/2026)  
-Mon invention.  
-52. Triple holorime (20/05/2026), Record du monde de longueur en triple holorime.  
-53. Etre comme l’eau qui ruse (21/05/2026)  
-54. Le travail accélère la récompense (21/05/2026)  
-55. L’arc-en-ciel brille en fin (21/05/2026)  
-56. De l’eau est utile (23/05/2026)  
-57. Cannes et canards (23/05/2026)  
-58. Belle Anna et moi au jardin (23/05/2026)  
-59. Rose : l’arc-en-ciel (23/05/2026)  
+**38. Sage ou passage** (17/05/2026), <ins>Record du monde de longueur d’holorime</ins>.  
+**39. Nettoyer** (18/05/2026)  
+**40. Monter** (18/05/2026)  
+**41**. Chute, écoute (18/05/2026)  
+**42**. Les gueux (18/05/2026)  
+**43**. Fleurs doubles (18/05/2026)  
+**44**. Malin tendu (18/05/2026)  
+**45**. Fourberies des bois (18/05/2026)  
+**46**. Boxer comme un chat à Mardis gras (18/05/2026)  
+**47**. Fleur sent mauvais (18/05/2026)  
+**48**. Le pic creuse et le pic veille (18/05/2026)  
+**49**. Holorimes en chaînes (18/05/2026), <ins>Record du monde de longueur d’holorimes en chaînes</ins>.  
+**50. Lola dans son bain** (18/05/2026)  
+**51. Ricochet syllabique aléatoire direct** (20/05/2026)  
+<ins>Mon invention</ins>.  
+**52. Triple holorime** (20/05/2026), <ins>Record du monde de longueur en triple holorime</ins>.  
+**53. Être comme l’eau qui ruse** (21/05/2026)  
+**54. Le travail accélère la récompense** (21/05/2026)  
+**55. L’arc-en-ciel brille en fin** (21/05/2026)  
+**56. De l’eau est utile** (23/05/2026)  
+**57. Cannes et canards** (23/05/2026)  
+**58. Belle Anna et moi au jardin** (23/05/2026)  
+**59. Rose : l’arc-en-ciel** (23/05/2026)  
 
 Le miroir de l’ombre vaincue  
 
@@ -8121,8 +8121,8 @@ Abrupt au 2ème paragraphe car obligé de faire coïncider sinon pas d’holorim
 2. En plus des fausses rumeurs et insultes, il perd ses chances d’avoir une copine mais à la fin en retrouve une.  
 I et me sont des gémissements justifiés par marre et jeté.  
 
-Challenge : 24 holorimes en 24 h.  
-Réalisé en moins de 21 heures.  
+<ins>Challenge : 24 holorimes en 24 h/<ins>.  
+<ins>Réalisé en moins de 21 heures</ins>.  
 36 en 34 heures.  
 Après 21h le 15/05/2026 jusqu’au 17/05/2026 à 7h, soit 36 poème en 34 h environ. 2 nuit blanches, dormi toute la fin des matinées.  
 
@@ -8434,7 +8434,7 @@ Vincent, mets tes oranges tant ça traîne, et surtout ainsi, elle décorera, re
 Sylvain Meili (17/05/2026), n°A38=n°74 de l’œuvre :  
 Les 75 poèmes codés du multivers  
 
-Record du monde de longueur d’holorime narratif.  
+<ins>**Record du monde de longueur d’holorime narratif**</ins>.  
 Le pas (pied) sage ou le pas (pas être) sage : ça dépend des fois et du passage.
 Sage ou pas sage, la différence est le passage.  
 17 : poème Divine Chine, 1+7+5+2+2+6=23 (23 poèmes sacrés), 2+3=5 : dragon.  
@@ -8521,15 +8521,15 @@ Le pic vers peuple y est, village : des corps nus cachés logent.
 Sylvain Meili (18/05/2026, n°A48)  
 
 
-Holorimes en chaînes  
+**Holorimes en chaînes**  
 
 Voilà la saine scène : des dés, comme un brin brun, je reperds puis je repère le repaire où je peux plier le peuplier vert, un ver vers le verre du conte qui compte au sol les saules haut en eau et la toux du toutou, tout avec son pain qui se peint et le pin au cœur d’un chœur de chants d’un champs près de ton tonton avec un thon et l’avocat de l’avocat qui court la cour jusqu’à son cours de la mère du maire devant la mer qu’on voit près de la voie du bout en boue où un temps un taon me tend tant de coups dans mon cou dont le coût me pique vers le pic d’un saut de sot au sceau d’un seau, quand le camp me pose une pause en paix jusqu’à mon pet devant un geai près d’un jet d’eau pour mon dos pour mes maux, pas plus de mots car c’est le signe d’un cygne où je me sens sans mon sang, cent trop de fois à mon foie pour la foi de Foix.  
 
 Sylvain Meili (18/05/2026, n°A49)  
 
-Mon invention : Holorimes en chaînes, seulement des mots de liaison entre les holorimes, sinon c’est trop facile et de la triche.  
+Mon invention : <ins>Holorimes en chaînes</ins>, seulement des mots de liaison entre les holorimes, sinon c’est trop facile et de la triche.  
 
-Record du monde de longueur d’holorimes en chaînes d’où le même titre.  
+**Record du monde de longueur d’holorimes en chaînes** d’où le même titre.  
 
 
 Lola dans son bain  
@@ -8540,17 +8540,17 @@ L’eau lave et jete.
 Sylvain Meili (18/05/2026, n°A50)  
 
 
-Ricochet syllabique aléatoire direct  
+**Ricochet syllabique aléatoire direct**  
 
 J’attends à temps, me tend tant de taons, ne t’en un tantinet, tante me tance tendrement, me ment à Mans, pas Clément : clef de do, Rémi : fa, au sol : moi, sur dos : dodo.  
 
 Sylvain Meili (20/05/2026, n°A51)  
 
 La fin du poème est libre  
-Mon invention : Ricochet syllabique aléatoire direct : reprise du son d’une des syllabes du dernier mot d’un ensemble d’holorimes en chaînes ou d’une des syllabes du dernier mot d’un ensemble de rimes en chaînes pour faire la suite.  
+Mon invention : <ins>Ricochet syllabique aléatoire direct</ins> : reprise du son d’une des syllabes du dernier mot d’un ensemble d’holorimes en chaînes ou d’une des syllabes du dernier mot d’un ensemble de rimes en chaînes pour faire la suite.  
 
 
-Triple holorime  
+**Triple holorime**  
 
 Ver court, attends, repaire pin, boa vert, peau, sens maître sot, oh !  
 Vers cour à temps, repère pain, boit verre, pot, sans mettre seau eau.  
@@ -8558,7 +8558,7 @@ Verre cours, à tant, reperds, peint bois vers Pau, cent mètres : saut haut.
 
 Sylvain Meili (20/05/2026, n°A52)  
 
-Record du monde : 1er triple holorime inventé.  
+**Record du monde** : <ins>1er triple holorime inventé</ins>.  
 
 Parfait jusqu’à pain, boa se prononce plus lentement pour séparer le o de a. Quand on met en général des virgules entre les syllabes de sons identiques, cela revient au même que le mot boa, on coupe le son sauf que boa et boit, le son se coupe brièvement entre o et a de boa donc ma triple holorime est valide à 100%.  
 Seule la rapidité des sons est changée la plupart du temps, sans réel changement de prononciation, donc c’est valide.  
@@ -8621,21 +8621,21 @@ Sonne !, y a Emma, Rosie : émerveillante nuance sept couleurs.
 Sylvain Meili (23/052026, n°A59)  
 
 
-Les 59 holorimes du ninja  
-Bilan :  
-2 types de poème inventé :  
-Ricochet syllabique aléatoire direct  
-Holorime en chaînes  
-5 types  
-Holorime simple  
-Ricochet syllabique aléatoire direct  
-dont 3 records du monde  
-Triple holorime  
-Holorime narratif (déjà présent dans les 75 poèmes codés)  
-Holorime en chaînes  
+**Les 59 holorimes du ninja**  
+**Bilan** :  
+**2 types de poème inventé** :  
+<ins>Ricochet syllabique aléatoire direct</ins>  
+<ins>Holorime en chaînes</ins>  
+**5 types**  
+<ins>Holorime simple</ins>  
+<ins>Ricochet syllabique aléatoire direct</ins>  
+**dont 3 records du monde**  
+<ins>Triple holorime<ins>  
+<ins>Holorime narratif</ins> (déjà présent dans les 75 poèmes codés)  
+<ins>Holorime en chaînes</ins>  
 
 
-Poèmes libres  
+**Poèmes libres**  
 
 Négociation de brocante  
 
@@ -8645,7 +8645,7 @@ Honnêtement hautement négociant, le nécessitant repart d’un bon regard.
 
 Sylvain Meili (26/05/2026, n°B1)  
 
-Mon invention : Rime pieds poings : reprise des 2 sons des 2 extrémités d’un mot dans le mot suivant ou 3 mots après maximum pour la fluidité (mots de liaison non inclus comme : de, la, un, il, comme, près, dont, etc…).  
+Mon invention : <ins>Rime pieds poings</ins> : reprise des 2 sons des 2 extrémités d’un mot dans le mot suivant ou 3 mots après maximum pour la fluidité (mots de liaison non inclus comme : de, la, un, il, comme, près, dont, etc…).  
 
 
 Fleurs  
@@ -8654,17 +8654,17 @@ Le jardin aux jasmins, une jacinthe, j’arrête  sur cette petite pétillante a
 
 Sylvain Meili (26/05/2026, n°B2)  
 
-Mon invention : Rime pieds poings nostalgique : précédente règle plus : obligation de récupérer une des 2 syllabes des extrémités précédentes pour changer de rime.  
+Mon invention : <ins>Rime pieds poings nostalgique</ins> : précédente règle plus : obligation de récupérer une des 2 syllabes des extrémités précédentes pour changer de rime.  
 
 
 Le Jardin inspire le reflet  
 
-La promenade au jardin devant la chute d’eau de l’étang est superbe.  
-La limonade amenée en haut sur le banc de roses, cossu comme une perle.  
+La p<ins>ro</ins>me<ins>nade</ins> au jardin devant la chute d’eau de l’ét<ins>ang</ins> est <ins>super</ins>b<ins>e</ins>.  
+La limo<ins>nade</ins> amenée en <ins>haut</ins> sur le b<ins>anc</ins> de <ins>ro</ins>ses, co<ins>ssu</ins> comme une <ins>per</ins>l<ins>e</ins>.  
 
 Sylvain Meili (27/05/2026, n°B3)  
 
-Mon invention : Rime en demi Miroir phonétique  ou + totale (en comptant les mots de liaison): reprendre la moitié des sons de la ligne précédente dans l’ordre que l’on veut, mots de liaison non inclus, si il y a 9 syllabes, 4 sur 9 est la limite autorisée à 1 près ou la moitié des lettres à une près, ne pas répéter les mêmes mots sauf liaison comme de, la, un, il, comme, près, dont, etc…   
+Mon invention : <ins>Rime en demi Miroir phonétique</ins> ou + totale (en comptant les mots de liaison): reprendre la moitié des sons de la ligne précédente dans l’ordre que l’on veut, mots de liaison non inclus, si il y a 9 syllabes, 4 sur 9 est la limite autorisée à 1 près ou la moitié des lettres à une près, ne pas répéter les mêmes mots sauf liaison comme de, la, un, il, comme, près, dont, etc…   
 1 mot supplémentaire ou déficitaire autorisé sur la 2ème ligne, pas plus.  
 
 1ère ligne : 18 lettres cueillies et 16 lettres laissées, 6 mots.  
@@ -8697,30 +8697,30 @@ Rime en écho phonétique à distance : 8, 9 pollinisées, polir.
 Prose  
 
 
-Poèmes libres  
+**Poèmes libres**  
 
-Bilan : 4  
-3 types de poème inventés  
-Rime pieds poings  
-Rime pieds poings nostalgique  
-Rime en demi Miroir phonétique  ou + totale (variante non comptée en invention mais peut se considérer comme invention supplémentaire).  
+**Bilan** : 4  
+**3 types de poème inventés**  
+<ins>Rime pieds poings</ins>  
+<ins>Rime pieds poings nostalgique</ins>  
+<ins>Rime en demi Miroir phonétique</ins> ou + totale (variante non comptée en invention mais peut se considérer comme invention supplémentaire).  
 
-3 types de rime classique en plus  
-Anadiplose, Rime dérivative en écho, Rime en écho phonétique à distance.  
+**3 types de rime classique en plus**  
+<ins>Anadiplose</ins>, <ins>Rime dérivative en écho</ins>, <ins>Rime en écho phonétique à distance</ins>.  
 
 
-Bilan général de poésie  
+**Bilan général de poésie**  
 
-137 poèmes  
-43 types de poèmes  
-21 types de poèmes inventés (voir peut-être 23)  
+**137 poèmes**  
+**43 types de poèmes**  
+**21 types de poèmes inventés** (voir peut-être 23)  
 Si je compte le triple holorime avec sa ligne entière en triple, puis l’holorime narratif ou il y a plus de 2 lignes continues de chaque paragraphe, où je n’ai pas triché et ayant été le seul à les concrétiser, cela fait 23 inventions.  
-5 records du monde  
-Nombre de types de poème inventés : 21 (peut-être 23)  
-Triple holorimes le plus long  
-Holorimes en chaînes le plus long  
-Holorime narratif le plus long  
-Poème le plus complexe en contraintes et en type de contraintes de moins de 468 lettres et moins de 10 lignes (9)  
+**5 records du monde**  
+<ins>Nombre de types de poème inventés</ins> : 21 (peut-être 23)  
+<ins>Triple holorimes le plus long</ins>  
+<ins>Holorimes en chaînes le plus long</ins>  
+<ins>Holorime narratif le plus long</ins>  
+<ins>Poème le plus complexe en contraintes et en type de contraintes de moins de 468 lettres et moins de 10 lignes</ins> (9)  
 
 Et autres records potentiels non comptabilisés…  
 Les meilleurs poèmes sur les thèmes, ex : chute d’eau, rivière, forêt, bonsaï, épicéa, jardin, patinage, pays, Kung-fu…  
@@ -8728,58 +8728,58 @@ Les meilleurs poèmes sur les thèmes, ex : chute d’eau, rivière, forêt, bon
 
 Les points forts du livre  
 
-1121 Proverbes : très grande diversité de sujets, Philosophie du Meilisme : 21 devises dont la devise principale, le logo (la photo la plus représentative de la philosophie qui ait existé).  
-75 poèmes codés, 59 holorimes  (dont 21 inventions de type de poèmes, 1 hymne), grands thèmes de la nature, vie humaine et 5 pays, 12 devises poétiques, 5 records du monde.  
-Record du monde de 18 et 60 paréidolies : (90 paréidolies en 10 photos. 84 paréidolies en 3 minutes de 5/9 photos le jour de Noël du 25 décembre 2007), 3 dragons chinois en arbre.  
-Meilleur paysagiste du monde : le plus beau jardin du monde en poèmes (8 et 47) et proverbe.  
-Invention des nuages à bulles de glaces (photos glaces).  
-La montagne de 1121 proverbes (ressemble au Mont St-Michel et à la montagne Meili).
-Quiz 100 proverbes du monde, Français et Chinois.  
-Le meilleur arbre à grimper : l’épicéa commun en poème.  
-Révélations célestes des chiffres des jeux olympiques.  
-Art martialiste des bâtons : invention de la toupie éternelle des 2 dragons chinois impériaux voyageurs (version synchronisée et alternée) (18/08/2024).  
-L’inventaire des meilleures musiques.  
-Invention de la méthode abdos tout terrain.  
-Le jeu de 56 cartes des paréidolies.  
-Le chapeau Chinois des 23 poèmes sacrés.  
-La réalisation recto verso du livre.  
+**1121 Proverbes** : <ins>très grande diversité de sujets</ins>, <ins>Philosophie du Meilisme</ins> : <ins>21 devises</ins> dont <ins>la devise principale</ins>, <ins>le logo</ins> (la photo la plus représentative de la philosophie qui ait existé).  
+**75 poèmes codés**, **59 holorimes**  (dont <ins>21 inventions de type de poèmes</ins>, 1 hymne), <ins>grands thèmes de la nature</ins>, <ins>vie humaine</ins> et <ins>5 pays</ins>, <ins>12 devises poétiques</ins>, <ins>5 records du monde</ins>.  
+**Record du monde de 18 et 60 paréidolies** : (<ins>90 paréidolies en 10 photos</ins>. <ins>84 paréidolies en 3 minutes de 5/9 photos le jour de Noël</ins> du 25 décembre 2007), <ins>3 dragons chinois en arbre</ins>.  
+**Meilleur paysagiste du monde** : <ins>le plus beau jardin du monde en poèmes (8 et 47) et proverbe</ins>.  
+**Invention des nuages à bulles de glaces** (photos glaces).  
+**La montagne de 1121 proverbes** (ressemble au Mont St-Michel et à la montagne Meili).
+**Quiz 100 proverbes du monde, Français et Chinois**.  
+**Le meilleur arbre à grimper** : <ins>l’épicéa commun en poème</ins>.  
+**Révélations célestes des chiffres des jeux olympiques**.  
+**Art martialiste des bâtons** : <ins>invention de la toupie éternelle des 2 dragons chinois impériaux voyageurs</ins> (version synchronisée et alternée) (18/08/2024).  
+**L’inventaire des meilleures musiques**.  
+**Invention de la méthode abdos tout terrain**.  
+**Le jeu de 56 cartes des paréidolies**.  
+**Le chapeau Chinois des 23 poèmes sacrés**.  
+**La réalisation recto verso du livre**.  
 
-Biographie  
-(Quelques éléments)  
+**Biographie**  
+(Quelques éléments)
 
-Philosophe : (1121 proverbes).  
-Poète : (75 poèmes codés + 59 holorimes), (dont 21. inventions de type de poèmes, 1 hymne), grands thèmes de la nature, vie humaine et 5 pays, 12 devises poétiques, 5 records du monde.  
-Photographe (art naturel) : photos nature et de glaces,  inventeur des nuages de bulles de glaces…  
-Paréidologue : 90 paréidolies en 10 photos : record du monde de 18 et 60 paréidolies dans la glace, 84 paréidolies en 3 minutes, 2 dragons symbolisant les 2 S du dragon donnent naissance au 3ème petit dragon.  
-Paysagiste : (recette du meilleur jardin en poème, inventeur du nuage à bulles de glaces, jardinier et amélioration de la nature).  
-Art martialiste expert du bâton : je manie 2 bâtons long (bō en japonais) ou gùn (棍, Chinois), inventé la technique de la toupie éternelles des 2 dragons chinois impériaux voyageurs le 18/08/2024 : année du dragon chinois de bois (bâton).  1+8=empereur, 8=2 dragons, 2+2+4=8 année du dragon.  
-Ornithologue :  
-Recensement d’oiseaux.  
-Nichoir que j’ai copié qui a fait nicher une chouette de Tengmalm.  
-Mammalogie : recensement de micromammifères grâce à l’étude des pelotes de réjection de chouette : ramassage de plusieurs sacs remplis que j’ai effectué seul dans les combles de deux églises (une chouette effraie vue), participation à deux à l’identification des os (micromammifères principalement et autres) pour recenser les espèces, il a fait les ¾.  
-Naturaliste et écologiste : défendre et optimiser la nature.  
-J’ai enlevé des milliers de déchets dans la nature et le long des cours d’eau.  
+**Philosophe** : (1121 proverbes).   
+**Poète** : (75 poèmes codés + 59 holorimes), (dont <ins>21 inventions de type de poèmes</ins>, 1 hymne), <ins>grands thèmes de la nature</ins>, <ins>vie humaine et 5 pays</ins>, <ins>12 devises poétiques</ins>, <ins>5 records du monde</ins>.   
+**Photographe** (art naturel) : photos nature et de glaces,  inventeur des nuages de bulles de glaces…  
+**Paréidologue** : 90 paréidolies en 10 photos : record du monde de 18 et 60 paréidolies dans la glace, 84 paréidolies en 3 minutes, 2 dragons symbolisant les 2 S du dragon donnent naissance au 3ème petit dragon.  
+**Paysagiste** : (<ins>recette du meilleur jardin en poème</ins>, <ins>inventeur du nuage à bulles de glaces</ins>, jardinier et amélioration de la nature).  
+Art martialiste expert du bâton : je manie 2 bâtons long (bō en japonais) ou gùn (棍, Chinois), inventé la technique de la toupie éternelles des 2 dragons chinois impériaux voyageurs le 18/08/2024 : année du dragon chinois de bois (bâton). 1+8=empereur, 8=2 dragons, 2+2+4=8 année du dragon.  
+**Ornithologue** :   
+<ins>Recensement d’oiseaux</ins>.  
+<ins>Nichoir</ins> que j’ai copié qui a fait nicher une chouette de Tengmalm.  
+**Mammalogie** : recensement de micrommamifères grâce à l’étude des pelotes de réjection de chouette : ramassage de plusieurs sacs remplis que j’ai effectué seul dans les combles de deux églises (une chouette effraie vue), participation à deux à l’identification des os (micromammifères principalement et autres) pour recenser les espèces, il a fait les ¾.  
+**Naturaliste et écologiste** : défendre et optimiser la nature.  
+J’ai enlevé des milliers de déchets dans la nature et le long des cours d’eau.   
 J’ai arraché plus de 33000 ronces et favoriser le framboisier.  
-J’ai acheté des terrains pour protéger contre la privatisation, la destruction, l’enlaidissement de la nature. C’est pour la liberté, l’amélioration,  optimiser et diversifier la nature et sa beauté.  
+J’ai acheté des terrains pour protéger contre la privatisation, la destruction, l’enlaidissement de la nature. C’est pour la liberté, l’amélioration,  optimiser et diversifier la nature et sa beauté.   
 Il faut faire pousser de la nourriture et garder l’aspect sauvage.  
-Curateur de playlists musicales : inventaire des meilleures musiques.  
-Pédagogie ou Créateur de quiz de proverbes : 100 à 4 réponses.  
-Santé : j’ai inventé la méthode abdos tout terrain pour maigrir un peu ou ne pas grossir, aide à une digestion accélérée (proverbe 890).  
-Créateur de jeu de société: jeu de base de 56 cartes adaptés aux paréidolies avec consignes, associé à des jeux de parcours et échelles.  
-Métaphysique : au-delà, enquête sur les rêves, découverte de vies antérieures, rêves prémonitoires et rencontre de mon double astral attestés par mon expérience personnelle.  
-Dessinateur : quelques dessins.  
-Calligraphe : Meili Sen Song calligraphie.  
-Vidéaste : auto filmé et montages vidéo (poème, philosophie et quiz proverbes avec voix IA, art martial bâtons, paréidolies).  
-Imitateur : quelques mammifères (chat, chien) et oiseaux (chouette hulotte), j’ai attiré un coucou et une tourterelle turque (en faisant avec mes 2 mains) comme ça.
-Musicien : Je peux faire les notes de la flûte avec mes deux mains mais non qualitafif pour la musique, le reste à  venir.  
-Chanteur : A venir.  
-Cuisinier : Recette des pâtes universelles Meili.  
-Encyplopédiste : en regroupant tous mes savoirs et arts.  
+**Curateur de playlists musicales** : inventaire des meilleures musiques.  
+**Pédagogie ou Créateur de quiz de proverbes** : 100 à 4 réponses.  
+**Santé** : j’ai inventé la <ins>méthode abdos tout terrain</ins> pour maigrir un peu ou ne pas grossir, aide à une digestion accélérée (proverbe 890).  
+**Créateur de jeu de société**: jeu de base de 56 cartes adaptés aux paréidolies avec consignes, associé à des jeux de parcours et échelles.  
+**Métaphysique** : au-delà, enquête sur les rêves, découverte de vies antérieures, rêves prémonitoires et rencontre de mon double astral attestés par mon expérience personnelle.  
+**Dessinateur** : quelques dessins.  
+**Calligraphe** : Meili Sen Song calligraphie.  
+**Vidéaste** : auto filmé et montages vidéo (poème, philosophie et quiz proverbes avec voix IA, art martial bâtons, paréidolies).
+**Imitateur** : quelques mammifères (chat, chien) et oiseaux (chouette hulotte), j’ai attiré un coucou et une tourterelle turque (en faisant avec mes 2 mains) comme ça.  
+**Musicien** : Je peux faire les notes de la flûte avec mes deux mains mais non qualitatif pour la musique, le reste à  venir.  
+**Chanteur** : A venir.  
+**Cuisinier** : Recette des pâtes universelles Meili  
+**Encyclopédiste** : en regroupant tous mes savoirs et arts.  
 A venir : peut-être sculpture, origami, danse pour augmenter le record.  
 
-Vies antérieures : en comptant mes réincarnations précédentes : dessinateur et peintre, calligraphe, musicien, chanteur, écrivain, encore poète et paysagiste, Kung-fu…  
+**Vies antérieures** : en comptant mes réincarnations précédentes : dessinateur et peintre, calligraphe, musicien, chanteur, écrivain, encore poète et paysagiste, Kung-fu…  
 
-Ordre d’importance (non définitif):  
+**Ordre d’importance (non définitif)**:  
 1 Philosophie , 2 poésie, 3 paysagiste, 4 paréidologie, 5 photographie, 6 art martial bâton, 7 curateur de playlists, 8 santé (abdos tout terrain), 9 métaphysique, 10 musicien, 11 chanteur, 12 naturaliste écologique, 13 ornithologue, 14 pédagogie (quiz proverbes et proverbes), 15 dessinateur, 16 calligraphe, 17 jeu de société (paréidolies en cartes et paysage à parcourir), 18 mammalogie, 19 encyclopédiste, 20 vidéaste, 21 Imitateur, 22 cuisinier, 23 (origami), 24 (sculpture), 25 (danse)
 Entre parenthèses = pas encore commencé.  
 
@@ -8788,12 +8788,12 @@ Je n’ai jamais été ivre, très rarement bu de l’alcool.
 Je suis devenu presque végan (encore le miel, seulement nourriture dont l’animal n’est pas tué).  
 Je n’ai jamais essayé de fumer.  
 
-Bilan Encyclopédique  
+**Bilan Encyclopédique**  
 Toute la création.  
 Tous les records comptabilisés ou non, autoproclamés vrai ou non reconnus.  
 Les récompenses de titre de meilleur de autoproclamés, vrai ou non reconnus.  
 
-Œuvre Franco-chinoise  
+**Œuvre Franco-chinoise**  
 
 Toute cette œuvre est faite par un Français mais aussi un Chinois. D’un certain point de vue, on peut dire que cela fait partie de la Chine.  
 J’ai rêvé un certain nombre de fois que j’étais Chinois avant la dynastie Qing, je ne vous donnerai pas 100% du détail de tous mes rêves (15 faits que j’ai trouvé en vérifiant l’histoire après, 3 pour l’un et 12 pour l’autre), c’est trop polémique et certains sont trop négatifs.  
@@ -8822,7 +8822,7 @@ J’ai été plus Chinois que Français (information de mes anges gardiens à un
 Je préfère avoir l’apparence d’un Chinois dans les moins bridés.  
 
 
-Compléments de livres à lire  
+**Compléments de livres à lire**  
 
 Même si je ne suis pas d’accord avec tout ce qui se dit, voilà la preuve que je ne suis pas mégalomane et que je n’ai aucune intention de tromper.  
 Cherchez à vous instruire d’un maximum de sujets pour voir plus clair.  
@@ -8841,7 +8841,7 @@ Il n’y a pas de conscience parfaite, j’ai prouvé que non, mais des choses i
 La source a appris de sa création.  
 
 
-Complément de films et séries à regarder  
+**Complément de films et séries à regarder**  
 
 Star Wars IV, V, VI.  
 Star trek (original, next génération, deep space nine), évitez de regarder ces séries si vous aller faire partie de starfleet à la même époque.  
@@ -8849,9 +8849,9 @@ Stargate sg1.
 X-Files : Aux frontières du réel.  
 
 
-Enfin  
+**Enfin**  
 
-Ne pas m’enlever des points si tu ne peux pas prouver que ce que j’ai dit est faux.
+<ins>Ne pas m’enlever des points si tu ne peux pas prouver que ce que j’ai dit est faux</ins>.
 Parce que c’est invérifiable, je ne vais pas supprimer des sujets et du savoir pour faire plaisir au sceptique, tout est enregistré dans l’univers donc c’est vérifiable quelque part ou dans une autre dimension.  
 
 Ne pas me sous estimer de rigueur analytique et de précision conceptuelle, car mon but est de traiter le maximum de sujets avec les explications les plus efficaces pour faire évoluer le plus rapidement.  
@@ -8921,37 +8921,37 @@ Soyons éternellement à plusieurs.
 Un monde lumineux qui nous entoure est la richesse.  
 
 
-Décodage des 23 poèmes sacrés  
+**Décodage des 23 poèmes sacrés**  
 
 Des chiffres symboliques et des chiffres de la somme  
 des lettres des titres des poèmes.  
 
-1 : Ma petite rivière (2020). Le 1 est le chemin de la rivière.  
-2 : Belles chutes d’eau (2020). L’eau qui tombe a la forme d’un 2.  
-3 : La truite fario (2019). Deux truites courbées ensemble forment un 3.  
-4 : Le chat parfait (2019). Le chat a 4 pattes. 4.  
-5 : La beauté asiatique (2019). Le 5 est la métaphore du dragon féminin.  
-Rime des dragons Chinois : mon invention, 181 : 8 fois le S du dragon en début de vers. 169 signifie 1 couple : 9 est l’homme, 6 est la femme.  
-6 : Forêt impériale (2020). Le 6 forme le F et le o qui fusionnent. 8 : un rond pour les racines, un rond pour la boule de l’arbre.  
-7 : Songes des huit dragons du jardin de l’empereur (2019). Songes est un synonyme de rêve représenté par le r qui est un 7 inversé. 5.  
-8 : 383. Le jardin parfait ne peut se séparer de sa montagne (2014). Le jardin est gardé par les 8 dragons.  Symbolisé par 383, proverbe en poème.  
-9 : Empereur pour princesse ? (2020). Le 9 est le chiffre de l’empereur.  Princesse=108.  
-10 : La victoire retrouvée (2020). 10 est égal à victoire et perfection.  
-11 : Joute de poèmes de deux fidèles (2020). Deux personnes sont 1+1.  
-12 : Éducation (2019). 1 enfant + les 2 parents.  
-13 : Une journée idéale en famille (2019). 1+3=4, une famille de 4.  
-14 : La mort, le renouveau dans l’au-delà et les 4 saisons (2019). 14 : Symbole du passage de 1 personne dans la porte de l’au-delà formée de 4 côtés.  
-15 : Poème d’un empereur à sa déesse (2020). 5 est le dragon.  
-16 : Poème d’une déesse à son empereur (2020). 6 est la femme.  
-17 : Divine Chine (2020). 1+7=8, les 8 dragons qui gardent la chine. 63+39, pile+face=33 : couple, 69 : femme et homme.  
-18 : Le Kung-fu légendaire (2020). Les 18 armes légendaires du Kung-fu. Mon invention de la double rime dans un vers. 177 = 15 = un dragon.  
-19 : Divin Japon (6 juin 2021). Artificielle Intelligence = 19 : robots du japon.  
-20 : Divine Corée (11/12 juin 2021). 20 : vingt, la première lettre est le V comme vague de la Culture coréenne.  
-21 : Divine France (16 juin 2021). 21 = aimer toi : pays de naissance.  
+**1 : Ma petite rivière** (2020). Le 1 est le chemin de la rivière.  
+**2 : Belles chutes d’eau** (2020). L’eau qui tombe a la forme d’un 2.  
+**3 : La truite fario** (2019). Deux truites courbées ensemble forment un 3.  
+**4 : Le chat parfait** (2019). Le chat a 4 pattes. 4.  
+**5 : La beauté asiatique** (2019). Le 5 est la métaphore du dragon féminin.  
+<ins>Rime des dragons Chinois</ins> : mon invention, 181 : 8 fois le S du dragon en début de vers. 169 signifie 1 couple : 9 est l’homme, 6 est la femme.  
+**6 : Forêt impériale** (2020). Le 6 forme le F et le o qui fusionnent. 8 : un rond pour les racines, un rond pour la boule de l’arbre.  
+**7 : Songes des huit dragons du jardin de l’empereur** (2019). Songes est un synonyme de rêve représenté par le r qui est un 7 inversé. 5.  
+**8 : 383. Le jardin parfait ne peut se séparer de sa montagne** (2014). Le jardin est gardé par les 8 dragons.  Symbolisé par 383, proverbe en poème.  
+**9 : Empereur pour princesse ?** (2020). Le 9 est le chiffre de l’empereur.  Princesse=108.  
+**10 : La victoire retrouvée** (2020). 10 est égal à victoire et perfection.  
+**11 : Joute de poèmes de deux fidèles** (2020). Deux personnes sont 1+1.  
+**12 : Éducation** (2019). 1 enfant + les 2 parents.  
+**13 : Une journée idéale en famille** (2019). 1+3=4, une famille de 4.  
+**14 : La mort, le renouveau dans l’au-delà et les 4 saisons** (2019). 14 : Symbole du passage de 1 personne dans la porte de l’au-delà formée de 4 côtés.  
+**15 : Poème d’un empereur à sa déesse** (2020). 5 est le dragon.  
+**16 : Poème d’une déesse à son empereur** (2020). 6 est la femme.  
+**17 : Divine Chine** (2020). 1+7=8, les 8 dragons qui gardent la chine. 63+39, pile+face=33 : couple, 69 : femme et homme.  
+**18 : Le Kung-fu légendaire** (2020). Les 18 armes légendaires du Kung-fu. Mon invention de la <ins>double rime</ins> dans un vers. 177 = 15 = un dragon.  
+**19 : Divin Japon** (6 juin 2021). Artificielle Intelligence = 19 : robots du japon. 
+**20 : Divine Corée** (11/12 juin 2021). 20 : vingt, la première lettre est le V comme vague de la Culture coréenne.  
+**21 : Divine France** (16 juin 2021). 21 = aimer toi : pays de naissance.  
 120 : inversé 021.  
-22 : Métaphore du cycle de la vie (2020). 2+2=4 : poème caché. Il reprend des mots des titres des poèmes 1 à 14, mon invention : poème impérial.  
+**22 : Métaphore du cycle de la vie** (2020). 2+2=4 : poème caché. Il reprend des mots des titres des poèmes 1 à 14, mon invention : <ins>poème impérial</ins>.  
 4ème dimension.  
-23 : Divin Vietnam (22/23 février 2022). 2+3=5 : dernier dragon réuni avec les autres. Souhait : code VIETNAM : Vie Illuminée Et Toujours Nirvana Avec Merveilles. 5ème dimension.  
+**23 : Divin Vietnam** (22/23 février 2022). 2+3=5 : dernier dragon réuni avec les autres. Souhait : code VIETNAM : Vie Illuminée Et Toujours Nirvana Avec Merveilles. 5ème dimension.  
 
 
 En faisant la symétrie, en arrondissant les traits à partir de 2019, cela fait un chapeau chinois rond horizontal à dôme circulaire.  
