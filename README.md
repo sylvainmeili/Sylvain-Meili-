@@ -7071,12 +7071,12 @@ Duo
 Japon  
 
 Album/artistes  
-Saint seiya (ost album 80-90's composée par Seiji Yokoyama 17/03/1935-08/07/2017), Masami Kurumada  06/12/1953 : auteur et dessinateur.  
-Kazuko Kawashima  (chanteuse), 2 : Inside a dream, Aria of the tree, Seven senses, Tranquility, 3 : Yume no naka ni, Athena to sainttachi, 5 : Ending under the world tree, The goddess’ death, The dukarion deluge, 7 : The call of the mermaid.  
-Nobuo Yamada : 20/01/1964 (chanteur), Pegasus fantasy (TV Size S.E.MIX), 
+<ins>**Saint seiya**<ins> (ost album 80-90's composée par <ins>Seiji Yokoyama</ins> 17/03/1935-08/07/2017), <ins>Masami Kurumada</ins>  06/12/1953 : auteur et dessinateur.  
+<ins>Kazuko Kawashima</ins>  (chanteuse), 2 : Inside a dream, Aria of the tree, Seven senses, Tranquility, 3 : Yume no naka ni, Athena to sainttachi, 5 : Ending under the world tree, The goddess’ death, The dukarion deluge, 7 : The call of the mermaid.  
+<ins>Nobuo Yamada</ins> : 20/01/1964 (chanteur), Pegasus fantasy (TV Size S.E.MIX), 
 Hironobu Kageyama : 18/02/1961 (chanteur), Soldier Dream (TV Size S.E.MIX Ver.II), Blue Dream (TVSize).  
 
-Saint seiya Tv Original Soundtrack 1 (1987)  
+*Saint seiya Tv Original Soundtrack 1* (1987)  
 01 : Pegasus Ryuuseiken (Pegasus Fantasy, Eien Blue), 03 : Galaxian Wars, 06 : Goddess's Saint, 09 Sad Brothers, 10 : Era of Legend.  
 Saint seiya TV Origonal Soundtrack 2  
 02 : Inside a Dream, 03 : Warrior of Sagitarius, 04 : Gather! Under Supervision of Athena, 05 Gilde Pegasus, 07 : Aria of the Three, 09 Guidance of Constellation, 10 Athena's Theme, 14 : Seven Senses,  18 : Fight Sanctuary, 19 Tranquility, 20 : Cosmo of Friendship.  
@@ -7090,147 +7090,148 @@ Saint seiya Eternal Edition 6
 04 : Soldier Dream, Blue Dream (Instrumental Arrange), 07 : Legendary God Warriors, 13 : To Walhalla Palace, 20 : Blue Dream, 21 Blue Dream (TVSize).  
 Saint seiya Eternal Edition 7  
 01 : Soldier Dream (TV Size S.E.MIX Ver.II), 03 : The Call of the Mermaid.   
-Bara no nai hanaya (ost album 2008 composée par Yoshimata Ryo né le 06/09/1959).  
-Final fantasy (saga de jeux vidéo composée par Nobuo Uematsu né le 21/03/1959.   
+<ins>Bara no nai hanaya</ins> (ost album 2008 composée par Yoshimata Ryo né le 06/09/1959).  
+<ins>Final fantasy</ins> (saga de jeux vidéo composée par Nobuo Uematsu né le 21/03/1959.   
 Final fantasy (from final fantasy series).  
 Final fantasy 9 (2000) : Melody of lifes (Emiko Shiratori : chanteuse, 16/03/1950).  
 Final fantasy 10 (2001) : Suteki da ne orchestral version (Rikki : Nakano Ritsuki, 19/01/1975). To Zanarkand : avec Yoki Mori au piano.  
-Dragon ball Z : (1989) Shunsuke Kikuchi, 01/11/1931-24/04/2021.  
+<ins>Dragon ball Z</ins> : (1989) Shunsuke Kikuchi, 01/11/1931-24/04/2021.  
 Prologue & Subtitle I. Prologue & Subtitle II. Son Gohan and Piccolo Daimao. Son Goku is the strongest after all! The fearsome Ginyu Special Force. Goodbye Son goku.   Dragon ball makafushigi adventure (instrumental). Peaceful times. Angel. Genkidama.   Battle theme. Theme Vegeta.  
 Akira Toriyama : 05/04/1955, 01/03/2024 est l’auteur et le dessinateur.  
-Samurai shodown 6 : Kennosuke Suemura, Mitsuo Miyamoto, 16-Shogun's Contest (Jounaiminami Plaza Stage I).  
-Zatoichi (2003) : Keiichi Suzuki, 28/08/1951, 11 : Festivo, 15 : Trailer.  
-Schenmue (jeu vidéo) : Takenobue Mitsuyoshi, Shenmue main theme sedge tree + orchestral version (plus longue), 1999. Ryuji Luchi Shenhua (sedge flower), version schenmue 3, 2019.  
+<ins>Samurai shodown 6</ins> : Kennosuke Suemura, Mitsuo Miyamoto, 16-Shogun's Contest (Jounaiminami Plaza Stage I).  
+<ins>Zatoichi</ins> (2003) : Keiichi Suzuki, 28/08/1951, 11 : Festivo, 15 : Trailer.  
+<ins>Schenmue</ins> (jeu vidéo) : Takenobue Mitsuyoshi, Shenmue main theme sedge tree + orchestral version (plus longue), 1999. Ryuji Luchi Shenhua (sedge flower), version schenmue 3, 2019.  
 
 Chanteuses album  
-Yui yoshioka : From me to you (2006), Can't buy my love (2007), I loved yesterday (2008), né le 26/03/1987).  
+<ins>Yui yoshioka</ins> : From me to you (2006), Can't buy my love (2007), I loved yesterday (2008), né le 26/03/1987).  
 Single : Good bye days, 2006. Taiyo no uta version ost, 2006. Tommoray way, 2005. Feel my soul, 2005. Rolling star, 2007.  
 N°1 mondial dans mon classement.  
-Ai kawashima : single best, né le 21/02/1986.  
-C-ute : Queen of j-pop (2013), Airi Suzuki (2005-2017), Mai Hagiwara (2005-2017), Chisato Okai (2005-2017), Maimi Yajima (2005-2017), Saki Nakajima (2005-2017), Megumi Murakami (2005-2006), Kanna Arihara (2006-2009), Erika Umeda (2005-2009).  
+<ins>Ai kawashima</ins> : single best, né le 21/02/1986.  
+<ins>C-ute</ins> : Queen of j-pop (2013), Airi Suzuki (2005-2017), Mai Hagiwara (2005-2017), Chisato Okai (2005-2017), Maimi Yajima (2005-2017), Saki Nakajima (2005-2017), Megumi Murakami (2005-2006), Kanna Arihara (2006-2009), Erika Umeda (2005-2009).  
 
-Ayumi hamazaki : miss understood (2006), 02/10/1978.  
-Aragaki Yui : 11/06/1988, Hug album, 2009.  
-Stéréopony (groupe) : A hydrangea blooms (2009) : Hara guni Narumi (Aimi) (chanteuse, guitare, paroles, composition + Yui Yoshioka), 04/09/1990.  
+<ins>Ayumi hamazaki</ins> : miss understood (2006), 02/10/1978.  
+<ins>Aragaki Yui</ins> : 11/06/1988, Hug album, 2009.  
+<ins>Stéréopony</ins> (groupe) : A hydrangea blooms (2009) : Hara guni Narumi (Aimi) (chanteuse, guitare, paroles, composition + Yui Yoshioka), 04/09/1990.  
 Single : I do it, Shiawaseno Okade Kurashitai.  
 
 Chanteuses single  
-Matsuura Aya : 25/06/1986, Watarasebashi Close up version, the last night 浦亜弥 (2003), Ki ga tsukeba anata, 2005.  
-Ai kawashima : le jour du départ (2013), 川嶋あい__旅立ちの日に・・・(Lyrics).  
-Toaka (十明) : 05/02/2003, Suzume no Tojimari/ すずめの戸締まり, 2022, Paroles : Noda Yojiro, Compositeurs : Jinnouchi Kazuma, Kuwahara Akira, Noda Yojiro. RADWIMPS, Arrangements : RADWIMPS.  
-Kaoru Amane (Sawajiri Erika) : Taiyou No Uta (2006), 08/04/1986.  
-Miwa : Otoshimono - [Juui Dolittle OST 2010] .  
-Alan : 明日への讃歌 ~Orchestra Version~ red cliff Red Cliff ~Shin Sen~ (Japanese version).  
-Egoist (groupe) : interprété par Rondo (groupe), Namae no nai kaibutsu 2012, compositeur : Ryo, Supercell : groupe).  
-Eri Sugai : 06/01/1961-21/12/2016, Konjaku Monogatari (Stories modern and ancient), 2001.  
-Otsuka Ai :  09/09/1982, Momo no Hanabira (2003), Planetarium (Ai am best album).  
-Ikimono Gakari : (groupe), Sakura, (chanteuse : Kiyoe Yoshioka, 29/02/1984),  compositeur et paroles : Mizuno Yoshiki, 17/12/1982), (2006).  
-Kitano kie : 15/03/1991, Sakura saku (サクラサ), 2011, Hanataba, 2010.  
-Flower (groupe) : Rei (Washio Reina : 20/01/1994) Sakura regret 2012.  
-Rin’ : 2 : Sakitama, 5 : Miyabi (instrumental), Jikku album, 2004, Sakura Sakura, 2005.  
-Morning musumé : (groupe), モーニング娘Mikaeri bijin (2014)  .  
-Mariya Nishiuchi : Hello (2016), naissance : 24/12/1993.  
+<ins>Matsuura Aya</ins> : 25/06/1986, Watarasebashi Close up version, the last night 浦亜弥 (2003), Ki ga tsukeba anata, 2005.  
+<ins>Ai kawashima</ins> : le jour du départ (2013), 川嶋あい__旅立ちの日に・・・(Lyrics).
+<ins>Toaka</ins> (十明) : 05/02/2003, Suzume no Tojimari/ すずめの戸締まり, 2022, Paroles : Noda Yojiro, Compositeurs : Jinnouchi Kazuma, Kuwahara Akira, Noda Yojiro. RADWIMPS, Arrangements : RADWIMPS.  
+<ins>Kaoru Amane</ins> (Sawajiri Erika) : Taiyou No Uta (2006), 08/04/1986.  
+<ins>Miwa</ins> : Otoshimono - (Juui Dolittle OST 2010).  
+<ins>Alan</ins> : 明日への讃歌 ~Orchestra Version~ red cliff Red Cliff ~Shin Sen~ (Japanese version).  
+<ins>Egoist</ins> (groupe) : interprété par Rondo (groupe), Namae no nai kaibutsu 2012, compositeur : Ryo, Supercell : groupe).  
+<ins>Eri Sugai</ins> : 06/01/1961-21/12/2016, Konjaku Monogatari (Stories modern and ancient), 2001.  
+<ins>Otsuka Ai</ins> :  09/09/1982, Momo no Hanabira (2003), Planetarium (Ai am best album).  
+<ins>Ikimono Gakari</ins> : (groupe), Sakura, (chanteuse : Kiyoe Yoshioka, 29/02/1984),  compositeur et paroles : Mizuno Yoshiki, 17/12/1982), (2006).  
+<ins>Kitano kie</ins> : 15/03/1991, Sakura saku (サクラサ), 2011, Hanataba, 2010.  
+<ins>Flower</ins> (groupe) : Rei (Washio Reina : 20/01/1994) Sakura regret 2012.  
+<ins>Rin’</ins> : 2 : Sakitama, 5 : Miyabi (instrumental), Jikku album, 2004, Sakura Sakura, 2005.  
+<ins>Morning musumé</ins> : (groupe), モーニング娘Mikaeri bijin (2014)  .  
+<ins>Mariya Nishiuchi</ins> : Hello (2016), naissance : 24/12/1993.  
 Melodies of Life  Final Fantasy IX, composée par Nobuo Uematsu, et interprétée par Emiko Shiratori (jeu vidéo ps1, 2000).  
-Mochida Kaori : 24/03/1978, Swimmy, Kekkon Dekinai Otoko ost, 2006.  
-Momoiro clover z : Monoclo no nippon banzai (musique drôle), Battle an romance album, 2011.  
-Yuikaori : Ogura Yui (15/08/1995), Ishihara Kaori (06/08/1993), Our steady boy (musique drôle), 2010.  
-Ikuta Rira (Lilas Ikuta) : 25/09/2000, The name of life : Spirited away ost, compositeur : Joe Hisaishi, 05/12/1950.  
-Nanase Aikawa : 16/02/1975, 鳥になれたら (5), 恋心 (7) : Paradox (第２集アルバム) album, 1997.  
-Nana Kitade : 02/05/1987, Kanashimi no kizu : Kanashimino kizu, 2005.  
-Okuda Miwako : 13/02/1982, Shizuku : Golden best, 2000. Ame to yume no ato ni, 2003.  
-Hinoi Asuka : 08/01/1991, Asu e no Hikari, 2007.  
-Sakai Noriko : 14/02/1971, Kagami no doresu, Die sterntaler (Zoku hoshi no kinka) ost, 1996.  
-Demon slayer ost :  
-Yejin Jang : Kamado tanjiro no uta (epic orchestral cover : feat Call of silence), compositeur : Masaru Shiina, arrangé et orchestré par Samuel Kim.  
-Akano : Kamado tanjiro no uta (compositeur : Masaru Shiina), Kimetsu no Yaiba), 2019.
-Sorah : Gurenge, epic version (attack of the titan style) (feat unravel – tokyo ghoul), arrangé et orchestré par Samuel Kim.  
-Dasbee : Wasureji no kotonoha, 2022.  
-Uru : Kokoroe, générique de Kazama Kimichika ost : Kyoujou zero, 2023.  
-Matsuda Seiko : 10/03/1962, Ruriiro no Chikyuu, Bible pink and blue special edition, 1986.  
+<ins>Mochida Kaori</ins> : 24/03/1978, Swimmy, Kekkon Dekinai Otoko ost, 2006.  
+<ins>Momoiro clover z</ins> : Monoclo no nippon banzai (musique drôle), Battle an romance album, 2011.  
+<ins>Yuikaori</ins> : Ogura Yui (15/08/1995), Ishihara Kaori (06/08/1993), Our steady boy (musique drôle), 2010.  
+<ins>Ikuta Rira</ins> (Lilas Ikuta) : 25/09/2000, The name of life : Spirited away ost, compositeur : Joe Hisaishi, 05/12/1950.  
+<ins>Nanase Aikawa</ins> : 16/02/1975, 鳥になれたら (5), 恋心 (7) : Paradox (第２集アルバム) album, 1997.  
+<ins>Nana Kitade</ins> : 02/05/1987, Kanashimi no kizu : Kanashimino kizu, 2005.  
+<ins>Okuda Miwako</ins> : 13/02/1982, Shizuku : Golden best, 2000. Ame to yume no ato ni, 2003.  
+<ins>Hinoi Asuka</ins> : 08/01/1991, Asu e no Hikari, 2007.  
+<ins>Sakai Noriko</ins> : 14/02/1971, Kagami no doresu, Die sterntaler (Zoku hoshi no kinka) ost, 1996.  
+<ins>Demon slayer</ins> ost :  
+<ins>Yejin Jang</ins> : Kamado tanjiro no uta (epic orchestral cover : feat Call of silence), compositeur : <ins>Masaru Shiina</ins>, arrangé et orchestré par <ins>Samuel Kim</ins>.  
+<ins>Akano</ins> : Kamado tanjiro no uta (compositeur : Masaru Shiina), Kimetsu no Yaiba), 2019.
+<ins>Sorah</ins> : Gurenge, epic version (attack of the titan style) (feat unravel – tokyo ghoul), arrangé et orchestré par Samuel Kim.  
+<ins>Dasbee</ins> : Wasureji no kotonoha, 2022.  
+<ins>Uru</ins> : Kokoroe, générique de Kazama Kimichika ost : Kyoujou zero, 2023.  
+<ins>Matsuda Seiko</ins> : 10/03/1962, Ruriiro no Chikyuu, Bible pink and blue special edition, 1986.  
 
 Instrumental  
-Poison (instrumental), Great teacher onizuka ost, 1998, composé par Shinjiro Inoue, 1407/1967.  
-Genji dawn of the samuraî main theme, (jeu vidéo ps2 2005), Yasuharu Takanashi, 13/04/1964.  
-Heaven and hearth (ost 1993 par kitaro : Masanori Takahashi : 04/02/1953).  
-First love reasonless love (instrumental) (majo no joken ost 1999), chanteuse : Utada hikaru (naissance : 19/01/1983), compositeur : Zen nishizawa, youzuke, parole youzuke.  
-Byakuya wo iku (byaku yakou (白夜行)  2006 ost, composé par Kono Shin : 11/11/1964.
-赤い糸-メインテーマ : Akai ito ost 2008 composé par Yugo Kanno, 05/06/1977.   
-Merry christhmas Mr. Lawrence, Ryuichi Sakamoto, 17/01/1952, film 1983.  
-Yoriichi theme, epic version (extended theme) Demon slayer ost composé par Masaru Shiina et Yuki Kajiura, arrangé et orchestré par Samuel Kim.  
-Hiromitsu Agatsuma : 27/07/1973, Sono otoko main thème, 2010.  
+<ins>Poison</ins> (instrumental), Great teacher onizuka ost, 1998, composé par Shinjiro Inoue, 1407/1967.  
+<ins>Genji dawn of the samuraî</ins> main theme, (jeu vidéo ps2 2005), Yasuharu Takanashi, 13/04/1964.  
+<ins>Heaven and hearth</ins> (ost 1993 par kitaro : Masanori Takahashi : 04/02/1953). 
+<ins>First love reasonless love</ins> (instrumental) (majo no joken ost 1999), chanteuse : Utada hikaru (naissance : 19/01/1983), compositeur : Zen nishizawa, youzuke, parole youzuke.  
+<ins>Byakuya wo iku</ins> (byaku yakou (白夜行)  2006 ost, composé par Kono Shin : 11/11/1964.
+<ins>Akai ito</ins> ost 2008 赤い糸-メインテーマ : composé par Yugo Kanno, 05/06/1977.  
+<ins>Merry christhmas Mr. Lawrence</ins>, Ryuichi Sakamoto, 17/01/1952, film 1983.  
+<ins>Yoriichi theme</ins>, epic version (extended theme) Demon slayer ost composé par Masaru Shiina et Yuki Kajiura, arrangé et orchestré par Samuel Kim.  
+<ins>Hiromitsu Agatsuma</ins> : 27/07/1973, Sono otoko main thème, 2010.  
 
 Vietnam  
-Xuan mai né le 05/01/1995 : Giac Mo Tuyet Voi, Một Ngày Của Nó, (Ngay Xua Qua Roi) Xuan Mai hat bai nguoi lon roi, Cò Lớn - Xuân Mai (With Lyric and Mp3), Cây Sao Giấy, Nghĩa Mẹ, Ca Nhạc Thiếu Nhi Hay.  
-Nguyen Thuy Chi (Chi pu) : 14/06/1993, SHH! CHỈ TA BIẾT THÔI (Chị Chị Em Em OST), 2022.  
-Esther Lu’u (Hari Won) : origine coréenne, 22/06/1985, Ahn Cu Di Di, version normal et remix dance version : 1minute56, 2016.  
-Tran Thi Dung (Juky San) : 14/01/1998, Thien Ha Huru Tinh Nhan, Than Dieu Dai Hiep 1995 ost, 2020.  
-Nguyen Hoai Bao Ahn (Bao Ahn) : 03/09/1992, Ai khoc Noi Dau Nay, 2018.  
-Bui Thi Bich Phuong (Bich Phuong) : 30/09/1989, Ken Ca Chon Anh, 2018.  
-Thuy Tien : 12/01/1972, Chot la noi dau, 2017.  
+<ins>Xuan mai</ins> né le 05/01/1995 : Giac Mo Tuyet Voi, Một Ngày Của Nó, (Ngay Xua Qua Roi) Xuan Mai hat bai nguoi lon roi, Cò Lớn - Xuân Mai (With Lyric and Mp3), Cây Sao Giấy, Nghĩa Mẹ, Ca Nhạc Thiếu Nhi Hay.  
+<ins>Nguyen Thuy</ins> Chi (Chi pu) : 14/06/1993, SHH! CHỈ TA BIẾT THÔI (Chị Chị Em Em OST), 2022.  
+<ins>Esther Lu’u</ins> (Hari Won) : origine coréenne, 22/06/1985, Ahn Cu Di Di, version normal et remix dance version : 1minute56, 2016.  
+<ins>Tran Thi Dung</ins> (Juky San) : 14/01/1998, Thien Ha Huru Tinh Nhan, Than Dieu Dai Hiep 1995 ost, 2020.  
+<ins>Nguyen Hoai Bao Ahn</ins> (Bao Ahn) : 03/09/1992, Ai khoc Noi Dau Nay, 2018.  
+<ins>Bui Thi Bich Phuong</ins> (Bich Phuong) : 30/09/1989, Ken Ca Chon Anh, 2018.  
+<ins>Thuy Tien</ins> : 12/01/1972, Chot la noi dau, 2017.  
 
 Thailande  
-Kiss me five (groupe): Mild (07/04/1993), Gail (Natcha Eksangkul : 16/10/1994), Pakakanya Charoenyos), (30/03/1995), Maylada Susri (04/06/1996), sensitive (Wai to khwam rusuek), 2010.  
-Ink Waruntorn Paonil (อิ้งค์ วรันธร เปานิล) : 23/02/1994, ถ้าเธอรักใครคนหนึ่ง, OST Love Destiny The Movie, 2022.  
-JinNoi (จินน้อย) : ผมเอาคนนี้นะ (je prends cette personne), reprise (cover) de PORZAX : 2021, ไม่มองไม่ได้ (je ne peux pas regarder, je ne peux pas) reprise (cover) de P.A.P BEAT BAND feat.9frvme : 2021.  
-Bell 玲惠 (Ling Hui) : reprise en 2022 (cover) de I Like You ชอบเธออะ PtrpStudio, 2022. Instrumental  
-Dark Blue Kiss OST Opening, 2019.  
+<ins>Kiss me five</ins> (groupe): Mild (07/04/1993), Gail (Natcha Eksangkul : 16/10/1994), Pakakanya Charoenyos), (30/03/1995), Maylada Susri (04/06/1996), sensitive (Wai to khwam rusuek), 2010.  
+<ins>Ink Waruntorn Paonil</ins> (อิ้งค์ วรันธร เปานิล) : 23/02/1994, ถ้าเธอรักใครคนหนึ่ง, OST Love Destiny The Movie, 2022.  
+<ins>JinNoi</ins> (จินน้อย) : ผมเอาคนนี้นะ (je prends cette personne), reprise (cover) de PORZAX : 2021, ไม่มองไม่ได้ (je ne peux pas regarder, je ne peux pas) reprise (cover) de P.A.P BEAT BAND feat.9frvme : 2021.  
+<ins>Bell</ins> 玲惠 (Ling Hui) : reprise en 2022 (cover) de I Like You ชอบเธออะ PtrpStudio, 2022. 
+Instrumental  
+<ins>Dark Blue Kiss</ins> OST Opening, 2019.  
 
 Myanmar (Birmanie)  
 
-Htet Thiri : 19/01/2002, Shae sat yan ma shi, version 3minutes22, 2019.  
-L Sai Zi : Moe Yar Thi Ttae.  
-Naa : Mhar pyan tal, reprise (cover) de Thir Zar Maw, chanson de Mhar Pyan Tal composé par Min Chit Thu, 2024.  
+<ins>Htet Thiri</ins> : 19/01/2002, Shae sat yan ma shi, version 3minutes22, 2019.  
+<ins>L Sai Zi</ins> : Moe Yar Thi Ttae.  
+<ins>Naa</ins> : Mhar pyan tal, reprise (cover) de Thir Zar Maw, chanson de Mhar Pyan Tal composé par Min Chit Thu, 2024.  
 
 Philippines  
-Salidummay, Danum (Water), 2010.  
+<ins>Salidummay</ins>, Danum (Water), 2010.  
 
 Laos  
 
-Nutdao : นะหน้าทอง (Na Na Thong), โจอี้ ภูวศิษฐ์ reprise (cover) de Joey Phuwasit, 2022.  
+<ins>Nutdao</ins> : นะหน้าทอง (Na Na Thong), โจอี้ ภูวศิษฐ์ reprise (cover) de Joey Phuwasit, 2022.  
 
 Cambodge  
 
-Bee Emm : langue Kmer, មើលបងយូៗ ដូចសមនឹងអូន l (Regarde-toi longtemps, comme si tu me correspondais), reprise (cover) de Sour Botrithy avec Kung Chhingken 2022.  
+<ins>Bee Emm</ins> : langue Kmer, មើលបងយូៗ ដូចសមនឹងអូន l (Regarde-toi longtemps, comme si tu me correspondais), reprise (cover) de Sour Botrithy avec Kung Chhingken 2022.  
 លក់គោយន្ (vendre des vaches), reprise (cover) de Noly records, 2021.  
 ឃើញត្រង់ណា - ត្រង់ណាថាចាស់ l (voir où, où vieux), reprise (cover) composé par Sour Botrithy (chanteur) avec Kung Chhingken (chanteur),  2022.  
 
 Indonésie  
 
-Ghea Indrawari : 10/03/1998, album Trending Terbaru.  
+<ins>Ghea Indrawari</ins> : 10/03/1998, album Trending Terbaru.  
 Chansons : Jiwa Yang Bersedih, Oh Tuhan ! 2023.  
-Nisa Fauzia : Tapi bohong, 2019.  
+<ins>Nisa Fauzia</ins> : Tapi bohong, 2019.  
 
 Chanteurs asiatiques  
 
 Japon  
-Takamashi Sorimashi : 19/12/1973, Poison, Great teacher Onisuka (GTO) ost, (1998).  
-Yamashita Tatsuro : 04/02/1953, Zutto issho sa, Bara no nai hanaya ost, 2008.  
-Nobuo Yamada : 20/01/1964 (chanteur), Pegasus fantasy.  
-Hironobu Kageyama : 18/02/1961 (chanteur), Soldier Dream (TV Size S.E.MIX Ver.II), Blue Dream (TVSize).  
+<ins>Takamashi Sorimashi</ins> : 19/12/1973, Poison, Great teacher Onisuka (GTO) ost, (1998).  
+<ins>Yamashita Tatsuro</ins> : 04/02/1953, Zutto issho sa, Bara no nai hanaya ost, 2008.  
+<ins>Nobuo Yamada</ins> : 20/01/1964 (chanteur), Pegasus fantasy.  
+<ins>Hironobu Kageyama</ins> : 18/02/1961 (chanteur), Soldier Dream (TV Size S.E.MIX Ver.II), Blue Dream (TVSize).  
 
 Corée  
-Park Jin Young : Park Jin Yeon, 22/09/1994, Can’t forget (If) : Dream hight ost drama (2011). Artist : Gelly Hoo, album The sword legend (music inspired by the film).   
-Kim So Hyun : 16/02/1988, Dream, Dream hight ost drama, 2011.  
-Traxx : (groupe, Typhoon of the Rose Attack on X-Mas), Cold Rain (chanteur : Typhoon Jay : Kim Kyun-woo, 08/04/1983), The first album : Cold rain 2006), Embrace one’s soul, (2006), Find the way 2007.  
-Huh Hak : 15/11/1984, One person de Big ost drama, 2012.  
-SHINHWA : 4, Once in a lifetime, State of the art album, 2006.  
+<ins>Park Jin Young</ins> : Park Jin Yeon, 22/09/1994, Can’t forget (If) : Dream hight ost drama (2011). Artist : Gelly Hoo, album The sword legend (music inspired by the film).   
+<ins>Kim So Hyun</ins> : 16/02/1988, Dream, Dream hight ost drama, 2011.  
+<ins>Traxx</ins> : (groupe, Typhoon of the Rose Attack on X-Mas), Cold Rain (chanteur : Typhoon Jay : Kim Kyun-woo, 08/04/1983), The first album : Cold rain 2006), Embrace one’s soul, (2006), Find the way 2007.  
+<ins>Huh Hak</ins> : 15/11/1984, One person de Big ost drama, 2012.  
+<ins>SHINHWA</ins> : 4, Once in a lifetime, State of the art album, 2006.  
 Eric Mun (Leader, Rap) (1998 -), Mun Jeong Hyeok, 16/02/1979.  
 M Lee Min Woo (Chant, Danse, Chorégraphe) (1998 -), Lee Min Wu, 28/07/1979. Kim Dong Wan (Chant) (1998 -), 21/11/1979. Shin Hye Sung (Chanteur principal) (1998 -), Jeong Pil Gyo, 27/11/1979. Jun Jin (Chant, Rap, Danse) (1998 -), Park Chung Jae, 19/08/1980. Andy (SHINHWA) (Rap, Maknae) (1998 -), Lee Seon Ho, 21/01/1981.  
-Epik High : (groupe), fan, Remapping the human soul (album 2007).  
-Son Ho Young : Andrew Son, 36/03/1980. Crying, Yes album, 2006.  
-F.T.island (groupe): Love sick, 1st album Cheerful sensibility, 2007.  
-Shin Seung Hun : 21/03/1966, I believe, My sassy girl ost 2001.  
-Kim Jong Kook : 25/04/1976, Saying i love you : Fourth letter album, 2006.  
-Im Tae Kyung : 04/07/1973, 처음 그 때처럼 : cheoeum geu ttaecheoleom (memory of love ou Like the fisrt time), Jumong ost, 2006.  
-Lim Hyunsik : 07/03/1992, See the light (When the phone rings ost 2024), parole : Kinsha (Kim Seo a), compositeur : Allthou (06/03/1992), Kim Su hyeon.  
+<ins>Epik High</ins> : (groupe), fan, Remapping the human soul (album 2007).  
+<ins>Son Ho Young</ins> : Andrew Son, 36/03/1980. Crying, Yes album, 2006.  
+<ins>F.T.island</ins> (groupe): Love sick, 1st album Cheerful sensibility, 2007.  
+<ins>Shin Seung Hun</ins> : 21/03/1966, I believe, My sassy girl ost 2001.  
+<ins>Kim Jong Kook</ins> : 25/04/1976, Saying i love you : Fourth letter album, 2006. 
+<ins>Im Tae Kyung</ins> : 04/07/1973, 처음 그 때처럼 : cheoeum geu ttaecheoleom (memory of love ou Like the fisrt time), Jumong ost, 2006.  
+<ins>Lim Hyunsik</ins> : 07/03/1992, See the light (When the phone rings ost 2024), parole : Kinsha (Kim Seo a), compositeur : Allthou (06/03/1992), Kim Su hyeon.  
 
 Chine  
-Nicky Wu : 31/10/1970, Liang Zhu, Butterfly lovers ost, 1994. Theme, Li houzhu Zhao kuang yin ost, 2006.  
-Hu Ge : 20/09/1982, Nirvana in fire ost, When the wind blows (2015).  
-Lu Runze : 盧潤澤, 土坡上的狗尾草, L’herbe à queue de chien ur la pente, 2024.  
+<ins>Nicky Wu</ins> : 31/10/1970, Liang Zhu, Butterfly lovers ost, 1994. Theme, Li houzhu Zhao kuang yin ost, 2006.  
+<ins>Hu Ge</ins> : 20/09/1982, Nirvana in fire ost, When the wind blows (2015).  
+<ins>Lu Runze</ins> : 盧潤澤, 土坡上的狗尾草, L’herbe à queue de chien ur la pente, 2024.  
 
 Kazakhstan  
-Dimash Qudaibergen (Dinmukhammed Qanatuly Qudaibergenov Aitbaev) : kazakhstan, 24/05/1994, The meaning of eternity (paroles : Yu Jiang, compositeur : Sa Dingding), 2018.  
+<ins>Dimash Qudaibergen</ins> (Dinmukhammed Qanatuly Qudaibergenov Aitbaev) : kazakhstan, 24/05/1994, The meaning of eternity (paroles : Yu Jiang, compositeur : Sa Dingding), 2018.  
 
 Musique générale  
 
