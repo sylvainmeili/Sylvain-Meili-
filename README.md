@@ -3336,7 +3336,7 @@ Je critique des théories et tout ce qui ne me plaît pas.
 (Idée non vérifiée d’une supposition théorique que je propose au créateur et dont je suis dans le doute à cause de contradictions dites par certains et même dans le livre d’Urantia). La voie du milieu, rester dans l’éternité du meilleur sans être remis à zéro.  
 Si l’univers meurt, changer d’univers sans remise à zéro, en espérant qu’ils ne font pas le big bang (selon certains) inverse ou fin d’un univers en même temps, il semble qu’il y a 7 univers autour de l’univers du créateur central (source qui ne peut pas prendre forme) au milieu et un dieu pour chaque autre univers (qui peut prendre forme) voir aussi « Le livre d’Urantia » (à vous de faire votre avis), la fusion de conscience à la moitié serait le compromis de ne pas redescendre au plus bas. Si dans le simulateur d’avenir du créateur, si ça ne marche pas et crée de la torture, ce n’est pas la peine d’essayer. On devrait pouvoir faire un téléchargement automatique de sagesse pour éviter des tortures dans les réincarnations, on devrait demander la déconnexion de la conscience du corps avant de mourir en souffrant,  le créateur a assez vu ce que ça fait d’être con alors qu’il arrête pour toujours ce système d’évolution qui créé des tortures. Ils disent qu’une nouvelle âme doit expérimenter d’être un méchant et une victime donc tortures horribles, on devrait mettre une sagesse automatique de base à chaque nouvelle âme pour empêcher ça. Créer un système à consciences multiples éternelles au lieu de fusionner si c’est le cas disent certaines personnes dans la seule conscience du créateur à la fin d’un cycle big bang.  
 Si dieu ou la source absorbe toutes les consciences en une seule comme disent certains, ton dieu est dans un aspect comme un robot qui absorbe toutes les données de tout le monde, ta théorie est une dictature.  
-Si on arrive à la fin de l’univers et que l’on créé un vaisseau géant planète pour échapper au big bang inverse, cela sera selon moi ou la logique un échec parce que si toute la lumière disparait, le vaisseau planète finirait de se vider de son énergie car le mouvement de l’univers fournit l’énergie libre. Donc il vaudrait mieux trouver l’entrée de l’univers à côté ou prévoir l’équipement pour s’euthanasier pour les dernières formes de vie quoique mort on a encore un corp éthérique, on peut toujours continuer à vivre avec sa conscience mais sans forme si on y arrive en attendant de savoir ce que le créateur à l’idée de faire après, soit peut-être un nouveau univers ou multivers.  
+Si on arrive à la fin de l’univers et que l’on créé un vaisseau géant planète pour échapper au big bang inverse, cela sera selon moi ou la logique un échec parce que si toute la lumière disparait, le vaisseau planète finirait de se vider de son énergie car le mouvement de l’univers fournit l’énergie libre. Donc il vaudrait mieux trouver l’entrée de l’univers à côté ou prévoir l’équipement pour s’euthanasier pour les dernières formes de vie quoique mort on a encore un corps éthérique, on peut toujours continuer à vivre avec sa conscience mais sans forme si on y arrive en attendant de savoir ce que le créateur à l’idée de faire après, soit peut-être un nouveau univers ou multivers.  
 Pas intérêt de faire le cycle d’incarnation d’un autre sinon, c’est une dictature du mal absolu, c’est imposer la décision d’un autre.  
 Si il faut des personnes pour entretenir la passé, que le créateur créé des nouvelles consciences pour ne pas que tout le monde se tape toute 
 la merde des autres, on doit partager son bonheur mais pas son horreur. On peut fusionner la connaissance par le haut alors pourquoi torturer tout le monde par le bas, il est mieux de copier la connaissance des autres dans le sien.  
@@ -7724,9 +7724,10 @@ de Sylvain Meili**
 <ins>Buffle</ins> (T): Il bloque le passage, passez votre prochain tour.  
 <ins>Serpent</ins> (P) : Reculez d'1 case.  
 
-1121 Proverbes  
 
-Montagne de 1112 proverbes  
+**1121 Proverbes**  
+
+<ins>Montagne de 1112 proverbes</ins>  
 Pourquoi 1112 ?  Différentes raisons.  
 1. Pour faire une montagne de proverbes.  
 2. Pour les 9 pas suivant avant 1121.  
@@ -7735,229 +7736,230 @@ Pourquoi 1112 ?  Différentes raisons.
 5. A vous de deviner la 5ème raison.  
 J’ai changé pour 1121 en 2022, l’idée est venue un peu tard pour coïncider avec le 21 de 2021, 1112 est un palier qui à sa place, réponse du point 5 : les 20 grues dessinées par Song Huizong, la 21ème peut être symbolisée par Song Huizong et Sylvain Meili, 21 est la devise pincipale des 20 autres devises.  
 
-Proverbes et numéros  
+<ins>Proverbes et numéros</ins>  
 Certains proverbes sont associés à des numéros spécifiques.  
 33, 69, 88, 108, 181, 333, 383, 521, 666, 777, 789, 818, 858, 888, 955, 988, 999, 1000, 1112, 1121.  
 (Attention, 18  est 3x6 (666), mais j’utilise ce chiffre pour l’empereur 1 et les 8 dragons, pas pour les méchants.  
 Le 5 est pour les dragons chinois et pour mon prénom, d’autres personnes utilisent ce chiffre pour le serpent, les chiffres ne leur appartiennent pas donc j’utilise les chiffres qui me servent.  
 Les dragons sont généralement bienveillants, il existe des dragons négatifs et positifs selon l’époque, l’endroit ou la dimension).  
 
-1121 proverbes  
+<ins>1121 proverbes</ins>  
 1+1=21 (toi + moi = aimer toi).  
 
-Proverbes bonus  
+<ins>Proverbes bonus</ins>  
 En comptant certaines belles réponses alternatives de mon quiz de proverbes, cela fait plus de 1121 proverbes.  
 
-Proverbe spéciale avant chaque poème  
+<ins>Proverbe spéciale avant chaque poème</ins>  
 Jusqu’à 777 proverbes, le proverbe avant le poème a une idée en relation avec le poème suivant.  
 
-Politesse  
+<ins>Politesse</ins>  
 Pour être plus poli, on peut remplacer toutes les insultes des proverbes par peu évolué, primaire, gens de peu, humain de base, mal, c’est faux ou je ne suis pas d’accord.  
 Les mots existent donc je les ai utilisés, il faut bien constater un aspect de connard, méchants ou d’abrutis,  je ne vais pas me censurer et être un peu hypocrite, c’est pour montrer que c’est grave.  
 Je montre un peu ma révolte, la personne n’est pas en face de moi donc pas obliger de dire que je ne suis pas d’accord, le moins de risque est de ne pas dire d’insultes.
 Je pourrais être plus poli mais je suis authentique en cachant moins ce que j’ai pensé, ça montre les ravages qu’ils infligent.  
 Ne pas m’enlever des points pour quelques insultes qui sont nécessaires à ma vraie vie authentique que j’ai eu et pas hypocrite, et sont des conséquences de la bêtise subit pour expliquer.  
 
-Jeux Olympiques  de Tokyo 2021 (Japon)  
+<ins>Jeux Olympiques  de Tokyo 2021 (Japon)</ins>  
 Le 18 février 2022, Tribunal arbitral du sport : changement de médaille : La chine a remporté la médaille de bronze du relais 4x100 mètres car un Anglais a enfreint les réglementations antidopage et est testé positif à l’ostarine et au S-23 qui sont interdits pour le développement du muscle.  
 Total de médaille 89 et 19 de bronze, ce qui est embêtant pour mon interprétation artistique des chiffres mais je ne vais pas enlever mon travail car cela a été vrai pendant 2021.  
 
-Le Meilisme  
+**Le Meilisme**  
 
 Définition (devise) :  
-Devise : La voie du milieu, de la nuance et de la beauté.  
-Synthèse : Résumé en 20 devises. 20 est en rime comme le prénom Sylvain et comme les notes à l’école 20/20 points, comme les 20 grues (machine ou l’oiseau) qui nous élèvent (les élèves, s’élever dans le ciel comme la grue).  
+**Devise : La voie du milieu, de la nuance et de la beauté**.  
+**Synthèse** : Résumé en 20 devises. 20 est en rime comme le prénom Sylvain et comme les notes à l’école 20/20 points, comme les 20 grues (machine ou l’oiseau) qui nous élèvent (les élèves, s’élever dans le ciel comme la grue).  
 La devise principale rassemble toutes les grues : n°21 (aimer toi,  2+1=3 chiffre qui représente la forme de l’oiseau de la grue qui guide toute les autres).  
-Son logo (symbole) : drapeau  
-1121 proverbes pour expliquer en détails.  
-75 poèmes codés du multivers plus ou moins philosophiques.  
-Le jardin idéal.  
-Divers arts pour accompagner.  
+**Son logo** (symbole) : drapeau  
+**1121 proverbes** pour expliquer en détails.  
+**75 poèmes codés du multivers** plus ou moins philosophiques.  
+**Le jardin idéal**.  
+**Divers arts pour accompagner**.  
 
-C’est une philosophie inventée par Sylvain Meili, basé sur le mot Chinois Meili signifiant beauté ainsi que le sommet Meili d’une des 8 montagnes sacrés de l’himalaya en Chine dans la province du Yunan, logiquement la voie du milieu, de la nuance est aussi la voie de la beauté (tout ce qui peut être beau : conscience, musique, sagesse, nature, physique, objets…).  
+C’est une philosophie inventée par Sylvain Meili, basé sur le mot Chinois Meili signifiant beauté ainsi que le sommet Meili d’une des 8 montagnes sacrés de l’Himalaya en Chine dans la province du Yunan, logiquement la voie du milieu, de la nuance est aussi la voie de la beauté (tout ce qui peut être beau : conscience, musique, sagesse, nature, physique, objets…).  
 Le but est d’emprunter la voie la plus juste et la plus belle et d’éviter le manichéisme du tout est parfait dans l’univers, que il y a la même conscience partout en disant que l’autre c’est toi (non, nous sommes plusieurs éternellement interconnectés) ainsi que tous les gens qui font des généralités sur des personnes ou des groupes ou exagèrent.  
 C’est la voie qui évite des aspects d’imbéciles heureux qui peuvent vibrer haut et les idiots et les méchants qui vibrent plus bas.  
 
-Les 75 poèmes codés du multivers  
+**Les 75 poèmes codés du multivers**  
 
-33 types de poème dont 16 inventions.  
-17 classiques  
-Acrostiche : (2) n°33, 54 (commencement par les initiales du 1er mot d’une phrase qui forment un mot vertical dans un poème).  
-Acrostiche initiale : 72, pareil que le précédent mais aléatoirement, 1 lettre par ligne.  
-Acrostiche de mots : 72, 73, (commencement par le 1er mot d’une phrase pour créer une phrase verticale dans un poème).  
-Acrostiche de rang variable : 72, 73, pareil que le précédent mais aléatoirement, 1 mot par ligne.  
-Anaphore : (7) n°12, 14, 32, 46, 48, 55, 64 (reprises des débuts de phrases antécédents).  
-Assonance interne : non comptabilisé car il y en a pratiquement partout, généralement sans faire exprès (répétitions des mêmes sons à la fin des mots à l’intérieur des vers).  
-Centon : 71, 75, phrases historiques réorganisées en nouveau poème plus ajout).  
-Dialogue (avec rimes suivies) : n°11.  
-Holorime partiel : 70 (même prononciation, différents mots).  
-Holorime narratif : 74 (tout le texte).  
-Prose : (29) poèmes (sans rimes) n°7, 8, 9, 13, 24, 25, 29, 30, 31, 34, 35, 36, 37, 38, 39, 41, 42, 43, 47, 49, 56, 57, 59, 60, 64, 65, 66, 67, 68, 71, 72, 73, 75.
-Quatrain monorime : n°60 (aaaa).  
-Rime continue (monorime) : n°26, 71 (aaa…).  
-Rime suivie : (26) n°1, 2, 3, 6, 9, 10, 11, 12, 15, 16, 17, 19, 20, 21, 23, 27, 28, 35, 40, 47, 50, 52, 53, 60, 62, 69, 75 (aa).  
-Rime embrassée : n°45, 72 (abba).  
-Rimes croisées : n°62 (abab).  
-Téléstiche : 72, 73 (contraire d’acrostiche en fin de phrase).  
+<ins>33 types de poème dont 16 inventions</ins>.  
+<ins>17 classiques</ins>  
+**Acrostiche** : (2) n°33, 54 (commencement par les initiales du 1er mot d’une phrase qui forment un mot vertical dans un poème).  
+**Acrostiche initiale** : 72, pareil que le précédent mais aléatoirement, 1 lettre par ligne.  
+**Acrostiche de mots** : 72, 73, (commencement par le 1er mot d’une phrase pour créer une phrase verticale dans un poème).  
+**Acrostiche de rang variable** : 72, 73, pareil que le précédent mais aléatoirement, 1 mot par ligne.  
+**Anaphore** : (7) n°12, 14, 32, 46, 48, 55, 64 (reprises des débuts de phrases antécédents).  
+**Assonance interne** : non comptabilisé car il y en a pratiquement partout, généralement sans faire exprès (répétitions des mêmes sons à la fin des mots à l’intérieur des vers).  
+**Centon** : 71, 75, phrases historiques réorganisées en nouveau poème plus ajout).  
+**Dialogue** (avec rimes suivies) : n°11.  
+**Holorime partiel** : 70 (même prononciation, différents mots).  
+**Holorime narratif** : 74 (tout le texte).  
+**Prose** : (29) poèmes (sans rimes) n°7, 8, 9, 13, 24, 25, 29, 30, 31, 34, 35, 36, 37, 38, 39, 41, 42, 43, 47, 49, 56, 57, 59, 60, 64, 65, 66, 67, 68, 71, 72, 73, 75.
+**Quatrain monorime** : n°60 (aaaa).  
+**Rime continue** (monorime) : n°26, 71 (aaa…).  
+**Rime suivie** : (26) n°1, 2, 3, 6, 9, 10, 11, 12, 15, 16, 17, 19, 20, 21, 23, 27, 28, 35, 40, 47, 50, 52, 53, 60, 62, 69, 75 (aa).  
+**Rime embrassée** : n°45, 72 (abba).  
+**Rimes croisées** : n°62 (abab).  
+**Téléstiche** : 72, 73 (contraire d’acrostiche en fin de phrase).  
 
-16 inventions  
-9 poèmes de structure  
-Poème impérial : mon invention, il reprend au moins un mot du titre d’un ensemble de poèmes : (Métaphore du cycle de la vie), poème n°22 sur les poèmes 1 à 14.  
-Poème de l’ascension (de la montée) : n°58.  
-Poème de la montagne : (2) n°56, 57.  
-Poème de la descente : n°64.  
-Poème en V (de la vallée) : n°65, 72, 73.  
-Poème en W : n°66.  
-Poème en M : n°67.  
-Poème en N : n°68.  
-Poème en И inversé : n°69.  
-5 poèmes de rimes  
-Double rime : mon invention, je mets la même rime en début et fin de vers (Le Kung-fu légendaire), poème n°18 et 51.  
-Rime des dragons chinois : mon invention, 181, répétition de la même lettre 8 fois (S) après un seul vers de début et avant un seul vers de fin (La beauté asiatique), poème n°5. Les deux 1 symbolisent l’homme et la femme.  
-Triple rime de l’union : n°58, (3, 1, 3, 1, 3…).  
-Triple rime de l’union inversée : n°63, (1, 3, 1, 3, 1, 3, 1, 3, 1…).  
+<ins>16 inventions</ins>  
+*9 poèmes de structure*  
+**Poème impérial** : mon invention, il reprend au moins un mot du titre d’un ensemble de poèmes : (Métaphore du cycle de la vie), poème n°22 sur les poèmes 1 à 14.  
+**Poème de l’ascension (de la montée)** : n°58.  
+**Poème de la montagne** : (2) n°56, 57.  
+**Poème de la descente** : n°64.  
+**Poème en V (de la vallée)** : n°65, 72, 73.  
+**Poème en W** : n°66.  
+**Poème en M** : n°67.  
+**Poème en N** : n°68.  
+**Poème en И inversé** : n°69.  
+*5 poèmes de rimes*  
+**Double rime** : mon invention, je mets la même rime en début et fin de vers (Le Kung-fu légendaire), poème n°18 et 51.  
+**Rime des dragons chinois** : mon invention, 181, répétition de la même lettre 8 fois (S) après un seul vers de début et avant un seul vers de fin (La beauté asiatique), poème n°5. Les deux 1 symbolisent l’homme et la femme.  
+**Triple rime de l’union** : n°58, (3, 1, 3, 1, 3…).  
+**Triple rime de l’union inversée** : n°63, (1, 3, 1, 3, 1, 3, 1, 3, 1…).  
 Rime de la vie : n°61, (1, 2, 3, 2, 1, 2, 3, 2, 1…).  
-2 poèmes combinatoires  
-Poème des 7 dragons d’or combinés : n°72, moins de 10 lignes et 468 lettres à 7 types de contraintes sur 12 dont un dragon à 6 étoiles.  
-Poème des 5 dragons d’or combinés : n°73, moins de 10 lignes et 468 lettres à 5 types de contraintes sur 9 dont un dragon à 3 étoiles.  
+*2 poèmes combinatoires*  
+**Poème des 7 dragons d’or combinés** : n°72, moins de 10 lignes et 468 lettres à 7 types de contraintes sur 12 dont un dragon à 6 étoiles.  
+**Poème des 5 dragons d’or combinés** : n°73, moins de 10 lignes et 468 lettres à 5 types de contraintes sur 9 dont un dragon à 3 étoiles.  
 Pour mon cas 9 lignes pour les 2.  
 
-Les dragons d’argent et de bronze combinés  
+<ins>Les dragons d’argent et de bronze combinés</ins>  
 (A partir de 5 types de contraintes)  
-Poème des (…) dragons d’argents combinés.  
+**Poème des (…) dragons d’argents combinés**.  
 Plus de 10 lignes (10 à 19), moins de 936 lettres.  
-Poème des (…) dragons de bronze combinés.  
+**Poème des (…) dragons de bronze combinés**.  
 Plus de 20 lignes (20 à 29), moins de 1404 lettres.  
-A chaque contrainte additionnée, le dragon gagne 1 étoile en plus.  
+**A chaque contrainte additionnée, le dragon gagne 1 étoile en plus**.  
 Si le poème n’a pas d’histoire poétique cohérente, c’est de la triche donc pénalités ou non validé, des suites de mots sans logique égal éliminé sinon il ne faut pas s’incruster ou obligation d’inventer un autre nom.  
 Ce qui compte est le nombre de type de contraintes et le nombre total, ex : les 12 contraintes des 7 dragons d’or combinés dont un dragon à 6 étoiles (n°72).  
 
-Poèmes par année  
+**Poèmes par année**  
 Chaque poème est codé par son chiffre et a un peu de leçon philosophique.  
-2014. (1), 8 : Le jardin parfait ne peut se séparer de sa montagne.  
-2019. (7), 3 : La truite fario, 4 : Le chat parfait, 5 : La beauté asiatique, 7 : Songes des huit dragons du jardin de l’empereur, 12 : Éducation, 13 : Une journée idéale en famille, 14 : La mort, le renouveau dans l’au-delà et les 4 saisons.  
-2020. (11), 1 : Ma petite rivière, 2 : Belles chutes d’eau, 6 : Forêt impériale, 9 : Empereur pour princesse ?, 10 : La victoire retrouvée, 11 : Joute de poèmes de deux fidèles, 15 : Poème d’un empereur à sa déesse, 16 : Poème d’une déesse à son empereur 17 : Divine Chine, 18 : Le Kung-fu légendaire, 22 : Métaphore du cycle de la vie.  
-2021. (3), 19 : Divine Corée, 20 : Divin Japon, 21 Divine France.  
-2022. (6), 23 : Divin Vietnam (22 et 23/02), 24 : L’épicéa impérial dans son pré (09/11), 26 : Bambou impérial (13/11), 27 : Promenade avec sa divine (17/11), 28 : Partenaires de vie (19/11), 33 : L’empereur Sylvain (03/11).  
-2023. (6), 25 : Noël sous la neige (02/07), 31 : Cueillir la beauté des saisons : printemps, été, automne, hiver (12/07), 29 : Les jolis oiseaux du village (13/07), 30 : La maison en pierres (13/07), 32 : L’eau vivante (16/07), 34 : Le duo des merveilles (28/09).  
-2024. (5), 35 : L’or impérial (07/06), 36 : Le dragon Chinois (07/06), 37 : Hymne de la victoire de la Terre, Libertés d’un monde meilleur (07/06). 38 : Vacances utopiques au jardin (12/10), 39 : Le monde fantastique enchanté (19/12).  
-2025. (16), 40 : La beauté magique (03/02), 41 : Nos amis de l’univers (01/11), 42 : Les facettes de la poésie (01/11), 43 : L’exploration cosmique (01/11), 44 : L’infini cercle de la vie (08/11), 45 : L’empereur de chine au paradis central (09/11). 46 : Le spectacle alchimique impérial (10/11), 47 : Le jardin impérial Genyue (12/11), 48 : Education de la famille (11/11), 49 : Vacance des enfants à la fête des sports du lac Jinming (14/11), 50 : Rocher dragon et fleurs de pierres (11/11),  51 : 18 jeux et sports chinois (15/11), 52 : Divine chine impériale (12/11), 53 : La forêt impériale des pics Song (12/11), 54 : Empereur Huizong (11/11), 55 : Double dragon (13/11).  
-2026. (20), 56 : Le bien et le mal (27/02), 57 : Le temps (27/02), 58 : La vie (20/02), 59 : Chemin métaphorique (23/02), 60 : Toupie éternelle et Miss Gatling (07/02), 61 : Le bonsaï impérial (25/02), 62 : Spéciale chanson (02/02), 63 : La patineuse artistique (21/02), 64 : Descente en devinette (27/02), 65 : La vallée qui joue (27/02), 66 : Le parc d’attraction (16/03), 67 : L’union mutuelle (15/03), 68 : L’arbre ancestral (29/03), 69 : Du rêve à la contemplation (28/03), 70 : Sylvain le sacré (04/05), 71 : Merveilleux bonheur (30/03), 72 : Le polymathe magique (11/05), 73 : L’origami de la patineuse, (10/05), 74 : Sage ou passage (17/05), 75 : L’axe de la voie d’harmonie du milieu (02/05).  
+**2014**. (1), 8 : Le jardin parfait ne peut se séparer de sa montagne.  
+**2019**. (7), 3 : La truite fario, 4 : Le chat parfait, 5 : La beauté asiatique, 7 : Songes des huit dragons du jardin de l’empereur, 12 : Éducation, 13 : Une journée idéale en famille, 14 : La mort, le renouveau dans l’au-delà et les 4 saisons.  
+**2020**. (11), 1 : Ma petite rivière, 2 : Belles chutes d’eau, 6 : Forêt impériale, 9 : Empereur pour princesse ?, 10 : La victoire retrouvée, 11 : Joute de poèmes de deux fidèles, 15 : Poème d’un empereur à sa déesse, 16 : Poème d’une déesse à son empereur 17 : Divine Chine, 18 : Le Kung-fu légendaire, 22 : Métaphore du cycle de la vie.  
+**2021**. (3), 19 : Divine Corée, 20 : Divin Japon, 21 Divine France.  
+**2022**. (6), 23 : Divin Vietnam (22 et 23/02), 24 : L’épicéa impérial dans son pré (09/11), 26 : Bambou impérial (13/11), 27 : Promenade avec sa divine (17/11), 28 : Partenaires de vie (19/11), 33 : L’empereur Sylvain (03/11).  
+**2023**. (6), 25 : Noël sous la neige (02/07), 31 : Cueillir la beauté des saisons : printemps, été, automne, hiver (12/07), 29 : Les jolis oiseaux du village (13/07), 30 : La maison en pierres (13/07), 32 : L’eau vivante (16/07), 34 : Le duo des merveilles (28/09).  
+**2024**. (5), 35 : L’or impérial (07/06), 36 : Le dragon Chinois (07/06), 37 : Hymne de la victoire de la Terre, Libertés d’un monde meilleur (07/06). 38 : Vacances utopiques au jardin (12/10), 39 : Le monde fantastique enchanté (19/12).  
+**2025**. (16), 40 : La beauté magique (03/02), 41 : Nos amis de l’univers (01/11), 42 : Les facettes de la poésie (01/11), 43 : L’exploration cosmique (01/11), 44 : L’infini cercle de la vie (08/11), 45 : L’empereur de chine au paradis central (09/11). 46 : Le spectacle alchimique impérial (10/11), 47 : Le jardin impérial Genyue (12/11), 48 : Education de la famille (11/11), 49 : Vacance des enfants à la fête des sports du lac Jinming (14/11), 50 : Rocher dragon et fleurs de pierres (11/11),  51 : 18 jeux et sports chinois (15/11), 52 : Divine chine impériale (12/11), 53 : La forêt impériale des pics Song (12/11), 54 : Empereur Huizong (11/11), 55 : Double dragon (13/11).  
+**2026**. (20), 56 : Le bien et le mal (27/02), 57 : Le temps (27/02), 58 : La vie (20/02), 59 : Chemin métaphorique (23/02), 60 : Toupie éternelle et Miss Gatling (07/02), 61 : Le bonsaï impérial (25/02), 62 : Spéciale chanson (02/02), 63 : La patineuse artistique (21/02), 64 : Descente en devinette (27/02), 65 : La vallée qui joue (27/02), 66 : Le parc d’attraction (16/03), 67 : L’union mutuelle (15/03), 68 : L’arbre ancestral (29/03), 69 : Du rêve à la contemplation (28/03), 70 : Sylvain le sacré (04/05), 71 : Merveilleux bonheur (30/03), 72 : Le polymathe magique (11/05), 73 : L’origami de la patineuse, (10/05), 74 : Sage ou passage (17/05), 75 : L’axe de la voie d’harmonie du milieu (02/05).  
 
-Nombre de poème par année :  
+<ins>Nombre de poème par année</ins> :  
 2014 : 1, 2019 : 7, 2020 : 11, 2021 : 3, 2022 : 6, 2023 : 6, 2024 : 5, 2025 : 16, 2026 : 20.  
 Une montagne de poésie qui finit en pic.  
 Entre le Mont Saint-Michel et la montagne Meili.  
 
-Poèmes  
+<ins>Poèmes</ins>  
 Plus de 1500 lignes de poésie.  
 La plupart des lieux (rivière, village, maison, montagne…) et personnes dans les poèmes sont fictifs sauf les poèmes sur les pays…  
 Les titres et thèmes de mes poèmes sont respectés à fond dans la narration contrairement beaucoup d’autres dont le titre est évoqué que par quelques lignes.  
 
-Thématiques des poèmes  
-Nature (18)  
+<ins>Thématiques des poèmes</ins>  
+<ins>Nature</ins> (18)  
 Eau : 32 et 64, rivière : 1, chute d’eau : 2, bambou : 26, arbre : 68, épicéa : 24, bonsaï : 61, forêt : 6 et 53 (+ montagne), jardin : 8 et 47, rocher : 50, vallée : 65, saisons : 31, truite : 3, chat : 4, oiseaux : 29.  
-Sport et jeux (6)  
+<ins>Sport et jeux</ins> (6)  
 Kung-fu : 18, sports chinois : 51, patinage : 63, 71, 73, jeux : 66.  
-Philosophie (7)  
+<ins>Philosophie</ins> (7)  
 Éducation : 12 et 48, mort : 14, cycle vie : 22, philosophie : 43, 54, 75.  
-Famille : (3)  
+<ins>Famille</ins> : (3)  
 13, 25 et 49.  
-Romantisme : (21)  
+<ins>Romantisme</ins> : (21)  
 5, 7, 10, 11, 15, 16, 27, 28, 34, 38, 39, 40, 45, 55, 58, 60, 62, 67, 69, 72, 74.  
-Vie humaine : (14)  
+<ins>Vie humaine</ins> : (14)  
 9, 30, 33, 35, 36, 37, 41, 42, 44, 46, 56, 57, 59, 70.  
-Pays : (6)  
+<ins>Pays</ins> : (6)  
 17, 19, 20, 21, 23, 52.  
 
-Synthèse  
+<ins>Synthèse</ins>  
 Les poèmes sont une synthèse philosophique un peu comme les devises et le logo.  
 
-Poèmes 17 à 23  
+<ins>Poèmes 17 à 23</ins>  
 17 à 23 fait 7 chiffres différents.  
 Les titres et numéros des poèmes 17 à 23 sont la métaphore de la bataille pour transformer les forces du mal à la victoire de l’harmonie/l’amour.  
 17 : dieu, 18 : le combat (Kung-fu), 19 : pour arrêter le danger de l’intelligence artificielle, 20 : la vague de virus et les méchants, 21 : l’amour, 22 dévoile ce qui est caché, 23 : réunir les dragons pour le nirvana, les merveilles, l’amour (code VIETNAM).  
 
-Le chat parfait  
+<ins>Le chat parfait</ins>  
 C’est symbolique, la perfection n’est pas à généraliser à tous les chats ni même à un seul.  
 
-Songe des huits dragons du jardin de l’empereur  
+<ins>Songe des huits dragons du jardin de l’empereur</ins>  
 J’ai mis songe au lieu de rêve car cela sonnait mieux et parce que j’ai une autre raison à deviner. Le 7 inversé de la lettre du mot rêve correspond au 7 du numéro du poème.  
 
-Le jardin parfait ne peux se séparer de sa montagne  
+<ins>Le jardin parfait ne peux se séparer de sa montagne</ins>  
 Il peut se rapprocher de la perfection au niveau des nuances des beautés des saisons mais le froid de l’hiver fait souffrir, surtout les animaux.  
 
-Empereur pour princesse ?  
+<ins>Empereur pour princesse ?</ins>  
 Des rimes suivies et quelques passages en proses métaphoriques pour aérer le poème (10 sur 120). Le seul au monde à avoir fait l’inventaire de tous les types de refus, en plus en rimes et en proses méta-phoriques pour faire mieux.  
 
-La mort, le renouveau dans l’au-delà et les 4 saisons  
+<ins>La mort, le renouveau dans l’au-delà et les 4 saisons</ins>  
 Le passage dans l’au-delà est censé être un tunnel (pas toujours le cas), pas une porte mais c’est une métaphore que j’ai utilisé pour mon poème (voir décodage des 23 poèmes).  
 
-Divin Japon  
+<ins>Divin Japon</ins>  
 Il a été entièrement réalisé en écoutant le groupe japonais C-ute, album Queen of Jpop, chanson n°8 (Aitai Aitai Aitai na)  en premier, sortie en 2013.  
 
-Divin Vietnam  
+<ins>Divin Vietnam</ins>  
 La dernière phrase reprend les premières lettres du mot Vietnam :  
 Vie Illuminée Et Toujours Nirvana Avec Merveilles (c’est le souhait).  
 2+3=5 (dernier couple de dragon pour finir les poèmes).  
 Dans Vietnam, il y a le son de vie et de âme.  
 
-Métaphore du cycle de la vie  
+<ins>Métaphore du cycle de la vie</ins>  
 Si l’on compte cette introduction qui reprend des mots de tous les titres des poèmes 1 à 14, cela fait le 22ème poème caché.  
 2+2=4 (4ème dimension).  
 Dévoilement des vérités qui sont cachées.  
 
-Divine Chine  
+<ins>Divine Chine</ins>  
 La Chine a 12 poèmes avec Le Kung-fu légendaire et Le dragon Chinois, plus ceux du cycle Song.  
 J’ai rajouté à Divine Chine les rimes que j’ai déjà utilisées pour Divin Vietnam pour qu’il soit plus proche de la perfection.  
 Les montagnes dansent et sautent dans les nuages, 
 et nous ravissent avec leurs temples qui subliment le paysage.  
 
-Divine France  
+<ins>Divine France</ins>  
 J’ai presque retiré les passages sur les fromages mais j’espère qu’un jour cela sera un produit que l’on fera sans maltraitance animal et sans tuer (voir proverbe 880).  
 
-L’épicéa commun  
+<ins>L’épicéa commun</ins>  
 Pour la Chine, son cousin le Picea asperata sera l’épicéa impérial.  
 
-Le monde fantastique enchanté  
+<ins>Le monde fantastique enchanté</ins>  
 Réalisé en écoutant le chanteur Chinois Hu Ge Nirvana in fire ost, When the wind blows (2015).  
 
-Le dragon Chinois  
+<ins>Le dragon Chinois</ins>  
 2024 : l’année du dragon Chinois de bois  
 2+2+4=8 (arbre : autrefois 3 arbres en paréidolies de dragon, double dragon).
 5 poèmes réalisés pour l’année du dragon, 5 comme dragon.  
 
-8 dragons  
+<ins>8 dragons</ins>  
 C’est surtout une interprétation artistique.  
 2 dragons rouges de l’est : Japon  
 2 dragons jaunes de l’ouest : Chine, le dragon d’or est le 9ème dragon qui est l’empereur de l’empire du milieu ou peut être l’empereur du Japon ou le président d’un pays asiatique.  
 2 dragons bleus du nord : Corée (inclus la Mongolie)  
 2 dragons verts du sud : Vietnam (inclus aussi les autres pays d’Asie du sud : Thaïlande, Myanmar, Laos, Cambodge, Malaisie, Philippines, Indonésie, Brunei, Népal, Bhoutan).  
 
-5 pays  
+<ins>5 pays</ins>  
 Chine, Japon, Corée, Vietnam, France (dragon européen différent de l’asiatique).
 Le chiffre du dragon : 5.  
-Dualité dans les poèmes  
+
+<ins>Dualité dans les poèmes</ins>  
 Voici les titres des poèmes où j’évoque ou dénonce la bêtise, ou il y a dualité.
 9 : Empereur pour princesse, 37 : hymne de la victoire de la Terre, libertés d’un monde meilleur, 41 : Nos amis de l’univers, 46 : Le spectacle alchimique impériale.  
 
-Moujonc  
+<ins>Moujonc</ins>  
 Moujonc est mon invention : l'esprit plus mou qu'un jonc comme une herbe molle, bambou est le maximum.  
 Mougeon existait avant (mélange entre suiveur de mouton, et idiot de pigeon), je préfère la version qui ne rabaisse pas les animaux.  
 
-Anecdote  
+<ins>Anecdote</ins>  
 Les poèmes 44 (L’infini cercle de la vie), 46 (Le spectacle alchimique impérial), et 59 (Chemin métaphorique) ont été fait suite à une blague en essayant d’être abstrait ou hasardeux, mais ma logique a trouvé des choses intéressantes pour les réordonner et les transformer en poèmes sérieux.  
 
-Ordre d’arrivée  
+<ins>Ordre d’arrivée</ins>  
 Poèmes du 27/02/2026, 57 : Le temps, 56 : Le bien et le mal, 64 : Descente en devinette, 65 : La vallée qui joue.  
 
-La patineuse artistique  
+<ins>La patineuse artistique</ins>  
 21/02/2026.  
 Quand j’ai finit les 17 lignes de mon poème, à la télévision, j’ai entendu : tu n’as pas finit, je pensais déjà avant qu’il manquait quelque chose mais je voulais me reposer et finir une autre fois.  
 Le 22/03/2026 : j’ai ajouté les 4 lignes en plus sur le passage romantique pour arriver à 21.  
 J’ai inversé les vers entre le 8ème et la 18ème vers de l’ancienne version pour être plus véridique parce qu’elles n’effectuent pas le triple axel en fin car elles ont plus d’énergie au début.  
 
-7 sujets de poème en double (14 poèmes)  
+<ins>7 sujets de poème en double</ins> (14 poèmes)  
 6 : Forêt impériale et 53 : La forêt impériale des pics Song.  
 8 : Le jardin parfait ne peut se séparer de sa montagne et 47 : Le jardin impérial Genyue.  
 12 : Éducation et 48 : Éducation de la famille.  
@@ -7967,46 +7969,46 @@ J’ai inversé les vers entre le 8ème et la 18ème vers de l’ancienne versio
 67 : L’union mutuelle et 69 : Du rêve à la contemplation.  
 Résumé : Jardin et forêt, le soi, éducation, pays, spectacle, cheminement de vie.  
 
-Fin  
+<ins>Fin</ins>  
 Codage terminé des 55 poèmes le 15/11/2025.  
 1+2+3+4+5+6+7+8+9+10 (victoire) = 55.  
 Le 29/03/2026 : 69 poèmes.  
 Le 04/05/2026 : 72 poèmes.  
 Le 11/05/2026 : 75 poèmes.  
 
-Voix IA  
+<ins>Voix IA</ins>  
 J’ai utilisé la plus belle voix féminine que je puisse trouver pour réciter mes poèmes en vidéo, malheureusement devenue indisponible après les 39 premiers.  
 
-Dessins  
+<ins>Dessins</ins>  
 Je pourrai associer un dessin à un proverbe ou à un poème et inventer une calligraphie mais je ne sais pas si j’en ai la motivation dans cette vie. Je peux le faire au paradis.  
 Il faudrait aussi redessiner la photo des 18 paréidolies de l’affiche de Star Wars pour être plus réaliste.  
 Dessiner le jardin parfait en version 4 saisons et version neige + version à partir de sous l’eau.  
 Redessiner chaque paréidolie ou en image de synthèse serait intéressant.  
 
-Anticipation de critique  
+<ins>Anticipation de critique</ins>  
 Le code est facile car expliqué simplement (c’est un enrichissement amusant et symbolique), pas d’anachronisme car le cycle des poèmes Song est séparé mais enrichissant l’oeuvre, mise en avant des défauts et de l'idéal du monde, soi imparfait mais cherchant à montrer le meilleur.  
 Le bien et le mal est un résumé, ce n’est pas pour montrer la nuance de gris mais montrer les grandes différences.  
 Les poèmes hasardeux ne forcent pas le sens car ils ont été purifié et veulent montrer un idéal visé.  
 La mise en avant auto centré est justifié par mon expérience, pour montrer mon but, constater ou parce que les 2 poèmes sur Sylvain étaient le plus évident et facile pour mettre la performance de style et montrer une vision.  
 Pas besoin de mettre trop d’émotions, à vous de l’imaginer, la narration est nécessaire à l’imagination.  
 
-Musique  
+<ins>Musique</ins>  
 On peut transformer mes poèmes en musique chantée ou instrumentale, Divine chine convient parfaitement surtout chantée en Chinois, Japonais, Coréen, Vietnamien, Thailandais… Joute de poèmes de deux fidèles pourrait être une chanson en duo qui se répond avec une finition ensemble sur les 2 derniers vers de la fin.  
 
-Clip vidéo  
+<ins>Clip vidéo</ins>  
 Faire des vidéos qui représentent tous les éléments mis dans mes poèmes sur les pays serait une bonne idée, aussi d’autres poèmes.  
 
-Beauté  
+<ins>Beauté</ins>  
 Créer la beauté au paroxysme.  
 Je ne mets pas de carpe koï bicolore dans mon jardin parfait car c’est gros, de couleur asymétrique et disgracieux, je préfère la truite fario qui est belle, sportive, symétrique mais moins visible de loin et seulement adapté aux eaux assez fraîches et claires.  
 
-Spectacle  
+<ins>Spectacle</ins>  
 Je peux chanter dans mon armure de tissu ou en beau costume de combattant Chinois en maniant deux bâtons en même temps où chaque extrémité est sublimée par un feu d’artifice attaché au bout des bâtons éclairés, en patinant serait bien aussi.  
 
-Moule perlière  
+<ins>Moule perlière</ins>  
 La seule moule de cette espèce que j’ai vu dans ma vie était au même endroit que les bulles de glace comme des perles d’eau, c’est ultra rare que cette moule fasse une perle.  
 
-Ovni  
+<ins>Ovni</ins>  
 Pendant mon enfance depuis la fenêtre de ma chambre en plein jour, j’ai vu un ovni immobile argenté en forme de cylindre (cigare) avec 3 fenêtres carrées blanches pendant quelques dizaines de seconde, quand j’ai arrêté de regarder pour revenir sur sa vue, il avait disparu.  
 Je pense qu’il devait faire environ une dizaine de mètres à une distance de plusieurs centaines de mètres.  
 
