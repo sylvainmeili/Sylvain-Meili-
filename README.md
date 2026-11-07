@@ -4419,7 +4419,7 @@ Une zone avec des plantes.
 
 Un moyen indolore de se suicider dans sa poche  au cas où c’est sans espoir.  
 Pouvoir mettre en sécurité et compartimenter le vaisseau de façon électronique ou manuelle.  
-Modules dévacuations de secours de mini navettes.  
+Modules d'évacuations de secours de mini navettes.  
 Les meilleurs moyens de soins possibles, docteur et machine qui régénère les blessures.  
 Recyclage complet des déchets.  
 Avoir des choses à vendre au cas où.  
@@ -4477,7 +4477,7 @@ parait tenir comme un miracle fantastique.
 La flamboyante discipline du đá cầu,  
 le volant au pied franchit le filet dans de sublimes assauts.  
 Les combattants du Vovinam Việt Võ Đạo sont la quintessence,  
-de l’art stimulant nos sens en nous divertissant de mouvements de pieds et poings sensationnels et aussi s’accompagnants de nombreuses armes transcendant l’espace dans cette belle ambiance.  
+de l’art stimulant nos sens en nous divertissant de mouvements de pieds et poings sensationnels et aussi s’accompagnant de nombreuses armes transcendant l’espace dans cette belle ambiance.  
 Les femmes dans leurs costumes áo dài composés d’une robe fendue sur le côté avec un col mao sur un pantalon sont élégantes,  
 elles nous font partager leurs compagnies rayonnantes.  
 En version homme, le costume cintré est mis en valeur,  
@@ -7233,29 +7233,29 @@ Chine
 Kazakhstan  
 <ins>Dimash Qudaibergen</ins> (Dinmukhammed Qanatuly Qudaibergenov Aitbaev) : kazakhstan, 24/05/1994, The meaning of eternity (paroles : Yu Jiang, compositeur : Sa Dingding), 2018.  
 
-Musique générale  
+**Musique générale**  
 
-De 1600 à 1899  
-Musique baroque, classique, romantique…  
-Jean-Baptiste Lully : France d’origine italienne, 28/11/1632-22/03/1687, Armide overture 1686, louis XIV marche pour la céréonie des turcs 1670, danse de neptune 1664-1670.  
-Marc-Antoine Charpentier : France, 1643-24/02/1704, Te Deum.  
-Arcangelo corelli : Italie, 17/02/1653-08/01/1713, La folia.  
-Johann Pachelbel : Allemagne, 01/09/1653-03/03/1706.  
+**De 1600 à 1899**  
+**Musique baroque, classique, romantique**…  
+<ins>Jean-Baptiste Lully</ins> : France d’origine italienne, 28/11/1632-22/03/1687, Armide overture 1686, louis XIV marche pour la céréonie des turcs 1670, danse de neptune 1664-1670.  
+<ins>Marc-Antoine Charpentier</ins> : France, 1643-24/02/1704, Te Deum.  
+<ins>Arcangelo corelli</ins> : Italie, 17/02/1653-08/01/1713, La folia.  
+<ins>Johann Pachelbel</ins> : Allemagne, 01/09/1653-03/03/1706.  
 Canon and Gigue in D Major, P. 37: I. Canon.  
-Antonio lucio Vivaldi : Italie 04/03/1678, 28/07/1741.  
+<ins>Antonio lucio Vivaldi</ins> : Italie 04/03/1678, 28/07/1741.  
 The Four Seasons. “Summer”: III. Presto 1725, Spring 1725, Winter 1725, Concert for 4 violins Op.3/10 III (allegro).  
-George Frideric Haendel : Allemagne, 23/02/1685-14/04/1759.  
+<ins>George Frideric Haendel</ins> : Allemagne, 23/02/1685-14/04/1759.  
 Messiah, HWV 56, Pt. 2 Scene 7: No. 44, Hallelujah (Chorus) 1741, Sarabande 1733.  
-Jean-Sébastien Bach : Allemagne 21/03/1685, 28/07/1750.  
+<ins>Jean-Sébastien Bach</ins> : Allemagne 21/03/1685, 28/07/1750.  
 Orchestral Suite No. 3: II. Air on the G string 1730.  
 Prelude in C major from the well-tempered clavier 1722.  
 Jesus may my joy endure 1723.  
 Badinerie from the second suite for orchestra 1730.  
 Toccato and fugue and D minor 1703-1707.  
-Thomas Augustine Arne : 12/03/1710-05/03/1778, Rule, Britannia !, 1740.  
-Luigi Boccherini : Italie, 19/02/1743-28/05/1805.  
+<ins>Thomas Augustine Arne</ins> : 12/03/1710-05/03/1778, Rule, Britannia !, 1740.  
+<ins>Luigi Boccherini</ins> : Italie, 19/02/1743-28/05/1805.  
 String Quintet in E Major, G. 282: III. Minuetto – Trio.  
-Wolfgang amadeus mozart : autriche 27/01/1756, 05/12/1791.  
+<ins>Wolfgang amadeus mozart</ins> : autriche 27/01/1756, 05/12/1791.  
 Symphony No. 40: I. Molto allegro 1788.  
 Symphony no. 25 1773.  
 Requiem: Dies Irae 1793.  
@@ -7263,65 +7263,65 @@ Requiem in D Minor, K. 626: III. Sequenz, No. 6, Lacrymosa 1791.
 Piano Sonata No. 11: III. Alla Turca (Turkish march) 1783.  
 Piano Concerto No. 21 in C Major, K. 467: II. Andante 1793.  
 A little night music : Serenade in G Major, K. 525 "Eine kleine Nachtmusik": I. Allegro 1787.  
-Ludwig van beethoven : Allemagne 17/12/1770, 26/03/1827.  
+<ins>Ludwig van beethoven</ins> : Allemagne 17/12/1770, 26/03/1827.  
 "Moonlight Sonata": I. Adagio sostenuto 1801-1802.  
 Symphony No. 7: II. Allegretto 1811-1810.  
 Bagatelle No. 25 "Für Elise" 1810.  
 Symphony No. 5 in C minor, Op.67 (fate) : Allegro con brio 1804-1812.  
 Symphony No. 9 in D Minor, Op. 125 "Choral": IV. Presto (Excerpt: Ode to Joy) 1802-1804.  
-Niccolo paganini : Italie, 27/10/1782-27/05/1840.  
+<ins>Niccolo paganini<ins> : Italie, 27/10/1782-27/05/1840.  
 24th caprice 1805-1809.  
 La campanella.  
-Gioacchino Rossini : Italie, 29/02/1792-13/11/1868.  
+<ins>Gioacchino Rossini</ins> : Italie, 29/02/1792-13/11/1868.  
 Guillaume Tell Final overtur 1828.  
 The barber of Seville 1816 basé sur Pierre Beaumarchais, chant et instrumental, 1775.
-Franz Schubert : Autriche 31/01/1797, 19/11/1828.  
+<ins>Franz Schubert</ins> : Autriche 31/01/1797, 19/11/1828.  
 Ave maria, D. 839 1825.  
-Johann Strauss I : Autriche, 14/03/1804-25/09/1849.  
+<ins>Johann Strauss I</ins> : Autriche, 14/03/1804-25/09/1849.  
 Radetzky March 1848.  
-Luigi Ricci : 08/07/1805-31/12/1859, Tarantella Napoletana, 1852.  
-Felix Mendelssohn : Allemagne /03/02/1809-04/11/1847.  
+<ins>Luigi Ricci</ins> : 08/07/1805-31/12/1859, Tarantella Napoletana, 1852.  
+<ins>Felix Mendelssohn</ins> : Allemagne /03/02/1809-04/11/1847.  
 A Midsummer Night’s Dream: Wedding March 1826.  
-Frédéric Chopin : Pologne France 01/03/1810, 17/10/1849.  
+<ins>Frédéric Chopin</ins> : Pologne France 01/03/1810, 17/10/1849.  
 Nocturnes, Op. 9: No. 2 in E-Flat Major 1830-1832.  
 Fantaisie-impromptu 1834.  
-Franz Liszt : Hongrie, 22/10/1811-31/07/1886.  
+<ins>Franz Liszt</ins> : Hongrie, 22/10/1811-31/07/1886.  
 Consolations, S. 172: No. 3, Lento placido 1850.  
 Liebesträume (love dream), S. 541: No. 3 in A-Flat Major 1850.  
 Hungarian rhapsody no. 2, 1847.  
-Wilhelm Richard Wagner : Allemagne 22/05/1813, 13/02/1883.  
+<ins>Wilhelm Richard Wagner</ins> : Allemagne 22/05/1813, 13/02/1883.  
 Ride of the Valkyries 1851.  
-Joseph Fortunin François Verdi : Italie 10/10/1813, 27/01/1901.  
+<ins>Joseph Fortunin François Verdi</ins> : Italie 10/10/1813, 27/01/1901.  
 Nabucco, Act III: Chorus of the Hebrew Slaves "Va pensiero, sull'ali dorate" 1842.  
 La Donna e mobile 1851.  
 Aida grand march (chant), 1870.  
 La traviata, Libiamo, chant et instrumental, 1853.  
-Charles Gounod : 17/06/1818-18/10/1893, Funeral march of a marionnette, 1872.  
-Von Suppé : 18/04/1819-21/05/1895, Light cavalry overture Franz, 1866.  
-Jacques Offenbach : Allemagne, naturalisé Français, 20/06/1819-05/10/1880, French cancan 1868.  
-Jesus gonzales rubio : 1820-26/04/1874, Mexican hat dance (jarabe tapatio), 1850.
-Johann strauss II : Autriche 25/10/1825, 03/06/1899.  
+<ins>Charles Gounod</ins> : 17/06/1818-18/10/1893, Funeral march of a marionnette, 1872.  
+<ins>Von Suppé</ins> : 18/04/1819-21/05/1895, Light cavalry overture Franz, 1866.  
+<ins>Jacques Offenbach</ins> : Allemagne, naturalisé Français, 20/06/1819-05/10/1880, French cancan 1868.  
+<ins>Jesus gonzales rubio</ins> : 1820-26/04/1874, Mexican hat dance (jarabe tapatio), 1850.
+<ins>Johann strauss II</ins> : Autriche 25/10/1825, 03/06/1899.  
 Voices of spring 1882.  
 Emperor Waltz 1889.  
 The Blue Danube, Op. 314 1866.  
 Tritsch-Tratsch-Polka 1858.  
-Daniel Butterfield : 31/10/1831-17/07/1901, Taps 1852.  
-Johannes Brahms : Allemagne 07/05/1833, 03/04/1897.  
+<ins>Daniel Butterfield</ins> : 31/10/1831-17/07/1901, Taps 1852.  
+<ins>Johannes Brahms</ins> : Allemagne 07/05/1833, 03/04/1897.  
 21 Hungarian Dances, WoO 1: No. 5, Allegro in F-Sharp Minor 1879.  
 Third symphony 1883.  
-Amilcare Ponchielli : 31/08/1834-16/01/1886, Dance of the hours, 1874.  
-Camille Saint-Saëns : France : 09/10/1835-16/12/1921.  
+<ins>Amilcare Ponchielli</ins> : 31/08/1834-16/01/1886, Dance of the hours, 1874.  
+<ins>Camille Saint-Saëns</ins> : France : 09/10/1835-16/12/1921.  
 Aquarium 1886.  
-Léo Delibes : France, 21/02/1836-16/01/1891.  
+<ins>Léo Delibes</ins> : France, 21/02/1836-16/01/1891.  
 Duo of flowers, chant, 1883.  
-Georges Bizet : France, 25/10/1838-03/06/1875.  
+<ins>Georges Bizet</ins> : France, 25/10/1838-03/06/1875.  
 Carmen : les toreadors 1875.  
 Carmen Suite No. 2: II. Habanera.  
 Carmen overture.  
 L'Arlesienne Suite No. 1, WD 40: I. Prelude.  
-Modeste Petrovitch Mussorgski : Russie, 21/03/1839-28/03/1881.  
+<ins>Modeste Petrovitch Mussorgski</ins> : Russie, 21/03/1839-28/03/1881.  
 Night on Bald Mountain 1867.  
-Piotr llitch Tchaïkovski : Russie 25/04/1840, 25/10/1893.  
+<ins>Piotr llitch Tchaïkovski</ins> : Russie 25/04/1840, 25/10/1893.  
 Swan Lake, Op. 20a: No. 1, Scène 1875-1876.  
 1812 overture 1880.  
 Sleeping beauty waltz 1889.  
@@ -7329,90 +7329,89 @@ Trepak (russian dance) 1892.
 Waltz of the flowers 1892.  
 Dance of the sugar plum fairy 1892.  
 Concerto pour piano et orchestre, No. 7 : Ouverture.  
-Antonín Dvořák : Tchéquie, 08/09/1841-01/05/1904.  
+<ins>Antonín Dvořák</ins> : Tchéquie, 08/09/1841-01/05/1904.  
 Slavonic Dances, Op. 72: No. 2, Dumka (Allegretto grazioso) 1878-1886.  
 Symphony no. 9 (fron the new world) 1893.  
 New world symphony version courte 1893.  
-Edvard grieg : Norvège, 15/06/1843-04/09/1907.  
+<ins>Edvard grieg</ins> : Norvège, 15/06/1843-04/09/1907.  
 Suite No. 1, Op. 46: I. Morning Mood 1875.  
-Nicolai Rimsky Korsakov : Russie, 18/03/1844-21/06/1908.  
+<ins>Nicolai Rimsky Korsakov</ins> : Russie, 18/03/1844-21/06/1908.  
 Flight of the bumbleble.  
-Gabriel Fauré : France, 12/05/1845-04/11/1924.  
+<ins>Gabriel Fauré</ins> : France, 12/05/1845-04/11/1924.  
 Pavane, Op. 50 1887.  
-Giacomo Puccini : Italie, 22/12/1858-29/11/1924, Nessun dorma (chanté par Luciano Pavarotti).  
-Richard Strauss : Allemagne, 11/06/1864-08/09/1949.  
+<ins>Giacomo Puccini</ins> : Italie, 22/12/1858-29/11/1924, Nessun dorma (chanté par Luciano Pavarotti).  
+<ins>Richard Strauss</ins> : Allemagne, 11/06/1864-08/09/1949.  
 Also sprach Zarathustra 1896.  
-John philip Sousa : 06/11/1864-06/03/1932, The stars and stripes forever (1896), the washington post (1889).  
-Paul Dukas : France, 01/10/1865-17/05/1935.  
+<ins>John philip Sousa</ins> : 06/11/1864-06/03/1932, The stars and stripes forever (1896), the washington post (1889).  
+<ins>Paul Dukas</ins> : France, 01/10/1865-17/05/1935.  
 The sorcerer’s apprentice 1897.  
-Eric Satie : France, 17/05/1866-01/07/1925.  
+<ins>Eric Satie</ins> : France, 17/05/1866-01/07/1925.  
 Trois Gymnopedies: No. 1, Lent et douloreux 1888.  
-Juventino Rosas : 25/01/1868-09/07/1894, Over the waves 1888.  
-Julius Fucik : 18/07/1872-25/09/1916, Entrance of the gladiators 1897.  
-James lord pierpont : 25/04/1822-05/08/1893, jingle bells version symphonique instrumentale 1889, date d’enregistrement inconnu.  
+<ins>Juventino Rosas</ins> : 25/01/1868-09/07/1894, Over the waves 1888.  
+<ins>Julius Fucik</ins> : 18/07/1872-25/09/1916, Entrance of the gladiators 1897.  
+<ins>James lord pierpont</ins> : 25/04/1822-05/08/1893, jingle bells version symphonique instrumentale 1889, date d’enregistrement inconnu.  
 
-De 1900 à 1969  
-Musique instrumentale  
-Claude Debussy : France 22/08/1862, 25/03/1918.  
+**De 1900 à 1969**  
+**Musique instrumentale**  
+<ins>Claude Debussy</ins> : France 22/08/1862, 25/03/1918.  
 Suite Bergamasque, L. 75: III. Clair de Lune 1905.  
-Edward Elgar : Angleterre, 02/06/1857-23/02/1934.  
+<ins>Edward Elgar</ins> : Angleterre, 02/06/1857-23/02/1934.  
 Pump and circumstance op.39 : March, No.1 in D 1904.  
-Charlie Chaplin : Angleterre, 16/04/1889-25/12/1977.  
+<ins>Charlie Chaplin</ins> : Angleterre, 16/04/1889-25/12/1977.  
 City light film, Opening Music Cast Credits 1931.  
 City Lights film, Overture - Unveiling the Statue 1931.  
 Modern Times film, Titine 1936.  
-Sergueï Sergueïevitch Prokofiev : 11/04/1891-05/03/1953.  
+<ins>Sergueï Sergueïevitch Prokofiev</ins> : 11/04/1891-05/03/1953.  
 Romeo and Juliet, Op. 64 Act 1 - Dance Of The Knights 1935, Peter and the wolf : the story begin 1936.  
-Scott joplin Afro-américain, Etats-unis, 24/11/1868-01/04/1917, the entertainer, 1902.
-Compositeur inconnu : Scotland the brave, 1911.  
-Kenneth J. Alford : Angleterre, 21/02/1881-15/05/1945 Colonel bogey march, 1914.  
-Gustav Holst Mars : Angleterre, 21/09/1874-25/05/1934, the bringer of war 1916.  
-Pascual Marquina : Espagne, 16/05/1873-13/061848, Espana cani (gypsy spain 1923).  
-Maurice Ravel : France, 07/03/1875-28/12/1937, Bolero 1928.
-Carl Orff : Allemagne, 10/07/1895-29/03/1982, Carmina Burana: O Fortuna (chant), 1936.  
-Benny Goodman : 30/05/1909-13/06/1986, Sing, Sing, Sing, (Louis Prima)  1936, Sugar foot stomp 1937.  
-Samuel Barber : Etats-unis, 09/03/1910-23/01/1980.  
+<ins>Scott joplin</ins> Afro-américain, Etats-unis, 24/11/1868-01/04/1917, the entertainer, 1902.
+<ins>Compositeur inconnu</ins> : Scotland the brave, 1911.  
+<ins>Kenneth J. Alford</ins> : Angleterre, 21/02/1881-15/05/1945 Colonel bogey march, 1914.  
+<ins>Gustav Holst Mars</ins> : Angleterre, 21/09/1874-25/05/1934, the bringer of war 1916.  
+<ins>Pascual Marquina</ins> : Espagne, 16/05/1873-13/061848, Espana cani (gypsy spain 1923).  
+<ins>Maurice Ravel</ins> : France, 07/03/1875-28/12/1937, Bolero 1928.
+<ins>Carl Orff</ins> : Allemagne, 10/07/1895-29/03/1982, Carmina Burana: O Fortuna (chant), 1936.  
+<ins>Benny Goodman</ins> : 30/05/1909-13/06/1986, Sing, Sing, Sing, (Louis Prima)  1936, Sugar foot stomp 1937.  
+<ins>Samuel Barber</ins> : Etats-unis, 09/03/1910-23/01/1980.  
 Adagio for Strings, Op. 11 1938.  
-Glenn miller : Etats-unis, 01/03/1904-15/12/1944, in the mood 1939.  
+<ins>Glenn miller</ins> : Etats-unis, 01/03/1904-15/12/1944, in the mood 1939.  
 Moonlight serenade, 1939.  
-The charleston chasers wabash blues 1927.  
-The savoy havana band : Turkish towel 1920’s.  
-Aram Katchatourian : Géorgie puis Russie, 06/06/1903-01/05/1978. Saber dance 1942.  
-Erskine hawkins : Etats-unis (noir), 26/07/1914-11/11/1993, Tippin’ in-fox  1945.  
-Charles Williams : Angleterre, 08/05/1893-07/09/1978, Devil’s galop, 1946.  
-Pee Wee Hunt : Etats-unis, 10/05/1907-22/06/1979, Twelfth street rag, 1948.  
-John Williams : 08/02/1932-… Boston pops orchestra : Sleigh ride 1949.  
-Leroy Anderson : Etats-unis, 29/06/1908-18/05/1975, The typewriter : 1950, Blue tango : 1951.  
-Del wood (Polly Adelaide Hendricks Hazelwood) : Etats-unis, 22/02/1920-03/10/1989,  Down yonder  1951.  
-Percy Faith : Canada puis naturalisée aux Etats-unis, 07/04/1908-09/02/1976, Delicado 1952, Swedish Rhapsody (midsummer vigil) 1953.  
-Ray Anthony (Raymond Antonini) : 20/01/1902, Dragnet, orchestra 1953.  
-Roger Williams : Etats-unis, 01/10/1924-08/10/2011, Autumn leaves 1955.  
-Dmitri Shostakovich : Russie, 25/09/1906-09/08/1975, Second  waltz 1956.  
-Mitch Miller : Etats-unis, 04/07/1911-31/07/2010, The river Kwai : reprise de Kenneth J. Alford : colonel Bogey march 1958.  
-Chuck Rio (Daniel Flores) : Etats-unis, 11/07/1929-19/09/2006,  Tequilla (the champs : groupe) 1958.  
-David Rose : Angleterre puis Etats-unis, 15/06/1910-23/08/1990, The stripper  (orchestra) 1958.  
-Dave Cortez : Etats-unis, 13/08/1938-… Happy organ album, Baby 1958.  
-David Appell : Etats-unis, 24/03/1922-18/11/2014, The applejacks group, Mexican hat rock 1958.  
-Dick Shory : Ding dong polka, 1958.  
-Johnny and the Hurricanes : Red river rock, 1958.  
-Russ Conway : Angleterre, 02/09/1925-16/11/2000, Roulette  1959, Passing breeze 1960. 
-Cedric King Palmer : Angleterre, 13/02/1913-13/07/1999, Hackney carriage 1959.  
-The Shadow : FBI (1960), Dance one (1962), Apache (Jerry lordan : (1960), guitare électrique.  
-Ed (Edward) Cobb : Etats-unis, 25/02/1938-19/09/1999, Lincoln Mayorga : Etats-unis, 28/03/1937-03/07/2023, The piltdown men groupe, Macdonald’s cave  1960.  
-Les Sipolo, Jack Jay et son orchestre : Grand prix, Marche des marteaux, 1961.  
-Duane Eddy : Etats-unis, 26/04/1938-… Because the’re young  1960, Ballad of paladin 1962.  
-Bert Kaempfert : Allemagne, 16/10/1923-21/06/1980, A swinging safari  (orchestra) 1962.  
-Kenny Ball : Angleterre, 22/05/1930-07/03/2013, Midnight in moscow 1962, The pay-off 1962.  
-Clyde valley stompers (groupe) : Royaume-Uni, Peter and the wolf 1962.  
-Shane Fenton and the Fentones (groupe) : The breeze and I 1962.  
-Acker Bilk : Angleterre, 28/01/1929-02/11/2014, Lonely 1962.  
-Joe Loss and his orchestra : Angleterre, 22/06/1909-06/06/1990,  Must be madison 1962.  
-Quincy Jones : Etats-unis, 14/03/1933-…, Soul bossa nova 1962.  
-The tornados (groupe) : Angleterre, Telstar : rock n roll experience 1962.  
-The Surfaris (groupe) : Etats-unis, Wipe out 1962.  
+<ins>The charleston chasers</ins> wabash blues 1927.  
+<ins>The savoy havana band</ins> : Turkish towel 1920’s.  
+<ins>Aram Katchatourian</ins> : Géorgie puis Russie, 06/06/1903-01/05/1978. Saber dance 1942.  
+<ins>Erskine hawkins</ins> : Etats-unis (noir), 26/07/1914-11/11/1993, Tippin’ in-fox  1945.  
+<ins>Charles Williams</ins> : Angleterre, 08/05/1893-07/09/1978, Devil’s galop, 1946. <ins>Pee Wee Hunt</ins> : Etats-unis, 10/05/1907-22/06/1979, Twelfth street rag, 1948.  
+<ins>John Williams</ins> : 08/02/1932-… Boston pops orchestra : Sleigh ride 1949.  
+<ins>Leroy Anderson</ins> : Etats-unis, 29/06/1908-18/05/1975, The typewriter : 1950, Blue tango : 1951.  
+<ins>Del wood</ins> (Polly Adelaide Hendricks Hazelwood) : Etats-unis, 22/02/1920-03/10/1989,  Down yonder  1951.  
+<ins>Percy Faith</ins> : Canada puis naturalisée aux Etats-unis, 07/04/1908-09/02/1976, Delicado 1952, Swedish Rhapsody (midsummer vigil) 1953.  
+<ins>Ray Anthony</ins> (Raymond Antonini) : 20/01/1902, Dragnet, orchestra 1953.  
+<ins>Roger Williams</ins> : Etats-unis, 01/10/1924-08/10/2011, Autumn leaves 1955.  
+<ins>Dmitri Shostakovich</ins> : Russie, 25/09/1906-09/08/1975, Second  waltz 1956.  
+<ins>Mitch Miller</ins> : Etats-unis, 04/07/1911-31/07/2010, The river Kwai : reprise de Kenneth J. Alford : colonel Bogey march 1958.  
+<ins>Chuck Rio</ins> (Daniel Flores) : Etats-unis, 11/07/1929-19/09/2006,  Tequilla (the champs : groupe) 1958.  
+<ins>David Rose</ins> : Angleterre puis Etats-unis, 15/06/1910-23/08/1990, The stripper  (orchestra) 1958.  
+<ins>Dave Cortez</ins> : Etats-unis, 13/08/1938-… Happy organ album, Baby 1958.  
+<ins>David Appell</ins> : Etats-unis, 24/03/1922-18/11/2014, The applejacks group, Mexican hat rock 1958.  
+<ins>Dick Shory</ins> : Ding dong polka, 1958.  
+<ins>Johnny and the Hurricanes</ins> : Red river rock, 1958.  
+<ins>Russ Conway</ins> : Angleterre, 02/09/1925-16/11/2000, Roulette  1959, Passing breeze 1960. 
+<ins>Cedric King Palmer</ins> : Angleterre, 13/02/1913-13/07/1999, Hackney carriage 1959.  
+<ins>The Shadow</ins> : FBI (1960), Dance one (1962), Apache (Jerry lordan : (1960), guitare électrique.  
+<ins>Ed (Edward) Cobb</ins> : Etats-unis, 25/02/1938-19/09/1999, <ins>Lincoln Mayorga</ins> : Etats-unis, 28/03/1937-03/07/2023, The piltdown men groupe, Macdonald’s cave  1960.  
+<ins>Les Sipolo, Jack Jay et son orchestre</ins> : Grand prix, Marche des marteaux, 1961.  
+<ins>Duane Eddy</ins> : Etats-unis, 26/04/1938-… Because the’re young  1960, Ballad of paladin 1962.  
+<ins>Bert Kaempfert</ins> : Allemagne, 16/10/1923-21/06/1980, A swinging safari  (orchestra) 1962.  
+<ins>Kenny Ball</ins> : Angleterre, 22/05/1930-07/03/2013, Midnight in moscow 1962, The pay-off 1962.  
+<ins>Clyde valley stompers</ins> (groupe) : Royaume-Uni, Peter and the wolf 1962.  
+<ins>Shane Fenton and the Fentones</ins> (groupe) : The breeze and I 1962.  
+<ins>Acker Bilk</ins> : Angleterre, 28/01/1929-02/11/2014, Lonely 1962.  
+<ins>Joe Loss and his orchestra</ins> : Angleterre, 22/06/1909-06/06/1990,  Must be madison 1962.  
+<ins>Quincy Jones</ins> : Etats-unis, 14/03/1933-…, Soul bossa nova 1962.  
+<ins>The tornados</ins> (groupe) : Angleterre, Telstar : rock n roll experience 1962. 
+<ins>The Surfaris</ins> (groupe) : Etats-unis, Wipe out 1962.  
 Boots Randolph : Etats-unis, 03/06/1927-03/07/2007, Yakety Sax, James « spider » rich, (saxophone) 1963.  
-Floyd Cramer : Etats-unis,  27/10/1933-31/12/1997,  Hot pepper 1965.  
-Herb alpert and the tijuana brass: Etats-unis, 31/03/1935-… Spanish flea 1965.  
+<ins>Floyd Cramer</ins> : Etats-unis,  27/10/1933-31/12/1997,  Hot pepper 1965.  
+<ins>Herb alpert and the tijuana brass</ins>: Etats-unis, 31/03/1935-… Spanish flea 1965.  
 
 Groupes, artistes, albums  
 Yann tiersen, français, naissance : 23/06/1970.  
