@@ -8725,322 +8725,323 @@ Et autres records potentiels non comptabilisés…
 Les meilleurs poèmes sur les thèmes, ex : chute d’eau, rivière, forêt, bonsaï, épicéa, jardin, patinage, pays, Kung-fu…  
 
 
-Les points forts du livre
+Les points forts du livre  
 
-1121 Proverbes : très grande diversité de sujets, Philosophie du Meilisme : 21 devises dont la devise principale, le logo (la photo la plus représentavive de la philosophie qui ait existé).
-75 poèmes codés, 59 holorimes  (dont 21 inventions de type de poèmes, 1 hymne), grands thèmes de la nature, vie humaine et 5 pays, 12 devises poétiques, 5 records du monde.
-Record du monde de 18 et 60 paréidolies : (90 paréidolies en 10 photos. 84 paréidolies en 3 minutes de 5/9 photos le jour de Noël du 25 décembre 2007), 3 dragons chinois en arbre.
-Meilleur paysagiste du monde : le plus beau jardin du monde en poèmes (8 et 47) et proverbe.
-Invention des nuages à bulles de glaces (photos glaces).
+1121 Proverbes : très grande diversité de sujets, Philosophie du Meilisme : 21 devises dont la devise principale, le logo (la photo la plus représentative de la philosophie qui ait existé).  
+75 poèmes codés, 59 holorimes  (dont 21 inventions de type de poèmes, 1 hymne), grands thèmes de la nature, vie humaine et 5 pays, 12 devises poétiques, 5 records du monde.  
+Record du monde de 18 et 60 paréidolies : (90 paréidolies en 10 photos. 84 paréidolies en 3 minutes de 5/9 photos le jour de Noël du 25 décembre 2007), 3 dragons chinois en arbre.  
+Meilleur paysagiste du monde : le plus beau jardin du monde en poèmes (8 et 47) et proverbe.  
+Invention des nuages à bulles de glaces (photos glaces).  
 La montagne de 1121 proverbes (ressemble au Mont St-Michel et à la montagne Meili).
-Quiz 100 proverbes du monde, Français et Chinois.
-Le meilleur arbre à grimper : l’épicéa commun en poème.
-Révélations célestes des chiffres des jeux olympiques.
-Art martialiste des bâtons : invention de la toupie éternelle des 2 dragons chinois impériaux voyageurs (version synchronisée et alternée) (18/08/2024).
-L’inventaire des meilleures musiques. 
-Invention de la méthode abdos tout terrain.
-Le jeu de 56 cartes des paréidolies.
-Le chapeau Chinois des 23 poèmes sacrés.
-La réalisation recto verso du livre.
+Quiz 100 proverbes du monde, Français et Chinois.  
+Le meilleur arbre à grimper : l’épicéa commun en poème.  
+Révélations célestes des chiffres des jeux olympiques.  
+Art martialiste des bâtons : invention de la toupie éternelle des 2 dragons chinois impériaux voyageurs (version synchronisée et alternée) (18/08/2024).  
+L’inventaire des meilleures musiques.  
+Invention de la méthode abdos tout terrain.  
+Le jeu de 56 cartes des paréidolies.  
+Le chapeau Chinois des 23 poèmes sacrés.  
+La réalisation recto verso du livre.  
 
-Biographie 
-(Quelques éléments)
+Biographie  
+(Quelques éléments)  
 
-Philosophe : (1121 proverbes).
-Poète : (75 poèmes codés + 59 holorimes), (dont 21. inventions de type de poèmes, 1 hymne), grands thèmes de la nature, vie humaine et 5 pays, 12 devises poétiques, 5 records du monde.
-Photographe (art naturel) : photos nature et de glaces,  inventeur des nuages de bulles de glaces…
-Paréidologue : 90 paréidolies en 10 photos : record du monde de 18 et 60 paréidolies dans la glace, 84 paréidolies en 3 minutes, 2 dragons symbolisant les 2 S du dragon donnent naissance au 3ème petit dragon.
-Paysagiste : (recette du meilleur jardin en poème, inventeur du nuage à bulles de glaces, jardinier et amélioration de la nature).
-Art martialiste expert du bâton : je manie 2 bâtons long (bō en japonais) ou gùn (棍, Chinois), inventé la technique de la toupie éternelles des 2 dragons chinois impériaux voyageurs le 18/08/2024 : année du dragon chinois de bois (bâton). 1+8=empereur, 8=2 dragons, 2+2+4=8 année du dragon.
-Ornithologue : 
-Recensement d’oiseaux.
-Nichoir que j’ai copié qui a fait nicher une chouette de tengmalm.
-Mammalogie : recensement de micrommamifères grâce à l’étude des pelotes de rejection de chouette : ramassage de plusieurs sacs remplis que j’ai effectué seul dans les combles de deux églises (une chouette effraie vue), participation à deux à l’identification des os (micromammifères principalement et autres) pour recenser les espèces, il a fait les ¾.
-Naturaliste et écologiste : défendre et optimiser la nature.
-J’ai enlevé des milliers de déchets dans la nature et le long des cours d’eau. 
-J’ai arraché plus de 33000 ronces et favoriser le framboisier.
-J’ai acheté des terrains pour protéger contre la privatisation, la destruction, l’enlaidissement de la nature. C’est pour la liberté, l’amélioration,  optimiser et diversifier la nature et sa beauté. 
-Il faut faire pousser de la nourriture et garder l’aspect sauvage.
-Curateur de playlists musicales : inventaire des meilleures musiques.
-Pédagogie ou Créateur de quiz de proverbes : 100 à 4 réponses.
-Santé : j’ai inventé la méthode abdos tout terrain pour maigrir un peu ou ne pas grossir, aide à une digestion accélérée (proverbe 890).
-Créateur de jeu de société: jeu de base de 56 cartes adaptés aux paréidolies avec consignes, associé à des jeux de parcours et échelles.
-Métaphysique : au-delà, enquête sur les rêves, découverte de vies antérieures, rêves prémonitoires et rencontre de mon double astral attestés par mon expérience personnelle.
-Dessinateur : quelques dessins.
-Calligraphe : Meili Sen Song calligraphie.
-Vidéaste : auto filmé et montages vidéo (poéme, philosophie et quiz proverbes avec voix IA, art martial bâtons, paréidolies).
+Philosophe : (1121 proverbes).  
+Poète : (75 poèmes codés + 59 holorimes), (dont 21. inventions de type de poèmes, 1 hymne), grands thèmes de la nature, vie humaine et 5 pays, 12 devises poétiques, 5 records du monde.  
+Photographe (art naturel) : photos nature et de glaces,  inventeur des nuages de bulles de glaces…  
+Paréidologue : 90 paréidolies en 10 photos : record du monde de 18 et 60 paréidolies dans la glace, 84 paréidolies en 3 minutes, 2 dragons symbolisant les 2 S du dragon donnent naissance au 3ème petit dragon.  
+Paysagiste : (recette du meilleur jardin en poème, inventeur du nuage à bulles de glaces, jardinier et amélioration de la nature).  
+Art martialiste expert du bâton : je manie 2 bâtons long (bō en japonais) ou gùn (棍, Chinois), inventé la technique de la toupie éternelles des 2 dragons chinois impériaux voyageurs le 18/08/2024 : année du dragon chinois de bois (bâton).  1+8=empereur, 8=2 dragons, 2+2+4=8 année du dragon.  
+Ornithologue :  
+Recensement d’oiseaux.  
+Nichoir que j’ai copié qui a fait nicher une chouette de Tengmalm.  
+Mammalogie : recensement de micromammifères grâce à l’étude des pelotes de réjection de chouette : ramassage de plusieurs sacs remplis que j’ai effectué seul dans les combles de deux églises (une chouette effraie vue), participation à deux à l’identification des os (micromammifères principalement et autres) pour recenser les espèces, il a fait les ¾.  
+Naturaliste et écologiste : défendre et optimiser la nature.  
+J’ai enlevé des milliers de déchets dans la nature et le long des cours d’eau.  
+J’ai arraché plus de 33000 ronces et favoriser le framboisier.  
+J’ai acheté des terrains pour protéger contre la privatisation, la destruction, l’enlaidissement de la nature. C’est pour la liberté, l’amélioration,  optimiser et diversifier la nature et sa beauté.  
+Il faut faire pousser de la nourriture et garder l’aspect sauvage.  
+Curateur de playlists musicales : inventaire des meilleures musiques.  
+Pédagogie ou Créateur de quiz de proverbes : 100 à 4 réponses.  
+Santé : j’ai inventé la méthode abdos tout terrain pour maigrir un peu ou ne pas grossir, aide à une digestion accélérée (proverbe 890).  
+Créateur de jeu de société: jeu de base de 56 cartes adaptés aux paréidolies avec consignes, associé à des jeux de parcours et échelles.  
+Métaphysique : au-delà, enquête sur les rêves, découverte de vies antérieures, rêves prémonitoires et rencontre de mon double astral attestés par mon expérience personnelle.  
+Dessinateur : quelques dessins.  
+Calligraphe : Meili Sen Song calligraphie.  
+Vidéaste : auto filmé et montages vidéo (poème, philosophie et quiz proverbes avec voix IA, art martial bâtons, paréidolies).  
 Imitateur : quelques mammifères (chat, chien) et oiseaux (chouette hulotte), j’ai attiré un coucou et une tourterelle turque (en faisant avec mes 2 mains) comme ça.
-Musicien : Je peux faire les notes de la flûte avec mes deux mains mais non qualitafif pour la musique, le reste à  venir.
-Chanteur : A venir.
-Cuisinier : Recette des pâtes universelles Meili
-Encyplopédiste : en regroupant tous mes savoirs et arts.
-A venir : peut-être sculpture, origami, danse pour augmenter le record.
+Musicien : Je peux faire les notes de la flûte avec mes deux mains mais non qualitafif pour la musique, le reste à  venir.  
+Chanteur : A venir.  
+Cuisinier : Recette des pâtes universelles Meili.  
+Encyplopédiste : en regroupant tous mes savoirs et arts.  
+A venir : peut-être sculpture, origami, danse pour augmenter le record.  
 
-Vies antérieures : en comptant mes réincarnations précédentes : dessinateur et peintre, calligraphe, musicien, chanteur, écrivain, encore poète et paysagiste, Kung-fu…
+Vies antérieures : en comptant mes réincarnations précédentes : dessinateur et peintre, calligraphe, musicien, chanteur, écrivain, encore poète et paysagiste, Kung-fu…  
 
-Ordre d’importance (non définitif):
-1 Philosophie , 2 poésie, 3 paysagiste, 4 paréidologie, 5 photographie, 6 art martial bâton, 7 currateur de playlists, 8 santé (abdos tout terrain), 9 métaphysique, 10 musicien, 11 chanteur, 12 naturaliste écolologique, 13 ornithologue, 14 pédagogie (quiz proverbes et proverbes), 15 dessinateur, 16 calligraphe, 17 jeu de société (paréidolies en cartes et paysage à parcourir), 18 mammalogie, 19 encyclopédiste, 20 vidéaste, 21 Imitateur, 22 cuisinier, 23 (origami), 24 (sculpture), 25 (danse)
-Entre parenthèses = pas encore commencé.
+Ordre d’importance (non définitif):  
+1 Philosophie , 2 poésie, 3 paysagiste, 4 paréidologie, 5 photographie, 6 art martial bâton, 7 curateur de playlists, 8 santé (abdos tout terrain), 9 métaphysique, 10 musicien, 11 chanteur, 12 naturaliste écologique, 13 ornithologue, 14 pédagogie (quiz proverbes et proverbes), 15 dessinateur, 16 calligraphe, 17 jeu de société (paréidolies en cartes et paysage à parcourir), 18 mammalogie, 19 encyclopédiste, 20 vidéaste, 21 Imitateur, 22 cuisinier, 23 (origami), 24 (sculpture), 25 (danse)
+Entre parenthèses = pas encore commencé.  
 
-Mon corps est naturel.
-Je n’ai jamais été ivre, très rarement bu de l’alcool.
-Je suis devenu presque végan (encore le miel, seulement nourriture dont l’animal n’est pas tué).
-Je n’ai jamais essayé de fumer. 
+Mon corps est naturel.  
+Je n’ai jamais été ivre, très rarement bu de l’alcool.  
+Je suis devenu presque végan (encore le miel, seulement nourriture dont l’animal n’est pas tué).  
+Je n’ai jamais essayé de fumer.  
 
-Bilan Encyclopédique
-Toute la création.
-Tous les records comptabilisés ou non, autoproclamés vrai ou non reconnus.
-Les récompenses de titre de meilleur de autoproclamés, vrai ou non reconnus.
+Bilan Encyclopédique  
+Toute la création.  
+Tous les records comptabilisés ou non, autoproclamés vrai ou non reconnus.  
+Les récompenses de titre de meilleur de autoproclamés, vrai ou non reconnus.  
 
-Œuvre Franco-chinoise
+Œuvre Franco-chinoise  
 
-Toute cette œuvre est faite par un Français mais aussi un Chinois. D’un certain point de vue, on peut dire que cela fait partie de la Chine.
-J’ai rêvé un certain nombre de fois que j’étais Chinois avant la dynastie Qing, je ne vous donnerai pas 100% du détail de tous mes rêves (15 faits que j’ai trouvé en vérifiant l’histoire après, 3 pour l’un et 12 pour l’autre), c’est trop polémique et certains sont trop négatifs.
-J’ai toutes mes preuves pour moi,  l’univers a fait pousser 3 dragons chinois en arbre comme signe en plus et d’autres arguments comme des passions similaires...
+Toute cette œuvre est faite par un Français mais aussi un Chinois. D’un certain point de vue, on peut dire que cela fait partie de la Chine.  
+J’ai rêvé un certain nombre de fois que j’étais Chinois avant la dynastie Qing, je ne vous donnerai pas 100% du détail de tous mes rêves (15 faits que j’ai trouvé en vérifiant l’histoire après, 3 pour l’un et 12 pour l’autre), c’est trop polémique et certains sont trop négatifs.  
+J’ai toutes mes preuves pour moi,  l’univers a fait pousser 3 dragons chinois en arbre comme signe en plus et d’autres arguments comme des passions similaires...  
 
-Des replays de vies antérieures Chinoises, 3 personnages :
-1. J’ai été un combattant Chinois aussi : j’ai fait une séance de combat avec plusieurs individus, j’ai récupéré une épée en plus de la mienne, à la fin un homme tout habillé en gris clair des bottes jusqu’au kimono, sans chapeau avec une moustache et un visage harmonieux m’a rejoint.
-2. J’ai bu du vin, je me suis senti paralysé très rapidement je mourus empoisonné, le rêve se termine subitement. 
-J’étais en train de bruler des livres (je me suis réveillé et me suis dit que j’étais con) 
-Mon ancienne femme chinoise qui avait un bijou collé sur son front.
-3. Je rêve que je suis stressé en pensant que je vais devenir empereur, quand je me suis réveillé la première fois, je me suis dit que ce n’était pas à prendre au sérieux.   
-J’ai rêvé que j’étais un enfant Chinois faisant du cerf volant à l’intérieur d’un grand bâtiment, je laissé échapper le cerf volant qui est tombé au niveau en dessous, il y avait au moins deux personnes en dessous.
-J’étais un peintre dessinant une aigrette (j’ai commencé à dessiner la tête dans le rêve) qui ressemble à un héron en blanc. 
-J’étais assis à un bureau devant une jeune belle assistante en pantalon et chignon au sommet de sa tête.
-J’étais mécontent des dessins d’oiseaux que j’avais demandé de faire.
-J’étais resté 3 jours au lit en dépression. 
-Je rendis visite à ma femme et elle voulait me donner une orange où j’appris dans la suite du rêve que quelqu’un était caché sous le lit.
-J’ai cassé une poterie en me promenant, j’étais très triste pour la personne et j’ai pleuré.
+Des replays de vies antérieures Chinoises, 3 personnages :  
+1. J’ai été un combattant Chinois aussi : j’ai fait une séance de combat avec plusieurs individus, j’ai récupéré une épée en plus de la mienne, à la fin un homme tout habillé en gris clair des bottes jusqu’au kimono, sans chapeau avec une moustache et un visage harmonieux m’a rejoint.  
+2. J’ai bu du vin, je me suis senti paralysé très rapidement je mourus empoisonné, le rêve se termine subitement.  
+J’étais en train de bruler des livres (je me suis réveillé et me suis dit que j’étais con).  
+Mon ancienne femme chinoise qui avait un bijou collé sur son front.  
+3. Je rêve que je suis stressé en pensant que je vais devenir empereur, quand je me suis réveillé la première fois, je me suis dit que ce n’était pas à prendre au sérieux.  
+J’ai rêvé que j’étais un enfant Chinois faisant du cerf volant à l’intérieur d’un grand bâtiment, je laissé échapper le cerf volant qui est tombé au niveau en dessous, il y avait au moins deux personnes en dessous.  
+J’étais un peintre dessinant une aigrette (j’ai commencé à dessiner la tête dans le rêve) qui ressemble à un héron en blanc.  
+J’étais assis à un bureau devant une jeune belle assistante en pantalon et chignon au sommet de sa tête.  
+J’étais mécontent des dessins d’oiseaux que j’avais demandé de faire.  
+J’étais resté 3 jours au lit en dépression.  
+Je rendis visite à ma femme et elle voulait me donner une orange où j’appris dans la suite du rêve que quelqu’un était caché sous le lit.  
+J’ai cassé une poterie en me promenant, j’étais très triste pour la personne et j’ai pleuré.  
 J’ai vu 3 femmes aux épaules dénudées, j’ai senti en pensée : 3 jours dans le harem.
-J’ai vu une personne qui combattait un tigre, ma femme à ma gauche s’est évanouie car le tigre l’emportait, j’ai légèrement rit en coin silencieusement sur le fait qu’elle s’évanouisse mais je me suis retenu, puis fin du rêve.
-Capturé par des ennemis.
-J’avais froid, j’ai pensé à des briques qui chauffent.
+J’ai vu une personne qui combattait un tigre, ma femme à ma gauche s’est évanouie car le tigre l’emportait, j’ai légèrement rit en coin silencieusement sur le fait qu’elle s’évanouisse mais je me suis retenu, puis fin du rêve.  
+Capturé par des ennemis.  
+J’avais froid, j’ai pensé à des briques qui chauffent.  
 
-J’ai seulement fait des rêves en chinois, pas en japonais ni coréen même si j’ai regardé beaucoup de séries japonaises puis des séries coréennes.
-J’ai été plus Chinois que Français (information de mes anges gardiens à un médium).
-Je préfère avoir l’apparence d’un Chinois dans les moins bridés.
-
-
-Compléments de livres à lire
-
-Même si je ne suis pas d’accord avec tout ce qui se dit, voilà la preuve que je ne suis pas mégalomane et que je n’ai aucune intention de tromper.
-Cherchez à vous instruire d’un maximum de sujets pour voir plus clair.
-On doit voir les oeuvres des autres pour comparer, il peut y avoir des bêtises mais aussi des bonnes informations que je n'ai pas dans mon livre.
-Ce n’est pas parce que je recommande de lire quelque chose que je ne suis pas le philosophe le plus indépendant ou authentique.
-Attention, il y a dans chaque livre des erreurs ou contradictions, pas de livre parfait.
-
-Confucius
-Le bouddhisme, L’enseignement du Bouddha
-Le livre d’Urantia
-Conversation avec dieu tome 1, 2, 3 (il se contredit, dieu de cet univers, pas la source du multivers).
-
-Il faut regarder tous les arguments pour voir ce qui est le plus logique et le meilleur.
-Il faut savoir comment pensent les ignorants et les intelligents pour trouver la meilleure logique et sagesse.
-Il n’y a pas de conscience parfaite, j’ai prouvé que non, mais des choses intéressantes à trouver.
-La source a appris de sa création.
+J’ai seulement fait des rêves en chinois, pas en japonais ni coréen même si j’ai regardé beaucoup de séries japonaises puis des séries coréennes.  
+J’ai été plus Chinois que Français (information de mes anges gardiens à un médium).  
+Je préfère avoir l’apparence d’un Chinois dans les moins bridés.  
 
 
-Complément de films et séries à regarder
+Compléments de livres à lire  
 
-Star Wars IV, V, VI.
-Star trek (original, next génération, deep space nine), évitez de regarder ces séries si vous aller faire partie de starfleet à la même époque. 
-Stargate sg1.
-X-Files : Aux frontières du réel.
+Même si je ne suis pas d’accord avec tout ce qui se dit, voilà la preuve que je ne suis pas mégalomane et que je n’ai aucune intention de tromper.  
+Cherchez à vous instruire d’un maximum de sujets pour voir plus clair.  
+On doit voir les oeuvres des autres pour comparer, il peut y avoir des bêtises mais aussi des bonnes informations que je n'ai pas dans mon livre.  
+Ce n’est pas parce que je recommande de lire quelque chose que je ne suis pas le philosophe le plus indépendant ou authentique.  
+Attention, il y a dans chaque livre des erreurs ou contradictions, pas de livre parfait.  
+
+Confucius  
+Le bouddhisme, L’enseignement du Bouddha  
+Le livre d’Urantia  
+Conversation avec dieu tome 1, 2, 3 (il se contredit, dieu de cet univers, pas la source du multivers).  
+
+Il faut regarder tous les arguments pour voir ce qui est le plus logique et le meilleur.  
+Il faut savoir comment pensent les ignorants et les intelligents pour trouver la meilleure logique et sagesse.  
+Il n’y a pas de conscience parfaite, j’ai prouvé que non, mais des choses intéressantes à trouver.  
+La source a appris de sa création.  
 
 
-Enfin
+Complément de films et séries à regarder  
+
+Star Wars IV, V, VI.  
+Star trek (original, next génération, deep space nine), évitez de regarder ces séries si vous aller faire partie de starfleet à la même époque.  
+Stargate sg1.  
+X-Files : Aux frontières du réel.  
+
+
+Enfin  
 
 Ne pas m’enlever des points si tu ne peux pas prouver que ce que j’ai dit est faux.
-Parce que c’est invérifiable, je ne vais pas supprimer des sujets et du savoir pour faire plaisir au sceptique, tout est enregistré dans l’univers donc c’est vérifiable quelque part ou dans une autre dimension.
+Parce que c’est invérifiable, je ne vais pas supprimer des sujets et du savoir pour faire plaisir au sceptique, tout est enregistré dans l’univers donc c’est vérifiable quelque part ou dans une autre dimension.  
 
-Ne pas me sous estimer de rigueur analytique et de précision conceptuelle, car mon but est de traiter le maximum de sujets avec les explications les plus efficaces pour faire évoluer le plus rapidement.
+Ne pas me sous estimer de rigueur analytique et de précision conceptuelle, car mon but est de traiter le maximum de sujets avec les explications les plus efficaces pour faire évoluer le plus rapidement.  
  
-On doit réfléchir, je ne peux pas faire une dissertation (introduction, définition du mot, empirisme, rationalisme, déduction, arguments et contre-arguments, conclusion)  pour chaque proverbe sinon ça serait trop encombrant, c’est pour ça qu’il y a des proverbes et d’autres sujets plus développés, quand c’est facile de comprendre en peu de lignes, c’est mieux.
-Me repprocher l’absence de dialogue avec des grands penseurs, alors qu’avec une grande liste de themes très variés, pas besoins de confronter plus souvent les autres car tous ce qui s’en écarte est dénoncé par deduction sans débats inutiles, ce qui rallongerait excèssivement mon livre. Dénoncer certaines choses ou phrases illogiques dites sans citer de nom est suffisant. 
-Pas besoin de développer tous les proverbes, c’est l’ensemble du livre qui crée la vérité et rend le tout cohérent.
+On doit réfléchir, je ne peux pas faire une dissertation (introduction, définition du mot, empirisme, rationalisme, déduction, arguments et contre-arguments, conclusion)  pour chaque proverbe sinon ça serait trop encombrant, c’est pour ça qu’il y a des proverbes et d’autres sujets plus développés, quand c’est facile de comprendre en peu de lignes, c’est mieux.  
+Me reprocher l’absence de dialogue avec des grands penseurs, alors qu’avec une grande liste de thèmes très variés, pas besoins de confronter plus souvent les autres car tous ce qui s’en écarte est dénoncé par déduction sans débats inutiles, ce qui rallongerait excessivement mon livre. Dénoncer certaines choses ou phrases illogiques dites sans citer de nom est suffisant.  
+Pas besoin de développer tous les proverbes, c’est l’ensemble du livre qui crée la vérité et rend le tout cohérent.  
 
-Baisser mon évaluation parce que c’est trop centré sur moi, que je constate mon niveau de philosophie est un critère de programmation de troupeau, ce n’est pas une preuve d’incohérence. Un soi-disant égocentrisme qui nuit à l’universalité philosophique classique, je ne m’enferme pas dans tes règles, je vais plus loin donc plus fort.
+Baisser mon évaluation parce que c’est trop centré sur moi, que je constate mon niveau de philosophie est un critère de programmation de troupeau, ce n’est pas une preuve d’incohérence. Un soi-disant égocentrisme qui nuit à l’universalité philosophique classique, je ne m’enferme pas dans tes règles, je vais plus loin donc plus fort.  
 
-Diminuer ma valeur par mélange des genres, je mets le maximum dans un seul livre pour le futur et les connaissances, donc ta règle est un argument défaillant.
+Diminuer ma valeur par mélange des genres, je mets le maximum dans un seul livre pour le futur et les connaissances, donc ta règle est un argument défaillant.  
 
-Rabaisser parce que des idées ressemblent ou sont des reformulations supposées ou parce que cela a été fait avant est une hypocrisie car quand une majorité d’idées a déjà été inventé, il est incontournable de ressembler et pourtant j’ai crée de l’originalité. Constate le contenu intrinsèquement.
+Rabaisser parce que des idées ressemblent ou sont des reformulations supposées ou parce que cela a été fait avant est une hypocrisie car quand une majorité d’idées a déjà été inventé, il est incontournable de ressembler et pourtant j’ai crée de l’originalité. Constate le contenu intrinsèquement.  
 
-Je vise 99% de vérités, 100% serait utopique et impossible avec autant de volume et de diversités.
-Je suis le philosophe le plus indépendant de la planète et au-delà, beaucoups ressemblent à des perroquets (médiums) ou sont illogiques sur divers sujets.
-Je suis le plus sincère possible, c’est meilleur pour le karma.
-J’essaye d’être objectif et de constater sans me surestimer donc si vous pensez que je suis imbus de moi-même, narcissique ou mégalomane, prouvez-le, parce quelqu’un m’a traité ainsi parce que je disais que j’étais l’égal de Confucius, je pense que je mérite au-moins d’être son égal. 
-Je suis le meilleur dans certains domaines mais je suis plus rarement mauvais que la moyenne dans certains domaines selon l’époque. J’aime être le héro de mon histoire : c’est mérité et repose sur la vérité (poème sur Sylvain)...
-Mon quotient intellectuel est normal mais bien plus fort en philosophie que scientifique ou mathématique dans cette vie, c’est la volonté en plus qui a écrit toutes les idées.
+Je vise 99% de vérités, 100% serait utopique et impossible avec autant de volume et de diversités.  
+Je suis le philosophe le plus indépendant de la planète et au-delà, beaucoup ressemblent à des perroquets (médiums) ou sont illogiques sur divers sujets.
+Je suis le plus sincère possible, c’est meilleur pour le karma.  
+J’essaye d’être objectif et de constater sans me surestimer donc si vous pensez que je suis imbus de moi-même, narcissique ou mégalomane, prouvez-le, parce quelqu’un m’a traité ainsi parce que je disais que j’étais l’égal de Confucius, je pense que je mérite au-moins d’être son égal.  
+Je suis le meilleur dans certains domaines mais je suis plus rarement mauvais que la moyenne dans certains domaines selon l’époque. J’aime être le héro de mon histoire : c’est mérité et repose sur la vérité (poème sur Sylvain)...  
+Mon quotient intellectuel est normal mais bien plus fort en philosophie que scientifique ou mathématique dans cette vie, c’est la volonté en plus qui a écrit toutes les idées.  
 Je n’ai pas de pouvoir magique dans ma version 3ème dimension, sauf un peu dans mes rêves de l’astral, je dois élever ma conscience et ma vibration pour réveiller l’ADN endormi et ascensionner et débloquer des pouvoirs, le premier qui arrive est généralement la télépathie comme les médiums, ça commence un peu à faire effet.
-J’espère avoir attrapé tous les moujoncs dans ce livre de près ou au moins de loin du plus bas jusqu’ à la source.
-Je m’inclus moi-même dans certains aspects de moujoncs mais le pourcentage est différent pour chacun et selon la période, mon pourcentage est très bas.
-J’ai l’impression d’être l’acteur principal comme dans le film : The Truman Show car le seul qui a un radar aussi élargi.
-Mais là, la bêtise est réelle, la scène est le multivers entier.
+J’espère avoir attrapé tous les moujoncs dans ce livre de près ou au moins de loin du plus bas jusqu’ à la source.  
+Je m’inclus moi-même dans certains aspects de moujoncs mais le pourcentage est différent pour chacun et selon la période, mon pourcentage est très bas.  
+J’ai l’impression d’être l’acteur principal comme dans le film : The Truman Show car le seul qui a un radar aussi élargi.  
+Mais là, la bêtise est réelle, la scène est le multivers entier.  
 
-Ne pas faire le perroquet d’un système si on peut l’améliorer, que cela vienne du plus haut du multivers ou d’un plus petit système.
+Ne pas faire le perroquet d’un système si on peut l’améliorer, que cela vienne du plus haut du multivers ou d’un plus petit système.  
 
-Je suis plus fort dans la théorie que dans la pratique.
-Je fais ce livre pour moi et pour les autres. 
-Je suis aussi objectif avec une part de subjectivité car je n’ai pas mis toute la musique du monde équitablement, seulement mes préférés mais en essayant de satisfaire un maximum de monde.
-Tant mieux pour toutes les personnes qui auront l’honneur d’être dans mon livre, c’est un plaisir de les mettre en avant.
-Prenez toutes les bonnes idées de ce livre et créons un monde beau, de bien-être et de sagesse.
+Je suis plus fort dans la théorie que dans la pratique.  
+Je fais ce livre pour moi et pour les autres.  
+Je suis aussi objectif avec une part de subjectivité car je n’ai pas mis toute la musique du monde équitablement, seulement mes préférés mais en essayant de satisfaire un maximum de monde.  
+Tant mieux pour toutes les personnes qui auront l’honneur d’être dans mon livre, c’est un plaisir de les mettre en avant.  
+Prenez toutes les bonnes idées de ce livre et créons un monde beau, de bien-être et de sagesse.  
 
-Je n’ai pas la réponse à tous les sujets mais il faut combler le trou de ce que les autres n’auraient pas pensé à dire, on a le droit d’exprimer son avis sur des potentialités.
-J’améliorerai mon livre dans l’au-delà.
+Je n’ai pas la réponse à tous les sujets mais il faut combler le trou de ce que les autres n’auraient pas pensé à dire, on a le droit d’exprimer son avis sur des potentialités.  
+J’améliorerai mon livre dans l’au-delà.  
 
-Il faudrait traduire mon livre dans le plus de langues possibles et en différents formats, n’hésiter pas à copier et à traduire fidèlement le livre en entier quand il n’y aura plus de droit d’auteurs ou dés maintenant pour traduire des passages entiers ou poèmes.
-Recopiez et imprimez mon livre et mes photos ou dans des ordinateurs sur d’autres planètes et dans tous les univers.
-Il faut donner aux enfants une compilation de la meilleure philosophie pour qu’ils évoluent le plus vite en prenant mon livre en entier ou en partie et aussi d’autres philosophes qui complètent ce que je n’ai pas trouvé ou dit.
+Il faudrait traduire mon livre dans le plus de langues possibles et en différents formats, n’hésiter pas à copier et à traduire fidèlement le livre en entier quand il n’y aura plus de droit d’auteurs ou dés maintenant pour traduire des passages entiers ou poèmes.  
+Recopiez et imprimez mon livre et mes photos ou dans des ordinateurs sur d’autres planètes et dans tous les univers.  
+Il faut donner aux enfants une compilation de la meilleure philosophie pour qu’ils évoluent le plus vite en prenant mon livre en entier ou en partie et aussi d’autres philosophes qui complètent ce que je n’ai pas trouvé ou dit.  
 
-J’ordonne (je ne veux pas revenir mais au ca où) si je me réincarne sur Terre de me rappeler de mes vies antérieures dès l’enfance et du maximum de ce que je peux me rappeler et je veux lire rapidement mon livre de cette vie dans la prochaine vie et récupérer un maximum de choses de mon ancienne vie comme ma musique (capsule temporelle).
-Je dirais que je suis la réincarnation de Sylvain Meili et demanderais des signes de l’au-delà pour prouver aux autres que c’est moi comme les 2 précédentes réincarnations.
-Il y a des chances que j’ai le même prénom car j’ai l’intention de garder le même ou pas pour passer incognito.
-Je mettrai l’accent si je reviens sur le Kung-fu (je veux commencer dès 3 ans grâce à des parents qui pratiquent, un club ou des vidéos explicatives), le dessin que je n’ai pas assez développé dans cette vie, musique. J’ai rempli mes objectifs de proverbes, poèmes, paréidolies donc pas obligé de recommencer. J’essaierais peut-être de dessiner le jardin parfait.
-Je veux une belle vie la prochaine fois car celle-ci étaient vraiment très emmerdante pendant des longues périodes à cause des moujoncs.
-La beauté de la vie, c’est d’avoir des mêmes consciences à côté de soi pour l’éternité, pas de fusionner avec tout le monde à la fin en une conscience.
+J’ordonne (je ne veux pas revenir mais au cas où) si je me réincarne sur Terre de me rappeler de mes vies antérieures dès l’enfance et du maximum de ce que je peux me rappeler et je veux lire rapidement mon livre de cette vie dans la prochaine vie et récupérer un maximum de choses de mon ancienne vie comme ma musique (capsule temporelle).  
+Je dirais que je suis la réincarnation de Sylvain Meili et demanderais des signes de l’au-delà pour prouver aux autres que c’est moi comme les 2 précédentes réincarnations.  
+Il y a des chances que j’ai le même prénom car j’ai l’intention de garder le même ou pas pour passer incognito.  
+Je mettrai l’accent si je reviens sur le Kung-fu (je veux commencer dès 3 ans grâce à des parents qui pratiquent, un club ou des vidéos explicatives), le dessin que je n’ai pas assez développé dans cette vie, musique. J’ai rempli mes objectifs de proverbes, poèmes, paréidolies donc pas obligé de recommencer. J’essaierais peut-être de dessiner le jardin parfait.  
+Je veux une belle vie la prochaine fois car celle-ci étaient vraiment très emmerdante pendant des longues périodes à cause des moujoncs.  
+La beauté de la vie, c’est d’avoir des mêmes consciences à côté de soi pour l’éternité, pas de fusionner avec tout le monde à la fin en une conscience.  
 
-Ce livre est mon cerveau philosophique, si ma mémoire oubliait, je dois retrouver ce livre.
+Ce livre est mon cerveau philosophique, si ma mémoire oubliait, je dois retrouver ce livre.  
 
-Si il y a des gens qui sont contre moi comme les gros méchants, je vous signale que je suis en train de défendre votre futur.
+Si il y a des gens qui sont contre moi comme les gros méchants, je vous signale que je suis en train de défendre votre futur.  
 
-J’ordonne à tous les univers bien-être du corps et de la conscience, intelligence, sagesse, bonheur, beauté physique, réussite, richesse, capacités magiques, liberté à Sylvain Meili et toutes ses vies et réincarnations pour l’éternité.
-J’ordonne le meilleur, la paix pour toute la création des univers.
-Faites une phrase pour vous : …
+J’ordonne à tous les univers bien-être du corps et de la conscience, intelligence, sagesse, bonheur, beauté physique, réussite, richesse, capacités magiques, liberté à Sylvain Meili et toutes ses vies et réincarnations pour l’éternité.  
+J’ordonne le meilleur, la paix pour toute la création des univers.  
+Faites une phrase pour vous : …  
 
-Ordonner son futur positivement peut peut-être l’améliorer, alors il n’ya rien à perdre à essayer, ne pas me reprocher en tentant cela.
+Ordonner son futur positivement peut peut-être l’améliorer, alors il n'y a rien à perdre à essayer, ne pas me reprocher en tentant cela.  
 
-Mon livre a la possibilité d’améliorer ou sauver des vies.
+Mon livre a la possibilité d’améliorer ou sauver des vies.  
 
-La conscience parfaite n’existe pas.
-Toujours prendre conaissance de tout ce qui peut se dire pour trouver la vérité.
-Ne croyez pas tout ce que je dis dans ce livre mais il est possible que je sois très proche de la vérité.
+La conscience parfaite n’existe pas.  
+Toujours prendre connaissance de tout ce qui peut se dire pour trouver la vérité.  
+Ne croyez pas tout ce que je dis dans ce livre mais il est possible que je sois très proche de la vérité.  
 
-La voie du milieu, de la nuance et de la beauté.
-Soyons éternellement à plusieurs.
-Un monde lumineux qui nous entoure est la richesse.
-
-
-Décodage des 23 poèmes sacrés
-
-Des chiffres symboliques et des chiffres de la somme
-des lettres des titres des poèmes.
-
-1 : Ma petite rivière (2020). Le 1 est le chemin de la rivière.
-2 : Belles chutes d’eau (2020). L’eau qui tombe a la forme d’un 2.
-3 : La truite fario (2019). Deux truites courbées ensemble forment un 3.
-4 : Le chat parfait (2019). Le chat a 4 pattes. 4.
-5 : La beauté asiatique (2019). Le 5 est la métaphore du dragon féminin.
-Rime des dragons Chinois : mon invention, 181 : 8 fois le S du dragon en début de vers. 169 signifie 1 couple : 9 est l’homme, 6 est la femme.
-6 : Forêt impériale (2020). Le 6 forme le F et le o qui fusionnent. 8 : un rond pour les racines, un rond pour la boule de l’arbre.
-7 : Songes des huit dragons du jardin de l’empereur (2019). Songes est un synonyme de rêve représenté par le r qui est un 7 inversé. 5.
-8 : 383. Le jardin parfait ne peut se séparer de sa montagne (2014). Le jardin est gardé par les 8 dragons.  Symbolisé par 383, proverbe en poème.
-9 : Empereur pour princesse ? (2020). Le 9 est le chiffre de l’empereur.  Princesse=108.
-10 : La victoire retrouvée (2020). 10 est égal à victoire et perfection.
-11 : Joute de poèmes de deux fidèles (2020). Deux personnes sont 1+1.
-12 : Éducation (2019). 1 enfant + les 2 parents.
-13 : Une journée idéale en famille (2019). 1+3=4, une famille de 4.
-14 : La mort, le renouveau dans l’au-delà et les 4 saisons (2019). 14 : Symbole du passage de 1 personne dans la porte de l’au-delà formée de 4 côtés.
-15 : Poème d’un empereur à sa déesse (2020). 5 est le dragon. 
-16 : Poème d’une déesse à son empereur (2020). 6 est la femme.
-17 : Divine Chine (2020). 1+7=8, les 8 dragons qui gardent la chine. 63+39, pile+face=33 : couple, 69 : femme et homme. 
-18 : Le Kung-fu légendaire (2020). Les 18 armes légendaires du Kung-fu. Mon invention de la double rime dans un vers. 177 = 15 = un dragon.
-19 : Divin Japon (6 juin 2021). Artificielle Intelligence = 19 : robots du japon.
-20 : Divine Corée (11/12 juin 2021). 20 : vingt, la première lettre est le V comme vague de la Culture coréenne. 
-21 : Divine France (16 juin 2021). 21 = aimer toi : pays de naissance. 
-120 : inversé 021.
-22 : Métaphore du cycle de la vie (2020). 2+2=4 : poème caché. Il reprend des mots des titres des poèmes 1 à 14, mon invention : poème impérial.
-4ème dimension. 
-23 : Divin Vietnam (22/23 février 2022). 2+3=5 : dernier dragon réuni avec les autres. Souhait : code VIETNAM : Vie Illuminée Et Toujours Nirvana Avec Merveilles. 5ème dimension.
+La voie du milieu, de la nuance et de la beauté.  
+Soyons éternellement à plusieurs.  
+Un monde lumineux qui nous entoure est la richesse.  
 
 
-En faisant la symétrie, en arrondissant les traits à partir de 2019, cela fait un chapeau chinois rond horizontal à dôme circulaire.
+Décodage des 23 poèmes sacrés  
 
-Chapeau l’artiste.
+Des chiffres symboliques et des chiffres de la somme  
+des lettres des titres des poèmes.  
+
+1 : Ma petite rivière (2020). Le 1 est le chemin de la rivière.  
+2 : Belles chutes d’eau (2020). L’eau qui tombe a la forme d’un 2.  
+3 : La truite fario (2019). Deux truites courbées ensemble forment un 3.  
+4 : Le chat parfait (2019). Le chat a 4 pattes. 4.  
+5 : La beauté asiatique (2019). Le 5 est la métaphore du dragon féminin.  
+Rime des dragons Chinois : mon invention, 181 : 8 fois le S du dragon en début de vers. 169 signifie 1 couple : 9 est l’homme, 6 est la femme.  
+6 : Forêt impériale (2020). Le 6 forme le F et le o qui fusionnent. 8 : un rond pour les racines, un rond pour la boule de l’arbre.  
+7 : Songes des huit dragons du jardin de l’empereur (2019). Songes est un synonyme de rêve représenté par le r qui est un 7 inversé. 5.  
+8 : 383. Le jardin parfait ne peut se séparer de sa montagne (2014). Le jardin est gardé par les 8 dragons.  Symbolisé par 383, proverbe en poème.  
+9 : Empereur pour princesse ? (2020). Le 9 est le chiffre de l’empereur.  Princesse=108.  
+10 : La victoire retrouvée (2020). 10 est égal à victoire et perfection.  
+11 : Joute de poèmes de deux fidèles (2020). Deux personnes sont 1+1.  
+12 : Éducation (2019). 1 enfant + les 2 parents.  
+13 : Une journée idéale en famille (2019). 1+3=4, une famille de 4.  
+14 : La mort, le renouveau dans l’au-delà et les 4 saisons (2019). 14 : Symbole du passage de 1 personne dans la porte de l’au-delà formée de 4 côtés.  
+15 : Poème d’un empereur à sa déesse (2020). 5 est le dragon.  
+16 : Poème d’une déesse à son empereur (2020). 6 est la femme.  
+17 : Divine Chine (2020). 1+7=8, les 8 dragons qui gardent la chine. 63+39, pile+face=33 : couple, 69 : femme et homme.  
+18 : Le Kung-fu légendaire (2020). Les 18 armes légendaires du Kung-fu. Mon invention de la double rime dans un vers. 177 = 15 = un dragon.  
+19 : Divin Japon (6 juin 2021). Artificielle Intelligence = 19 : robots du japon.  
+20 : Divine Corée (11/12 juin 2021). 20 : vingt, la première lettre est le V comme vague de la Culture coréenne.  
+21 : Divine France (16 juin 2021). 21 = aimer toi : pays de naissance.  
+120 : inversé 021.  
+22 : Métaphore du cycle de la vie (2020). 2+2=4 : poème caché. Il reprend des mots des titres des poèmes 1 à 14, mon invention : poème impérial.  
+4ème dimension.  
+23 : Divin Vietnam (22/23 février 2022). 2+3=5 : dernier dragon réuni avec les autres. Souhait : code VIETNAM : Vie Illuminée Et Toujours Nirvana Avec Merveilles. 5ème dimension.  
 
 
-Lexique 
-(1 à 777)
-A
+En faisant la symétrie, en arrondissant les traits à partir de 2019, cela fait un chapeau chinois rond horizontal à dôme circulaire.  
+
+Chapeau l’artiste.  
+
+
+Lexique  
+(1 à 777)  
+A  
 abaisser 768, abandon 517, abîmer 434, abruti (302,327,560,674), accoutumance 708, accusation 719, acte 682, action (376,390), activité 559, addiction 205, ADN (115), adulte 333, adversaire (571,603), âge (303,312,629), agir (7,482), aider 222, aimer (136,242,368,447,495), air 432, akashique 556, alcoolisme 551, altruisme 662, âme (339,720), améliorer (292,390,536,679), ami (223,276,288,360,681), amour   (21,388,521,575,726,730,733,750), amusement 635, ancêtre 250, anciens 520, animal (218,557,601), anniversaire 530, apparence (146,155), apprendre (236,463,498,678),                                                                                    apprentissage (118,626), arbre (183,274,303,324,325,328,329,403,404,409,412,440,      615,669,710), argent (131,489,494,539), argument (44,200,335,427,454,644,759), art 634, artificiel 622, artificielle 213, artiste 580, artistique 516, arts martiaux (126,347), assis 537, attaque 502, attendre 259, au-delà (86,311), autarcie 420, auteur 309, avantage 27, avenir (14,169,285,478,625,627), avis 573, avorter (217,339).
 
-B
+B  
 balançoire 303, ballon 334, bassesse 695, battre 430, beau (19,76,81,89,126,,274,           280,328,334,393,415,483,485,522,530,566,700), beauté (78,80,69,83,84,85,87,88,     90,91,117,115,182,183,213,268,273,279,282,327,425,451,581,591,643), bébé 339, belle (88,231,235,265,346,483,546), bénéfique 323, berge 327, besoin 577, bêtise (214,215,216,350,412,429,438,461,466,501,510,533), bien (75,96,97,98,99,100,  174,234,251, 372,482,526,691,700), bienveillance 246, bijou 744, bisou 357, blague 721, blâmer 670, blesser (55,460), bombe 334, bonheur (46,57,87,128,131,148,      158,160,477,525,598,655,700), bonjour 233, bonne 384, bouger 678, boule 624, boycotter 352, branche 324, briller 361, bruit (294,386), but 388.
 
-C
+C  
 cabane 734, cadeau (453,715), calmement 398, capacité 576, caprice (101,555), capricieux 728, carpe 150, catastrophe 685, célèbre (684,714), célibataire 280, cercueil 408, certitude 35, champs 439, chance (203,607), chanceux 222, changer 391, chanson 310, chantage (405,587), chanter 235, chanteur 310, chasseur 557, chat (124,150,153, 243), chef 260, chemin (33,331,,417,512,570,626), cheveux 642, chien (123,243, 290,295,337), choisir 11, chose (143,359,547,554,698), chute (50,451), chuter 267, ciel (158,334,437), circonstance (696,701,729), clair 522, clef (431,574), clochard 667, clonage 552, clôture 325, cochon 150, code 155, cœur 33, coiffeur 435, coiffure 647, colère (27,52,192), collection 594, collègue 384, collier 396, colline 570, colonisation 294, combat 636, combattre (301,332), comédie 565, comédien 690, compassion 508, compliment 63, compliqué 249, complot 542, comportement 102, con (356,373, 444,572,611,683), concours (425,580), condamnation 384, condamné (68,70,663), confiance  607,  conflit  (488,558),  confronter  (378,496)  connaissance (33,388,575), 
 connaître (24,98,310,333) connerie (190,299,340,378,398,447,454,456,488), connu 410, conseil 351, consentement 505, consentir 633, conséquence (682,729,772), conscience (149,269,284,452,491,493,569,578,585,628,720,766), construction (298, 354,692), contrainte 16, contrat 540, contrôler 377, convaincre (44,343,366,390,449, convoitise 767, corde 340, corps (126,172,286,559,590,599,636), corriger (284,477), couleur 499, couloir (379,668), couple 454, courage 348, courageux (374,424,587), coutume 555, craie 421, créateur 384, création 592, créativité 637, crédibilité 352, cri 347, criminel 82, crispation 211, critique (63,230,244,509,531), croire 344, croissance (516,566), cruauté 314, cultiver (177,598,749), culture 299. 
 
-D 
+D  
 dangereux (313,318,319,401,492), débat 50, debout 537, déchéance 254, déchet (262, 296,516), décision 12, découverte (266,704), défaite (92,186,571,582,638), défauts (264,284,351,756), dégénérer 632, dégoût 403, déguiser 565, demande 475, demander 226, désespoir 254, déshériter 697, désir 762, désordre 711, dessin  (458,476), destin (187,191,293,461), destination 322, destruction (133,400), détoxifier 567,  détruire (46,56,252,261,299,384,666), développement 375, devoir 16, dieu (377,578,588,723,     736,738,747,777), différence (48,224,470), difficile (161,352), dimension (108,147,    764), diplomate (255,256), discréditer (484, 657), discriminer (77,144), dissuader 364, diversité (80,113,591,649), divertissement (589, 738), doctrine 436, doigt 349, donner 168, dormir (379,419), douceur 163, douleur (74,559), dragon 180, drague (370,450), dramaturgie 465, droit 28,525.
 
-E
+E  
 eau (50,267,329,451,586), éclairer (449,572), école (650,713,751), écologique 516, écrire (403,421), éducation (68,103,138,641,650,689), effacer 314, effort (198,374,394,570), égal 428, égalité (111,191), égaux 17, égo (411,447,740,776), égocentrisme 412, égoïste (26,53,366), élève 196, élue 546, embellir 440, emmerdeur (308,508), émotion (33,193), enchaîner 490, enclos 437, endurance 125, énergie 775, énerver (366,371,398,392,426,475), enfant (59,62,101,103,206,218,333,339,340,357,      394,429,453,458,477,483,505,506,520,527,566,697,728), enfermement 583, engueulade 674, engueuler 459, enlaidir 440, ennemi (39,156,433,507), ennuis (46,680), enrichir 252, entraider 471, enveloppe 579, envie (16,232,322,323,357,    486,610, éphémère 285, épicéa 404, époque 179, épreuve (165,178,199,508,617,638), équilibre (63,120,195,381,450,526,544,750,762,770), erreur (42,72,240,573,613, 621,651,699,702,703), esclave (41,495,566,740), espèce 116, espoir 517, esprit (40,51,176, 210, 218, 219, 253, 282, 339, 375, 490, 493, 520, 567, 575, 616, 617, 668, 673), essayer 226, esthétisme (125,245), éternel 605, éternité (575,578,761),  étiquette 609, être (159,171,205,278), euthanasier 601, éveil 493, éventail 193, évolution (115,264,445,536,608,682,689,724), excellence (36,491,760), excès 268, exemple 390, exister 368, expérience 701, expérimentation 388, explorateur 704, expulser 501.
 
-F
+F  
 facette 624, facile (130,143,161,179,241,269,515,686), faible 469, faiblesse 201, fainéantise 132, fait 66, famille (260,375,453), fan 310, fardeau 169, fausse (425,484), fautes (18,595), faveur 620, femme (253,290,370,418,450), fiction 140, fierté 362, fil 325, fille 340, flamme (281,361), fleur (180,185,521), folie 616, foot 664, force (120,125,156,165,224, forêt (88,250,439,709), forme 570, fort (6,157,162,199,     395,430,469,481,519,718), fou (43,270,314,389), frapper 373, frère 431, fruit 238, fumer 551, futur 462.
 
-G
+G  
 gâcher 258, gâchis (507,715), gagnant 634, gagner (427,664), galanterie 600, gaspiller 433, gâter 212, génération 335, généreux (248,311,665), générosité 576, gênes 483, génétique 155, gens (26,51,64,225,308,314,319,321,352,401,442,446,473,485,510, 573), gentil 543, gentillesse (201,241), germer 471, glace 586, glorieux 494, goût (11,77,144), goûter 739, grandir 312, grillage 328, grimper (303,404), gros 710, guérir 135, guerre (553,634,727), gueuler (18,364), guide 207.
 
-H
+H  
 habitant 734, habitation 734, habitude 480, haie 693, hasard 203, herbe 327, héritage (431,594), heureux (479,631,718), histoire 363, homme (123,253,290,437,450), honneur 497, honte (37,340), horrible 147, humain (54,57,58,133,218,224,294,295     296,379,354,437,440,710), humanité 389, humanoïde 446, humeur (60,143,392), humour (151,422), hymne 127, hypothèse 658.
 
-I 
+I  
 idée (255,314,362,459,464,613,759), idiot (62,76,280,295,398,426,438,444,452,454,      465,466,472,511,718,719), idolâtrer 490, ignorance (47,423), ignorant (644,711), image 684, imbécile (436,509,558,582,595), imbu 428, immeuble 379, immortalité (127), imperfection (422,617,739), importance 639, important  714, impossible (343,462), incarner 701, individu (139,154), inférieur (25,519), infini (188,189,388), informer 666, injuste (32,190,208,306,456), injustice (426,695), innocent 429, insociable 645, inspiration 287, instruire 228, insulte 488, intelligence (132,207,421,631,680), intelligent (535,660), intention 413, inutile (208,463), ironie 293, irrespect 412. 
 
-J 
+J  
 jalousie (173,656,767), jaloux 655, jardin (300,41,177,298,383,399,622,749), jaunir 432, jeu (432,603,634), jeune (530,532), jeunesse (118,282,527), jeux vidéo, joie 524, jongler 683, jouet (126,457), jour 386, journée 556, joyau 361, jugement (94,146), juste (4,350,450), justice (195,687), justifier 66, 414. 
 
-K 
+K  
 karma (508,646,771), Kung-fu (125,126,127). 
 
-L
+L  
 laideur (76,91), langue (591,753), latex 334, laver 237, leçon (706,758), libérer 666, liberté (28,176,474,481,482,505,716), libre arbitre (137,138,596,640,651,724,773), limiter 481, lit 419, livre (349,432), loi (306,469), loin 478, longtemps 584, lumière (90,499,500,553,574,619).
 
-M
+M  
 machine 219, magnifique 147, maigre 563, maison (298,399,431,477), maître (166,196), maîtrise 33, majorité 688, mal 5,69,73,75,82,97,98,99,100,114,150,174,205,     211,251,261,279,286,299,301,336,345,397,405,423,443,456,481,482,484,500,589,
 611,691,765), maladie (23,59,339,592), malheur (56,60,160,241,471,477,506,507), malintention 442, malpoli 369, maniaque 745, manipulateur 291, manque (583,584), maquillage (425), marée 129, marginalité (36,491), marier 540, marque 61, maso 562, matériaux 538, mauvais (606,227,229), méchanceté (220,246,336,369,426), méchant 565, médicaments 135, médiocrité (36,304,496,514,632), médium 763, meilleur (179,288,396,399,419,523,696), mélodie 443, mémoire (314,725), mensonge (460,468,485,502,503), mental 172, mentir (29,65,110,184,219,406), merde 567, mérite (56,362,368,497,505,515,759), message (352,528), messager 568, méthode 679, minorité 688, minuit 379, miroir (108,273) mission 376, mocheté (69,83,279,346,  458,662,705), mode (79,91,94,330), modeste 173, moine 124, monde (22,26,42,56,    247,298,317,340,358,390,391,450,456,496,523,546,683,765), monotone 649, montagne (231,383,437,439,722), moquer (55,64,504), morale (16,68,213,430,487), mort (86,183,311,324,407,409,502), mot 66, moteur 207, motiver 394, mouchoir 385, mourir (321,648), moustique 336, mouton (330,337,491,588), multivers 769, musée 685, musique (13,19,257,556).
 
-N 
+N  
 naissance (86,137), narcissisme (212,370), nationaliste 265, nature (7,22,53,133,    147,182,195,210,262,275,287,294,297,298,327,300,336,346,354,365,399,400,417,538,570,692), naturelle 213, négativité 487, nénuphar 180, nettoyer 194, niveau 48, nœud 266, note (506,713), nourriture (599,636,749), nuage (158,334,586), nucléaire 334, nuire 498, nuit (379,386), nullité 580.
 
-O 
+O  
 obéir 486, objectif (19,708), objet (296,495), occuper 479, œuvre 457, ombre (553,569), opaque 108, optimiste 705, option (737,777), ordre 475, organisme 164, orgueil 63, originalité 141, os 563, outil 388.
 
-P
+P  
 paix (48,417,446,585), paradis (10,562,735,743,776), parallèle 484, pardonner (149,511,541), parent (206,260,477,650,752), parfait (300,383,544,564,612,613,669,  754), parfaite (597,653), parfum 272, parler (20,355), parole 579, partage (21,518), partager 697, partie 671, parure 643, passé (14,169,240,324), patience (12,192,361), pauvreté (78,210), payer 435, pays (294,652,734), paysage (275,393), peintre 580, peinture 402, pensée 604, penser (42,142,164,717), perfection (21,69,182,380,418,                               713,731,739,762), période 627, perle 396, persévérance 15, personnalité 470, personne (22,25,145,200,227,311,343,348,349,363,428,438,473,487,490), pervers 220, pétale (415,521,642), peuple    (666,689), peur (134,534,741), philosophe 751, physique 213, pièce 667, piéger (228,291), piercing 551, place 455, plaire 32, plaisir (170,285,338,460,494,498,                                         506,575,577,599,605,608,636,660,686,746), planète (62,247,298,433,473,489,668), poche 385, poème (415,623), poésie 304, poétique 529, point 476, poisson 100 poli 369, polluer  (40,433), porte (574,614), positif  433, possession (606,307,433,441,495,     518), poubelle (483,667,715), pouvoir (34,317,378), prairie 439, pré 404, prédateur 557, prémonitoire 277, prénom 755, présent (169,462), préserver (14,242,275), preuve 406, prier 408, prison 713, privilège (305,370), problème (109,459,630,767), profiter (175,505), programmation (137,138,340,549), programme 560, programmer 234, progrès 224, projet 625, promesse 30, pronostique 582, protéger 502, proverbes (67,309,396,402,466,485,528,529,531), psychique 356, psychologie 42, psychologique 630, puissance 163, punir (71,72, 73,74,75), pure 100, 482.
 
-Q 
+Q  
 qualité 395, quantique (219,658).
 
-R
+R  
 rabaisser 55, race (591,593,597), racine  326, racisme 593, raciste (144,565), raison (45,49,52,166,351,438,452,466,469,488), rajeunir 709, ranger 434, rapidité 125, réalisation 517, rébellion 774, récompense 394, reconnu 410, recyclage 296, recycler (399,417), rééducation 270, rééquilibre 656, réfléchir (18,31) réfractaire 694, refus 475, règle (745,732) regretter 24, réincarnation (311,339,725), rejet 767, religion 372, remplaçable 455, rendez-vous 271, renoncement 474, repas 672, réplicateur 557, reposer 717, reprocher 602, réputation 542, respect 585, respecter (144,652), respectueux 421, respirer 717, responsable 448, réussir (618,670), réussite (111,167,289,338,461,512), rêve (15,277,293), réveiller (379,628), rêver 717, richesse (78,210,258,317,539), ridicule (349,548,605,686), rime 623, rire (533,654), risque (411,492), rituel (209,480), rivière 722, robot (318,319), rôle 488, ronce 326, rouge 411, ruisseau (274,327,522,722).
 
-S
+S  
 sage (1,2,3,34,39,62,70,76,329,350,444,478,644,654,687,694,711), sagesse (33,37,65,132,207,215,378,481,501,520,549,653,732), saison 204, salaire (454,455), salir (194,237), santé 128, sauvage 692, sauvegarde (341,407,550), sauver 311, savoir (8,20,95,138,152,316,344,401,463,653), scénario 658, seconde 202, semblable 397, sentier 329, sentir 519, serpent 290, service (381, 503), sexe 272, Shaolin 124, simple 249, simulation 658, sociable (470,676,677), sociale 112, société (320,420,480,491,514,    748), sœur 431, soi 38, soie 180, sol 297, soleil 327, solitaire (255,470,675,676), solution (387,706), sommet 416, souffrance (263,321,374,548,633), souhait (413,742), souplesse (120,121,122,124,125), sourd 568, sourire 239, souvenir 550, sport 563, stratégie 711, stress 18, subjectivité 19, succès 411, sujet 352, supérieur (25,519), surpeuplé 294, survivre 106, sympa (452,510,645), synonyme 631.
 
-T
+T  
 tague 421, talent (353,494,684), tapis 411, tatouage 551, taxer 359, technique 125, technologie (313,316,317,399,401,417), tempérament 138, temps (204,479,544), terrain 693, terre (17,334), tester 496, tête 312, timidité (342,394,395,534,545), tique 336, toilette 472, tolérance (50,113), tolérant 632, tombe (407,408,409), tomber 315, ton (757,758), tort 44, torture (82,358), toucher 233,  tradition 556, trahison 397, tranquille (410,502), transmettre 93, transparence 108, travail (132,269,362,454,506,     566,628,672), travailler (537,748), trésor 266, tricher (104,105,106,107), trou 315, troupeau (94,437,569,666,695), truite 150, tuer (217,336,409).
 
-U
+U  
 un 659, univers (108,263,345,575,727,742,746,766), universel (525,732), utile 463.
 
-V 
+V  
 vaincre (23,134), valeur (387,493), vantard 173, vengeance 661, venger (197,433,461), vent 415, vérité (35,54,67,184,219,232,234,333,338,344,372,389,406,   416,460,461,476,484,514,535,673,694,700), vestimentaire 647, vêtement (61,549,712), viande 557, vibration 771, vice 405, victime 384, victoire (92,186,267,500,687), vide 579, vie (9,21,111,129,148,167,181,189,191,193,202,205,211,266,277,289,311,321,     341,345,380,414,456,467,473,492,498,499,512,582,624,633), vieillesse 615, vieillir (283,709), vieux (367,532,562,710), village (393,439), violence (45,140,373,619), visage 392, vision 344, vitesse 120, vivre (365,417,512)  voie 523, voiler 514, voix (180,235), vol 767, voler 293,vouloir (205), voyage 707.
 
-W
+W  
 
-X
+X  
 
-Y 
+Y  
 yang 174, yeux 355, ying 174.
 
-Z 
+Z   
 zénith 15 (1 dragon au zénith)
 
 
+Notes  
 
-Notes 
+
 
 
 
