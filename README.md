@@ -7791,7 +7791,7 @@ Anaphore : (7) n°12, 14, 32, 46, 48, 55, 64 (reprises des débuts de phrases an
 Assonance interne : non comptabilisé car il y en a pratiquement partout, généralement sans faire exprès (répétitions des mêmes sons à la fin des mots à l’intérieur des vers).  
 Centon : 71, 75, phrases historiques réorganisées en nouveau poème plus ajout).  
 Dialogue (avec rimes suivies) : n°11.  
-Holorime partiel : 70 (même pronciation, différents mots).  
+Holorime partiel : 70 (même prononciation, différents mots).  
 Holorime narratif : 74 (tout le texte).  
 Prose : (29) poèmes (sans rimes) n°7, 8, 9, 13, 24, 25, 29, 30, 31, 34, 35, 36, 37, 38, 39, 41, 42, 43, 47, 49, 56, 57, 59, 60, 64, 65, 66, 67, 68, 71, 72, 73, 75.
 Quatrain monorime : n°60 (aaaa).  
@@ -7801,927 +7801,928 @@ Rime embrassée : n°45, 72 (abba).
 Rimes croisées : n°62 (abab).  
 Téléstiche : 72, 73 (contraire d’acrostiche en fin de phrase).  
 
-16 inventions
-9 poémes de structure 
-Poème impérial : mon invention, il reprend au moins un mot du titre d’un ensemble de poèmes : (Métaphore du cycle de la vie), poème n°22 sur les poèmes 1 à 14.
-Poème de l’ascension (de la montée) : n°58.
-Poème de la montagne : (2) n°56, 57.
-Poème de la descente : n°64.
-Poème en V (de la vallée) : n°65, 72, 73.
-Poème en W : n°66.
-Poème en M : n°67.
-Poème en N : n°68.
-Poème en И inversé : n°69.
-5 poèmes de rimes 
-Double rime : mon invention, je mets la même rime en début et fin de vers (Le Kung-fu légendaire), poème n°18 et 51.
-Rime des dragons chinois : mon invention, 181, répétition de la même lettre 8 fois (S) après un seul vers de début et avant un seul vers de fin (La beauté asiatique), poème n°5. Les deux 1 symbolisent l’homme et la femme.
-Triple rime de l’union : n°58, (3, 1, 3, 1, 3…).
-Triple rime de l’union inversée : n°63, (1, 3, 1, 3, 1, 3, 1, 3, 1…).
-Rime de la vie : n°61, (1, 2, 3, 2, 1, 2, 3, 2, 1…).
-2 poèmes combinatoires
-Poème des 7 dragons d’or combinés : n°72, moins de 10 lignes et 468 lettres à 7 types de contraintes sur 12 dont un dragon à 6 étoiles.
-Poème des 5 dragons d’or combinés : n°73, moins de 10 lignes et 468 lettres à 5 types de contraintes sur 9 dont un dragon à 3 étoiles.
-Pour mon cas 9 lignes pour les 2.
+16 inventions  
+9 poèmes de structure  
+Poème impérial : mon invention, il reprend au moins un mot du titre d’un ensemble de poèmes : (Métaphore du cycle de la vie), poème n°22 sur les poèmes 1 à 14.  
+Poème de l’ascension (de la montée) : n°58.  
+Poème de la montagne : (2) n°56, 57.  
+Poème de la descente : n°64.  
+Poème en V (de la vallée) : n°65, 72, 73.  
+Poème en W : n°66.  
+Poème en M : n°67.  
+Poème en N : n°68.  
+Poème en И inversé : n°69.  
+5 poèmes de rimes  
+Double rime : mon invention, je mets la même rime en début et fin de vers (Le Kung-fu légendaire), poème n°18 et 51.  
+Rime des dragons chinois : mon invention, 181, répétition de la même lettre 8 fois (S) après un seul vers de début et avant un seul vers de fin (La beauté asiatique), poème n°5. Les deux 1 symbolisent l’homme et la femme.  
+Triple rime de l’union : n°58, (3, 1, 3, 1, 3…).  
+Triple rime de l’union inversée : n°63, (1, 3, 1, 3, 1, 3, 1, 3, 1…).  
+Rime de la vie : n°61, (1, 2, 3, 2, 1, 2, 3, 2, 1…).  
+2 poèmes combinatoires  
+Poème des 7 dragons d’or combinés : n°72, moins de 10 lignes et 468 lettres à 7 types de contraintes sur 12 dont un dragon à 6 étoiles.  
+Poème des 5 dragons d’or combinés : n°73, moins de 10 lignes et 468 lettres à 5 types de contraintes sur 9 dont un dragon à 3 étoiles.  
+Pour mon cas 9 lignes pour les 2.  
 
-Les dragons d’argent et de bronze combinés 
-(A partir de 5 types de contraintes)
-Poème des (…) dragons d’argents combinés. 
-Plus de 10 lignes (10 à 19), moins de 936 lettres.
-Poème des (…) dragons de bronze combinés. 
-Plus de 20 lignes (20 à 29), moins de 1404 lettres.
-A chaque contrainte additionnée, le dragon gagne 1 étoile en plus.
-Si le poème n’a pas d’histoire poétique cohérente, c’est de la triche donc pénalités ou non validé, des suites de mots sans logique égal éliminé sinon il ne faut pas s’incruster ou obligation d’inventer un autre nom.
-Ce qui compte est le nombre de type de contraintes et le nombre total, ex : les 12 contraintes des 7 dragons d’or combinés dont un dragon à 6 étoiles (n°72).
+Les dragons d’argent et de bronze combinés  
+(A partir de 5 types de contraintes)  
+Poème des (…) dragons d’argents combinés.  
+Plus de 10 lignes (10 à 19), moins de 936 lettres.  
+Poème des (…) dragons de bronze combinés.  
+Plus de 20 lignes (20 à 29), moins de 1404 lettres.  
+A chaque contrainte additionnée, le dragon gagne 1 étoile en plus.  
+Si le poème n’a pas d’histoire poétique cohérente, c’est de la triche donc pénalités ou non validé, des suites de mots sans logique égal éliminé sinon il ne faut pas s’incruster ou obligation d’inventer un autre nom.  
+Ce qui compte est le nombre de type de contraintes et le nombre total, ex : les 12 contraintes des 7 dragons d’or combinés dont un dragon à 6 étoiles (n°72).  
 
-Poèmes par année
-Chaque poème est codé par son chiffre et a un peu de leçon philosophique.
-2014. (1), 8 : Le jardin parfait ne peut se séparer de sa montagne.
-2019. (7), 3 : La truite fario, 4 : Le chat parfait, 5 : La beauté asiatique, 7 : Songes des huit dragons du jardin de l’empereur, 12 : Education, 13 : Une journée idéale en famille, 14 : La mort, le renouveau dans l’au-delà et les 4 saisons. 
-2020. (11), 1 : Ma petite rivière, 2 : Belles chutes d’eau, 6 : Forêt impériale, 9 : Empereur pour princesse ?, 10 : La victoire retrouvée, 11 : Joute de poèmes de deux fidèles, 15 : Poème d’un empereur à sa déesse, 16 : Poème d’une déesse à son empereur 17 : Divine Chine, 18 : Le Kung-fu légendaire, 22 : Métaphore du cycle de la vie.
-2021. (3), 19 : Divine Corée, 20 : Divin Japon, 21 Divine France.
-2022. (6), 23 : Divin Vietnam (22 et 23/02), 24 : L’épicéa impérial dans son pré (09/11), 26 : Bambou impérial (13/11), 27 : Promenade avec sa divine (17/11), 28 : Partenaires de vie (19/11), 33 : L’empereur Sylvain (03/11). 
-2023. (6), 25 : Noël sous la neige (02/07), 31 : Cueillir la beauté des saisons : printemps, été, automne, hiver (12/07), 29 : Les jolis oiseaux du village (13/07), 30 : La maison en pierres (13/07), 32 : L’eau vivante (16/07), 34 : Le duo des merveilles (28/09).
-2024. (5), 35 : L’or impérial (07/06), 36 : Le dragon Chinois (07/06), 37 : Hymne de la victoire de la Terre, Libertés d’un monde meilleur (07/06). 38 : Vacances utopiques au jardin (12/10), 39 : Le monde fantastique enchanté (19/12).
-2025. (16), 40 : La beauté magique (03/02), 41 : Nos amis de l’univers (01/11), 42 : Les facettes de la poésie (01/11), 43 : L’exploration cosmique (01/11), 44 : L’infini cercle de la vie (08/11), 45 : L’empereur de chine au paradis central (09/11). 46 : Le spectacle alchimique impérial (10/11), 47 : Le jardin impérial Genyue (12/11), 48 : Education de la famille (11/11), 49 : Vacance des enfants à la fête des sports du lac Jinming (14/11), 50 : Rocher dragon et fleurs de pierres (11/11),  51 : 18 jeux et sports chinois (15/11), 52 : Divine chine impériale (12/11), 53 : La forêt impériale des pics Song (12/11), 54 : Empereur Huizong (11/11), 55 : Double dragon (13/11).
-2026. (20), 56 : Le bien et le mal (27/02), 57 : Le temps (27/02), 58 : La vie (20/02), 59 : Chemin métaphorique (23/02), 60 : Toupie éternelle et Miss Gatling (07/02), 61 : Le bonsaï impérial (25/02), 62 : Spéciale chanson (02/02), 63 : La patineuse artistique (21/02), 64 : Descente en devinette (27/02), 65 : La vallée qui joue (27/02), 66 : Le parc d’attraction (16/03), 67 : L’union mutuelle (15/03), 68 : L’arbre ancestral (29/03), 69 : Du rêve à la contemplation (28/03), 70 : Sylvain le sacré (04/05), 71 : Merveilleux bonheur (30/03), 72 : Le polymathe magique (11/05), 73 : L’origami de la patineuse, (10/05), 74 : Sage ou passage (17/05), 75 : L’axe de la voie d’harmonie du milieu (02/05).
+Poèmes par année  
+Chaque poème est codé par son chiffre et a un peu de leçon philosophique.  
+2014. (1), 8 : Le jardin parfait ne peut se séparer de sa montagne.  
+2019. (7), 3 : La truite fario, 4 : Le chat parfait, 5 : La beauté asiatique, 7 : Songes des huit dragons du jardin de l’empereur, 12 : Éducation, 13 : Une journée idéale en famille, 14 : La mort, le renouveau dans l’au-delà et les 4 saisons.  
+2020. (11), 1 : Ma petite rivière, 2 : Belles chutes d’eau, 6 : Forêt impériale, 9 : Empereur pour princesse ?, 10 : La victoire retrouvée, 11 : Joute de poèmes de deux fidèles, 15 : Poème d’un empereur à sa déesse, 16 : Poème d’une déesse à son empereur 17 : Divine Chine, 18 : Le Kung-fu légendaire, 22 : Métaphore du cycle de la vie.  
+2021. (3), 19 : Divine Corée, 20 : Divin Japon, 21 Divine France.  
+2022. (6), 23 : Divin Vietnam (22 et 23/02), 24 : L’épicéa impérial dans son pré (09/11), 26 : Bambou impérial (13/11), 27 : Promenade avec sa divine (17/11), 28 : Partenaires de vie (19/11), 33 : L’empereur Sylvain (03/11).  
+2023. (6), 25 : Noël sous la neige (02/07), 31 : Cueillir la beauté des saisons : printemps, été, automne, hiver (12/07), 29 : Les jolis oiseaux du village (13/07), 30 : La maison en pierres (13/07), 32 : L’eau vivante (16/07), 34 : Le duo des merveilles (28/09).  
+2024. (5), 35 : L’or impérial (07/06), 36 : Le dragon Chinois (07/06), 37 : Hymne de la victoire de la Terre, Libertés d’un monde meilleur (07/06). 38 : Vacances utopiques au jardin (12/10), 39 : Le monde fantastique enchanté (19/12).  
+2025. (16), 40 : La beauté magique (03/02), 41 : Nos amis de l’univers (01/11), 42 : Les facettes de la poésie (01/11), 43 : L’exploration cosmique (01/11), 44 : L’infini cercle de la vie (08/11), 45 : L’empereur de chine au paradis central (09/11). 46 : Le spectacle alchimique impérial (10/11), 47 : Le jardin impérial Genyue (12/11), 48 : Education de la famille (11/11), 49 : Vacance des enfants à la fête des sports du lac Jinming (14/11), 50 : Rocher dragon et fleurs de pierres (11/11),  51 : 18 jeux et sports chinois (15/11), 52 : Divine chine impériale (12/11), 53 : La forêt impériale des pics Song (12/11), 54 : Empereur Huizong (11/11), 55 : Double dragon (13/11).  
+2026. (20), 56 : Le bien et le mal (27/02), 57 : Le temps (27/02), 58 : La vie (20/02), 59 : Chemin métaphorique (23/02), 60 : Toupie éternelle et Miss Gatling (07/02), 61 : Le bonsaï impérial (25/02), 62 : Spéciale chanson (02/02), 63 : La patineuse artistique (21/02), 64 : Descente en devinette (27/02), 65 : La vallée qui joue (27/02), 66 : Le parc d’attraction (16/03), 67 : L’union mutuelle (15/03), 68 : L’arbre ancestral (29/03), 69 : Du rêve à la contemplation (28/03), 70 : Sylvain le sacré (04/05), 71 : Merveilleux bonheur (30/03), 72 : Le polymathe magique (11/05), 73 : L’origami de la patineuse, (10/05), 74 : Sage ou passage (17/05), 75 : L’axe de la voie d’harmonie du milieu (02/05).  
 
-Nombre de poème par année :
-2014 : 1, 2019 : 7, 2020 : 11, 2021 : 3, 2022 : 6, 2023 : 6, 2024 : 5, 2025 : 16, 2026 : 20.
-Une montagne de poésie qui finit en pic.
-Entre le Mont Saint-Michel et la montagne Meili.
+Nombre de poème par année :  
+2014 : 1, 2019 : 7, 2020 : 11, 2021 : 3, 2022 : 6, 2023 : 6, 2024 : 5, 2025 : 16, 2026 : 20.  
+Une montagne de poésie qui finit en pic.  
+Entre le Mont Saint-Michel et la montagne Meili.  
 
-Poèmes
-Plus de 1500 lignes de poésie.
-La plupart des lieux (rivière, village, maison, montagne…) et personnes dans les poèmes sont fictifs sauf les poèmes sur les pays…
-Les titres et thèmes de mes poèmes sont respectés à fond dans la narration contrairement beaucoup d’autres dont le titre est évoqué que par quelques lignes.
+Poèmes  
+Plus de 1500 lignes de poésie.  
+La plupart des lieux (rivière, village, maison, montagne…) et personnes dans les poèmes sont fictifs sauf les poèmes sur les pays…  
+Les titres et thèmes de mes poèmes sont respectés à fond dans la narration contrairement beaucoup d’autres dont le titre est évoqué que par quelques lignes.  
 
-Thématiques des poèmes
-Nature (18)
-Eau : 32 et 64, rivière : 1, chute d’eau : 2, bambou : 26, arbre : 68, épicéa : 24, bonsaï : 61, forêt : 6 et 53 (+ montagne), jardin : 8 et 47, rocher : 50, vallée : 65, saisons : 31, truite : 3, chat : 4, oiseaux : 29.
-Sport et jeux (6)
-Kung-fu : 18, sports chinois : 51, patinage : 63, 71, 73, jeux : 66.
-Philosophie (7)
-Education : 12 et 48, mort : 14, cycle vie : 22, philosophie : 43, 54, 75.
-Famille : (3) 
-13, 25 et 49. 
-Romantisme : (21) 
-5, 7, 10, 11, 15, 16, 27, 28, 34, 38, 39, 40, 45, 55, 58, 60, 62, 67, 69, 72, 74.
-Vie humaine : (14) 
-9, 30, 33, 35, 36, 37, 41, 42, 44, 46, 56, 57, 59, 70.
-Pays : (6) 
-17, 19, 20, 21, 23, 52.
+Thématiques des poèmes  
+Nature (18)  
+Eau : 32 et 64, rivière : 1, chute d’eau : 2, bambou : 26, arbre : 68, épicéa : 24, bonsaï : 61, forêt : 6 et 53 (+ montagne), jardin : 8 et 47, rocher : 50, vallée : 65, saisons : 31, truite : 3, chat : 4, oiseaux : 29.  
+Sport et jeux (6)  
+Kung-fu : 18, sports chinois : 51, patinage : 63, 71, 73, jeux : 66.  
+Philosophie (7)  
+Éducation : 12 et 48, mort : 14, cycle vie : 22, philosophie : 43, 54, 75.  
+Famille : (3)  
+13, 25 et 49.  
+Romantisme : (21)  
+5, 7, 10, 11, 15, 16, 27, 28, 34, 38, 39, 40, 45, 55, 58, 60, 62, 67, 69, 72, 74.  
+Vie humaine : (14)  
+9, 30, 33, 35, 36, 37, 41, 42, 44, 46, 56, 57, 59, 70.  
+Pays : (6)  
+17, 19, 20, 21, 23, 52.  
 
-Synthèse 
-Les poèmes sont une synthèse philosophique un peu comme les devises et le logo.
+Synthèse  
+Les poèmes sont une synthèse philosophique un peu comme les devises et le logo.  
 
-Poèmes 17 à 23
-17 à 23 fait 7 chiffres différents.
-Les titres et numéros des poèmes 17 à 23 sont la métaphore de la bataille pour transformer les forces du mal à la victoire de l’harmonie/l’amour. 
-17 : dieu, 18 : le combat (Kung-fu), 19 : pour arrêter le danger de l’intelligence artificielle, 20 : la vague de virus et les méchants, 21 : l’amour, 22 dévoile ce qui est caché, 23 : réunir les dragons pour le nirvana, les merveilles, l’amour (code VIETNAM).
+Poèmes 17 à 23  
+17 à 23 fait 7 chiffres différents.  
+Les titres et numéros des poèmes 17 à 23 sont la métaphore de la bataille pour transformer les forces du mal à la victoire de l’harmonie/l’amour.  
+17 : dieu, 18 : le combat (Kung-fu), 19 : pour arrêter le danger de l’intelligence artificielle, 20 : la vague de virus et les méchants, 21 : l’amour, 22 dévoile ce qui est caché, 23 : réunir les dragons pour le nirvana, les merveilles, l’amour (code VIETNAM).  
 
-Le chat parfait
-C’est symbolique, la perfection n’est pas à généraliser à tous les chats ni même à un seul.
+Le chat parfait  
+C’est symbolique, la perfection n’est pas à généraliser à tous les chats ni même à un seul.  
 
-Songe des huits dragons du jardin de l’empereur
-J’ai mis songe au lieu de rêve car cela sonnait mieux et parce que j’ai une autre raison à deviner. Le 7 inversé de la lettre du mot rêve correspond au 7 du numéro du poème.
+Songe des huits dragons du jardin de l’empereur  
+J’ai mis songe au lieu de rêve car cela sonnait mieux et parce que j’ai une autre raison à deviner. Le 7 inversé de la lettre du mot rêve correspond au 7 du numéro du poème.  
 
-Le jardin parfait ne peux se séparer de sa montagne
-Il peut se rapprocher de la perfection au niveau des nuances des beautés des saisons mais le froid de l’hiver fait souffrir, surtout les animaux.
+Le jardin parfait ne peux se séparer de sa montagne  
+Il peut se rapprocher de la perfection au niveau des nuances des beautés des saisons mais le froid de l’hiver fait souffrir, surtout les animaux.  
 
-Empereur pour princesse ?
-Des rimes suivies et quelques passages en proses métaphoriques pour aérer le poème (10 sur 120). Le seul au monde à avoir fait l’inventaire de tous les types de refus, en plus en rimes et en proses méta-phoriques pour faire mieux.
+Empereur pour princesse ?  
+Des rimes suivies et quelques passages en proses métaphoriques pour aérer le poème (10 sur 120). Le seul au monde à avoir fait l’inventaire de tous les types de refus, en plus en rimes et en proses méta-phoriques pour faire mieux.  
 
-La mort, le renouveau dans l’au-delà et les 4 saisons
-Le passage dans l’au-delà est censé être un tunnel (pas toujours le cas), pas une porte mais c’est une métaphore que j’ai utilisé pour mon poème (voir décodage des 23 poèmes).
+La mort, le renouveau dans l’au-delà et les 4 saisons  
+Le passage dans l’au-delà est censé être un tunnel (pas toujours le cas), pas une porte mais c’est une métaphore que j’ai utilisé pour mon poème (voir décodage des 23 poèmes).  
 
-Divin Japon
-Il a été entièrement réalisé en écoutant le groupe japonais C-ute, album Queen of Jpop, chanson n°8 (Aitai Aitai Aitai na)  en premier, sortie en 2013.
+Divin Japon  
+Il a été entièrement réalisé en écoutant le groupe japonais C-ute, album Queen of Jpop, chanson n°8 (Aitai Aitai Aitai na)  en premier, sortie en 2013.  
 
-Divin Vietnam
-La dernière phrase reprend les premières lettres du mot Vietnam : 
-Vie Illuminée Et Toujours Nirvana Avec Merveilles (c’est le souhait).
-2+3=5 (dernier couple de dragon pour finir les poèmes).
-Dans Vietnam, il y a le son de vie et de âme.
+Divin Vietnam  
+La dernière phrase reprend les premières lettres du mot Vietnam :  
+Vie Illuminée Et Toujours Nirvana Avec Merveilles (c’est le souhait).  
+2+3=5 (dernier couple de dragon pour finir les poèmes).  
+Dans Vietnam, il y a le son de vie et de âme.  
 
-Métaphore du cycle de la vie
-Si l’on compte cette introduction qui reprend des mots de tous les titres des poèmes 1 à 14, cela fait le 22ème poème caché.
-2+2=4 (4ème dimension).
-Dévoilement des vérités qui sont cachées.
+Métaphore du cycle de la vie  
+Si l’on compte cette introduction qui reprend des mots de tous les titres des poèmes 1 à 14, cela fait le 22ème poème caché.  
+2+2=4 (4ème dimension).  
+Dévoilement des vérités qui sont cachées.  
 
-Divine Chine
-La Chine a 12 poèmes avec Le Kung-fu légendaire et Le dragon Chinois, plus ceux du cycle Song.
-J’ai rajouté à Divine Chine les rimes que j’ai déjà utilisées pour Divin Vietnam pour qu’il soit plus proche de la perfection. 
+Divine Chine  
+La Chine a 12 poèmes avec Le Kung-fu légendaire et Le dragon Chinois, plus ceux du cycle Song.  
+J’ai rajouté à Divine Chine les rimes que j’ai déjà utilisées pour Divin Vietnam pour qu’il soit plus proche de la perfection.  
 Les montagnes dansent et sautent dans les nuages, 
-et nous ravissent avec leurs temples qui subliment le paysage.
+et nous ravissent avec leurs temples qui subliment le paysage.  
 
-Divine France
-J’ai presque retiré les passages sur les fromages mais j’espère qu’un jour cela sera un produit que l’on fera sans maltraitance animal et sans tuer (voir proverbe 880).
+Divine France  
+J’ai presque retiré les passages sur les fromages mais j’espère qu’un jour cela sera un produit que l’on fera sans maltraitance animal et sans tuer (voir proverbe 880).  
 
-L’épicéa commun 
-Pour la Chine, son cousin le Picea asperata sera l’épicéa impérial. 
+L’épicéa commun  
+Pour la Chine, son cousin le Picea asperata sera l’épicéa impérial.  
 
-Le monde fantastique enchanté
-Réalisé en écoutant le chanteur Chinois Hu Ge Nirvana in fire ost, When the wind blows (2015).
+Le monde fantastique enchanté  
+Réalisé en écoutant le chanteur Chinois Hu Ge Nirvana in fire ost, When the wind blows (2015).  
 
-Le dragon Chinois
-2024 : l’année du dragon Chinois de bois
+Le dragon Chinois  
+2024 : l’année du dragon Chinois de bois  
 2+2+4=8 (arbre : autrefois 3 arbres en paréidolies de dragon, double dragon).
-5 poèmes réalisés pour l’année du dragon, 5 comme dragon.
+5 poèmes réalisés pour l’année du dragon, 5 comme dragon.  
 
-8 dragons
-C’est surtout une interprétation artistique.
-2 dragons rouges de l’est : Japon 
-2 dragons jaunes de l’ouest : Chine, le dragon d’or est le 9ème dragon qui est l’empereur de l’empire du milieu ou peut être l’empereur du Japon ou le président d’un pays asiatique.
-2 dragons bleus du nord : Corée (inclus la Mongolie)
-2 dragons verts du sud : Vietnam (inclus aussi les autres pays d’Asie du sud : Thaïlande, Myanmar, Laos, Cambodge, Malaisie, Philippines, Indonésie, Brunei, Népal, Bhoutan).
+8 dragons  
+C’est surtout une interprétation artistique.  
+2 dragons rouges de l’est : Japon  
+2 dragons jaunes de l’ouest : Chine, le dragon d’or est le 9ème dragon qui est l’empereur de l’empire du milieu ou peut être l’empereur du Japon ou le président d’un pays asiatique.  
+2 dragons bleus du nord : Corée (inclus la Mongolie)  
+2 dragons verts du sud : Vietnam (inclus aussi les autres pays d’Asie du sud : Thaïlande, Myanmar, Laos, Cambodge, Malaisie, Philippines, Indonésie, Brunei, Népal, Bhoutan).  
 
-5 pays
+5 pays  
 Chine, Japon, Corée, Vietnam, France (dragon européen différent de l’asiatique).
-Le chiffre du dragon : 5.
-Dualité dans les poèmes
+Le chiffre du dragon : 5.  
+Dualité dans les poèmes  
 Voici les titres des poèmes où j’évoque ou dénonce la bêtise, ou il y a dualité.
-9 : Empereur pour princesse, 37 : hymne de la victoire de la Terre, libertés d’un monde meilleur, 41 : Nos amis de l’univers, 46 : Le spectacle alchimique impériale.
+9 : Empereur pour princesse, 37 : hymne de la victoire de la Terre, libertés d’un monde meilleur, 41 : Nos amis de l’univers, 46 : Le spectacle alchimique impériale.  
 
-Moujonc
-Moujonc est mon invention : l'esprit plus mou qu'un jonc comme une herbe molle, bambou est le maximum.
-Mougeon existait avant (mélange entre suiveur de mouton, et idiot de pigeon), je préfère la version qui ne rabaisse pas les animaux.
+Moujonc  
+Moujonc est mon invention : l'esprit plus mou qu'un jonc comme une herbe molle, bambou est le maximum.  
+Mougeon existait avant (mélange entre suiveur de mouton, et idiot de pigeon), je préfère la version qui ne rabaisse pas les animaux.  
 
-Anecdote
-Les poèmes 44 (L’infini cercle de la vie), 46 (Le spectacle alchimique impérial), et 59 (Chemin métaphorique) ont été fait suite à une blague en essayant d’être abstrait ou hasardeux, mais ma logique a trouvé des choses intéressantes pour les réordonner et les transformer en poèmes sérieux.
+Anecdote  
+Les poèmes 44 (L’infini cercle de la vie), 46 (Le spectacle alchimique impérial), et 59 (Chemin métaphorique) ont été fait suite à une blague en essayant d’être abstrait ou hasardeux, mais ma logique a trouvé des choses intéressantes pour les réordonner et les transformer en poèmes sérieux.  
 
-Ordre d’arrivée
-Poèmes du 27/02/2026, 57 : Le temps, 56 : Le bien et le mal, 64 : Descente en devinette, 65 : La vallée qui joue.
+Ordre d’arrivée  
+Poèmes du 27/02/2026, 57 : Le temps, 56 : Le bien et le mal, 64 : Descente en devinette, 65 : La vallée qui joue.  
 
-La patineuse artistique
-21/02/2026.
-Quand j’ai finit les 17 lignes de mon poème, à la télévision, j’ai entendu : tu n’as pas finit, je pensais déjà avant qu’il manquait quelque chose mais je voulais me reposer et finir une autre fois.
-Le 22/03/2026 : j’ai ajouté les 4 lignes en plus sur le passage romantique pour arriver à 21.
-J’ai inversé les vers entre le 8ème et la 18ème vers de l’ancienne version pour être plus véridique parce qu’elles n’effectuent pas le triple axel en fin car elles ont plus d’énergie au début.
+La patineuse artistique  
+21/02/2026.  
+Quand j’ai finit les 17 lignes de mon poème, à la télévision, j’ai entendu : tu n’as pas finit, je pensais déjà avant qu’il manquait quelque chose mais je voulais me reposer et finir une autre fois.  
+Le 22/03/2026 : j’ai ajouté les 4 lignes en plus sur le passage romantique pour arriver à 21.  
+J’ai inversé les vers entre le 8ème et la 18ème vers de l’ancienne version pour être plus véridique parce qu’elles n’effectuent pas le triple axel en fin car elles ont plus d’énergie au début.  
 
-7 sujets de poème en double (14 poèmes)
-6 : Forêt impériale et 53 : La forêt impériale des pics Song.
-8 : Le jardin parfait ne peut se séparer de sa montagne et 47 : Le jardin impérial Genyue.
-12 : Education et 48 : Education de la famille.
-17 : Divine chine et 52 : Divine chine impériale.
-33 : L’empereur Sylvain et 70 : Sylvain le sacré.
-63 : Exception : 3 poèmes. La patineuse artistique, 71 : Merveilleux bonheur qui évoque la nature mélangée avec le patinage de manière plus abstraite, 73 : L’origami de la patineuse.
-67 : L’union mutuelle et 69 : Du rêve à la contemplation.
-Résumé : Jardin et forêt, le soi, éducation, pays, spectacle, cheminnement de vie.
+7 sujets de poème en double (14 poèmes)  
+6 : Forêt impériale et 53 : La forêt impériale des pics Song.  
+8 : Le jardin parfait ne peut se séparer de sa montagne et 47 : Le jardin impérial Genyue.  
+12 : Éducation et 48 : Éducation de la famille.  
+17 : Divine chine et 52 : Divine chine impériale.  
+33 : L’empereur Sylvain et 70 : Sylvain le sacré.  
+63 : Exception : 3 poèmes. La patineuse artistique, 71 : Merveilleux bonheur qui évoque la nature mélangée avec le patinage de manière plus abstraite, 73 : L’origami de la patineuse.  
+67 : L’union mutuelle et 69 : Du rêve à la contemplation.  
+Résumé : Jardin et forêt, le soi, éducation, pays, spectacle, cheminement de vie.  
 
-Fin
-Codage terminé des 55 poèmes le 15/11/2025.
-1+2+3+4+5+6+7+8+9+10 (victoire) = 55.
-Le 29/03/2026 : 69 poèmes.
-Le 04/05/2026 : 72 poèmes.
-Le 11/05/2026 : 75 poèmes.
+Fin  
+Codage terminé des 55 poèmes le 15/11/2025.  
+1+2+3+4+5+6+7+8+9+10 (victoire) = 55.  
+Le 29/03/2026 : 69 poèmes.  
+Le 04/05/2026 : 72 poèmes.  
+Le 11/05/2026 : 75 poèmes.  
 
-Voix IA
-J’ai utilisé la plus belle voix féminine que je puisse trouver pour réciter mes poèmes en vidéo, malheureuseument devenue indisponible après les 39 premiers.
+Voix IA  
+J’ai utilisé la plus belle voix féminine que je puisse trouver pour réciter mes poèmes en vidéo, malheureusement devenue indisponible après les 39 premiers.  
 
-Dessins
-Je pourrai associer un dessin à un proverbe ou à un poème et inventer une calligraphie mais je ne sais pas si j’en ai la motivation dans cette vie. Je peux le faire au paradis.
-Il faudrait aussi redessiner la photo des 18 paréidolies de l’affiche de Star Wars pour être plus réaliste.
-Dessiner le jardin parfait en version 4 saisons et version neige + version à partir de sous l’eau.
-Redessiner chaque paréidolie ou en image de synthèse serait intéressant.
+Dessins  
+Je pourrai associer un dessin à un proverbe ou à un poème et inventer une calligraphie mais je ne sais pas si j’en ai la motivation dans cette vie. Je peux le faire au paradis.  
+Il faudrait aussi redessiner la photo des 18 paréidolies de l’affiche de Star Wars pour être plus réaliste.  
+Dessiner le jardin parfait en version 4 saisons et version neige + version à partir de sous l’eau.  
+Redessiner chaque paréidolie ou en image de synthèse serait intéressant.  
 
-Anticipation de critique
+Anticipation de critique  
 Le code est facile car expliqué simplement (c’est un enrichissement amusant et symbolique), pas d’anachronisme car le cycle des poèmes Song est séparé mais enrichissant l’oeuvre, mise en avant des défauts et de l'idéal du monde, soi imparfait mais cherchant à montrer le meilleur.  
-Le bien et le mal est un résumé, ce n’est pas pour montrer la nuance de gris mais montrer les grandes différences.
-Les poèmes hasadeux ne forcent pas le sens car ils ont été purifié et veulent montrer un idéal visé.
-La mise en avant auto centré est justifié par mon expérience, pour montrer mon but, constater ou parce que les 2 poèmes sur Sylvain étaient le plus évident et facile pour mettre la performance de style et montrer une vision.
-Pas besoin de mettre trop d’émotions, à vous de l’maginer, la narration est nécessaire à l’imagination.
+Le bien et le mal est un résumé, ce n’est pas pour montrer la nuance de gris mais montrer les grandes différences.  
+Les poèmes hasardeux ne forcent pas le sens car ils ont été purifié et veulent montrer un idéal visé.  
+La mise en avant auto centré est justifié par mon expérience, pour montrer mon but, constater ou parce que les 2 poèmes sur Sylvain étaient le plus évident et facile pour mettre la performance de style et montrer une vision.  
+Pas besoin de mettre trop d’émotions, à vous de l’imaginer, la narration est nécessaire à l’imagination.  
 
-Musique
-On peut transformer mes poèmes en musique chantée ou instrumentale, Divine chine convient parfaitement surtout chantée en Chinois, Japonais, Coréen, Vietnamien, Thailandais… Joute de poèmes de deux fidèles pourrait être une chanson en duo qui se répond avec une finition ensemble sur les 2 derniers vers de la fin. 
+Musique  
+On peut transformer mes poèmes en musique chantée ou instrumentale, Divine chine convient parfaitement surtout chantée en Chinois, Japonais, Coréen, Vietnamien, Thailandais… Joute de poèmes de deux fidèles pourrait être une chanson en duo qui se répond avec une finition ensemble sur les 2 derniers vers de la fin.  
 
-Clip vidéo
-Faire des vidéos qui représentent tous les éléments mis dans mes poèmes sur les pays serait une bonne idée, aussi d’autres poèmes.
+Clip vidéo  
+Faire des vidéos qui représentent tous les éléments mis dans mes poèmes sur les pays serait une bonne idée, aussi d’autres poèmes.  
 
-Beauté
-Créér la beauté au paroxysme.
-Je ne mets pas de carpe koï bicolore dans mon jardin parfait car c’est gros, de couleur asymétrique et disgracieux, je préfère la truite fario qui est belle, sportive, symétrique mais moins visible de loin et seulement adapté aux eaux assez fraîches et claires.
+Beauté  
+Créer la beauté au paroxysme.  
+Je ne mets pas de carpe koï bicolore dans mon jardin parfait car c’est gros, de couleur asymétrique et disgracieux, je préfère la truite fario qui est belle, sportive, symétrique mais moins visible de loin et seulement adapté aux eaux assez fraîches et claires.  
 
-Spectacle
-Je peux chanter dans mon armure de tissu ou en beau costume de combattant Chinois en maniant deux bâtons en même temps où chaque extrémité est sublimée par un feu d’artifice attaché au bout des bâtons éclairés, en patinant serait bien aussi.
+Spectacle  
+Je peux chanter dans mon armure de tissu ou en beau costume de combattant Chinois en maniant deux bâtons en même temps où chaque extrémité est sublimée par un feu d’artifice attaché au bout des bâtons éclairés, en patinant serait bien aussi.  
 
-Moule perlière
-La seule moule de cette espèce que j’ai vu dans ma vie était au même endroit que les bulles de glace comme des perles d’eau, c’est ultra rare que cette moule fasse une perle.
+Moule perlière  
+La seule moule de cette espèce que j’ai vu dans ma vie était au même endroit que les bulles de glace comme des perles d’eau, c’est ultra rare que cette moule fasse une perle.  
 
-Ovni
-Pendant mon enfance depuis la fenêtre de ma chambre en plein jour, j’ai vu un ovni immobile argenté en forme de cylindre (cigare) avec 3 fenêtres carrées blanches pendant quelques dizaines de seconde, quand j’ai arrêté de regarder pour revenir sur sa vue, il avait disparu.
-Je pense qu’il devait faire environ une dizaine de mètres à une distance de plusieurs centaines de mètres.
+Ovni  
+Pendant mon enfance depuis la fenêtre de ma chambre en plein jour, j’ai vu un ovni immobile argenté en forme de cylindre (cigare) avec 3 fenêtres carrées blanches pendant quelques dizaines de seconde, quand j’ai arrêté de regarder pour revenir sur sa vue, il avait disparu.  
+Je pense qu’il devait faire environ une dizaine de mètres à une distance de plusieurs centaines de mètres.  
 
 
-Les 59 holorimes 
-du ninja
+Les 59 holorimes  
+du ninja  
 
-Manier les mots comme un ninja
-3 Records du monde
+Manier les mots comme un ninja  
+3 Records du monde  
 
-Les 59 holorimes 
-du ninja
+Les 59 holorimes  
+du ninja  
 
-Présentation
+Présentation  
 
-Mon nom en chinois est : Sēnlín Shuài Méilǐ (森林 帅 梅里).
-Sēnlín Shuài Méilǐ en numérologie des lettres :
-73+58+48= 179 :1+7+9=17 (chine), 1+7=8.
-2 fois le S du dragon forment le 8, M=3 (8 séparé en deux).
-La signification de mon nom et de mon prénom est beauté de la forêt (88). Forêt belle (森林 美丽) en chinois, c’est sēnlín měilì (en pinyin). Shuài (帅) veut aussi dire beau. M comme la montagne Meili (梅里, méilǐ) dans la province du Yunnan en Chine. 
-Shù (树) veut dire arbre, ài (爱), c’est aimer.
-Sēnměi Shuài (森美 帅:forêt agréable, beau) est mon nom en version courte pour abréger.
+Mon nom en chinois est : Sēnlín Shuài Méilǐ (森林 帅 梅里).  
+Sēnlín Shuài Méilǐ en numérologie des lettres :  
+73+58+48= 179 :1+7+9=17 (chine), 1+7=8.  
+2 fois le S du dragon forment le 8, M=3 (8 séparé en deux).  
+La signification de mon nom et de mon prénom est beauté de la forêt (88). Forêt belle (森林 美丽) en chinois, c’est sēnlín měilì (en pinyin). Shuài (帅) veut aussi dire beau. M comme la montagne Meili (梅里, méilǐ) dans la province du Yunnan en Chine.  
+Shù (树) veut dire arbre, ài (爱), c’est aimer.  
+Sēnměi Shuài (森美 帅:forêt agréable, beau) est mon nom en version courte pour abréger.  
 
-Je suis un esthète passionné de philosophie, poésie, nature, Kung-fu et de beaucoup d’autres choses…
+Je suis un esthète passionné de philosophie, poésie, nature, Kung-fu et de beaucoup d’autres choses…  
 
-Le jeu bonus à la lecture peut être de cacher l’un des paragraphes et de deviner l’autre paragraphe.
+Le jeu bonus à la lecture peut être de cacher l’un des paragraphes et de deviner l’autre paragraphe.  
 
-1. Le miroir de l’ombre vaincue Sylvain Meili (08/05/2026)
+1. Le miroir de l’ombre vaincue Sylvain Meili (08/05/2026)  
 
-Challenge : 24 holorimes en 24 h : Réalisé en moins de 21 heures.
-Challenge : 36 holorimes en 36h : Réalisé en 34 heures environ.
-Après 21h le 15/05/2026 jusqu’au 17/05/2026 à 7h, soit 36 poème en 34 h environ. 2 nuits blanches, dormi toute la fin des matinées.
-2. Se réveiller et se sauver (15/05/2026)
-3. Se défaire et construire (15/05/2026)
-4. Maniement du bâton et récupérer les voleurs (16/05/2026)
-5. Belles décorations (16/05/2026)
-6. Chapeau l’artiste et tourner la page (16/05/2026)
-7. Le temps du jeu (16/05/2026)
-8. Chemins antagonistes (16/05/2026)
-9. Une soirée pas comme l’autre (16/05/2026)
-10. Lola et le lapin (16/05/2026)
-11. La fumée et le parfum (16/05/2026)
-12. Cuisinier incompétent (16/05/2026)
-13. Rivière et pêcheur (16/05/2026)
-14. Marion, Marie et Emma (16/05/2026)
-15. Balade sans fumer (16/05/2026)
-16. Camping (16/05/2026)
-17. Fête et jeu de cartes (16/05/2026)
-18. Secret-aire (16/05/2026)
-19. Question : où suis-je ? (16/05/2026)
-20. Chargé de vie (16/05/2026)
-21. Nettoie après la danse et bois un thé (16/05/2026)
-22. Foot et coupe (16/05/2026)
-23. Le karaté est beau (16/05/2026)
-24. Un ninja élevé (16/05/2026)
-25. Trop de poids, manger des pois (16/05/2026)
-26. Billes (17/05/2026)
-27. Repos doré (17/05/2026)
-28. Piquant ou douceur (17/05/2026)
-29. Se protéger (17/05/2026)
-30. Jeux vidéo (17/05/2026)
+Challenge : 24 holorimes en 24 h : Réalisé en moins de 21 heures.  
+Challenge : 36 holorimes en 36h : Réalisé en 34 heures environ.  
+Après 21h le 15/05/2026 jusqu’au 17/05/2026 à 7h, soit 36 poème en 34 h environ. 2 nuits blanches, dormi toute la fin des matinées.  
+2. Se réveiller et se sauver (15/05/2026)  
+3. Se défaire et construire (15/05/2026)  
+4. Maniement du bâton et récupérer les voleurs (16/05/2026)  
+5. Belles décorations (16/05/2026)  
+6. Chapeau l’artiste et tourner la page (16/05/2026)  
+7. Le temps du jeu (16/05/2026)  
+8. Chemins antagonistes (16/05/2026)  
+9. Une soirée pas comme l’autre (16/05/2026)  
+10. Lola et le lapin (16/05/2026)  
+11. La fumée et le parfum (16/05/2026)  
+12. Cuisinier incompétent (16/05/2026)  
+13. Rivière et pêcheur (16/05/2026)  
+14. Marion, Marie et Emma (16/05/2026)  
+15. Balade sans fumer (16/05/2026)  
+16. Camping (16/05/2026)  
+17. Fête et jeu de cartes (16/05/2026)  
+18. Secret-aire (16/05/2026)  
+19. Question : où suis-je ? (16/05/2026)  
+20. Chargé de vie (16/05/2026)  
+21. Nettoie après la danse et bois un thé (16/05/2026)  
+22. Foot et coupe (16/05/2026)  
+23. Le karaté est beau (16/05/2026)  
+24. Un ninja élevé (16/05/2026)  
+25. Trop de poids, manger des pois (16/05/2026)  
+26. Billes (17/05/2026)  
+27. Repos doré (17/05/2026)  
+28. Piquant ou douceur (17/05/2026)  
+29. Se protéger (17/05/2026)  
+30. Jeux vidéo (17/05/2026)  
 
-Histoire de 31 à 36
-31. 2 voleurs et la pluie (17/05/2026)
-32. Une galère avant un bon vin (17/05/2026)
-33. Trop bu (17/05/2026)
-34. Nuit de sommeil (17/05/2026)
-35. Réveil (17/05/2026)
-36. Le karma (17/05/2026)
+Histoire de 31 à 36  
+31. 2 voleurs et la pluie (17/05/2026)  
+32. Une galère avant un bon vin (17/05/2026)  
+33. Trop bu (17/05/2026)  
+34. Nuit de sommeil (17/05/2026)  
+35. Réveil (17/05/2026)  
+36. Le karma (17/05/2026)  
 
-37. La récompense (17/05/2026)
-Fin du challenge
+37. La récompense (17/05/2026)  
+Fin du challenge  
 
-38. Sage ou passage (17/05/2026), Record du monde de longueur d’holorime.
-39. Nettoyer (18/05/2026)
-40. Monter (18/05/2026)
-41. Chute, écoute (18/05/2026)
-42. Les gueux (18/05/2026)
-43. Fleurs doubles (18/05/2026)
-44. Malin tendu (18/05/2026)
-45. Fourberies des bois (18/05/2026)
-46. Boxer comme un chat à Mardis gras (18/05/2026)
-47. Fleur sent mauvais (18/05/2026)
-48. Le pic creuse et le pic veille (18/05/2026)
-49. Holorimes en chaînes (18/05/2026), Record du monde de longueur d’holorimes en chaînes.
-50. Lola dans son bain (18/05/2026)
-51. Ricochet syllabique aléatoire direct (20/05/2026) 
-Mon invention.
-52. Triple holorime (20/05/2026), Record du monde de longueur en triple holorime.
-53. Etre comme l’eau qui ruse (21/05/2026)
-54. Le travail accélère la récompense (21/05/2026)
-55. L’arc-en-ciel brille en fin (21/05/2026)
-56. De l’eau est utile (23/05/2026)
-57. Cannes et canards (23/05/2026)
-58. Belle Anna et moi au jardin (23/05/2026)
-59. Rose : l’arc-en-ciel (23/05/2026)
+38. Sage ou passage (17/05/2026), Record du monde de longueur d’holorime.  
+39. Nettoyer (18/05/2026)  
+40. Monter (18/05/2026)  
+41. Chute, écoute (18/05/2026)  
+42. Les gueux (18/05/2026)  
+43. Fleurs doubles (18/05/2026)  
+44. Malin tendu (18/05/2026)  
+45. Fourberies des bois (18/05/2026)  
+46. Boxer comme un chat à Mardis gras (18/05/2026)  
+47. Fleur sent mauvais (18/05/2026)  
+48. Le pic creuse et le pic veille (18/05/2026)  
+49. Holorimes en chaînes (18/05/2026), Record du monde de longueur d’holorimes en chaînes.  
+50. Lola dans son bain (18/05/2026)  
+51. Ricochet syllabique aléatoire direct (20/05/2026)  
+Mon invention.  
+52. Triple holorime (20/05/2026), Record du monde de longueur en triple holorime.  
+53. Etre comme l’eau qui ruse (21/05/2026)  
+54. Le travail accélère la récompense (21/05/2026)  
+55. L’arc-en-ciel brille en fin (21/05/2026)  
+56. De l’eau est utile (23/05/2026)  
+57. Cannes et canards (23/05/2026)  
+58. Belle Anna et moi au jardin (23/05/2026)  
+59. Rose : l’arc-en-ciel (23/05/2026)  
 
-Le miroir de l’ombre vaincue
+Le miroir de l’ombre vaincue  
 
-Pouvoir, concurrence d’idées qu’on persécuta, père du saint indigné, incompris, a bons dons, soupire l’indifférence générale consentie, (mère de Marie), je t’aime maman tirelire !, je sens ! (sourire), espoir fait gagner toujours à la fin des temps, secours attendus, remboursé enfin.
+Pouvoir, concurrence d’idées qu’on persécuta, père du saint indigné, incompris, a bons dons, soupire l’indifférence générale consentie, (mère de Marie), je t’aime maman tirelire !, je sens ! (sourire), espoir fait gagner toujours à la fin des temps, secours attendus, remboursé enfin.  
 
 «Poux, voir con, cul rance », dit des cons, « perds ces culs, t’as
- perdu seins », un dit,  nier, « un con », prie, abandon sous pire, lundi fait rance, gêné, râle, qu’on sentit, merde, marre, i !, jeté, me !, m’a menti !, relire, sous rires, jeu sans !, est ce poids refait gars nié tout jour à la faim des taons, se court à tant dû, rend bout, resait en fin.
+ perdu seins », un dit,  nier, « un con », prie, abandon sous pire, lundi fait rance, gêné, râle, qu’on sentit, merde, marre, i !, jeté, me !, m’a menti !, relire, sous rires, jeu sans !, est ce poids refait gars nié tout jour à la faim des taons, se court à tant dû, rend bout, resait en fin.  
 
-Sylvain Meili (08/05/2026, n°A1)
+Sylvain Meili (08/05/2026, n°A1)  
 
-Abrupt au 2ème paragraphe car obligé de faire coïncider sinon pas d’holorime.
+Abrupt au 2ème paragraphe car obligé de faire coïncider sinon pas d’holorime.  
 
-1. Persécuté par le pouvoir mais le bien et l’équilibre revient.
-2. En plus des fausses rumeurs et insultes, il perd ses chances d’avoir une copine mais à la fin en retrouve une.
-I et me sont des gémissements justifiés par marre et jeté.
+1. Persécuté par le pouvoir mais le bien et l’équilibre revient.  
+2. En plus des fausses rumeurs et insultes, il perd ses chances d’avoir une copine mais à la fin en retrouve une.  
+I et me sont des gémissements justifiés par marre et jeté.  
 
-Challenge : 24 holorimes en 24 h.
-Réalisé en moins de 21 heures.
-36 en 34 heures.
-Après 21h le 15/05/2026 jusqu’au 17/05/2026 à 7h, soit 36 poème en 34 h environ. 2 nuit blanches, dormi toute la fin des matinées.
+Challenge : 24 holorimes en 24 h.  
+Réalisé en moins de 21 heures.  
+36 en 34 heures.  
+Après 21h le 15/05/2026 jusqu’au 17/05/2026 à 7h, soit 36 poème en 34 h environ. 2 nuit blanches, dormi toute la fin des matinées.  
 
 
-Se réveiller et se sauver
+Se réveiller et se sauver  
 
-Au lent pensant qui pense dans sa frénétique fontaine trouble sans effort, secours et renaît sens.
+Au lent pensant qui pense dans sa frénétique fontaine trouble sans effort, secours et renaît sens.  
 
-Aux lampes en sang qui pend, se dansa, freiné tique, fonte, haine, trou blessant est fort, se court. Hé! Renaissance. 
+Aux lampes en sang qui pend, se dansa, freiné tique, fonte, haine, trou blessant est fort, se court. Hé! Renaissance.  
 	
-Sylvain Meili (15/05/2026, n°A2)
+Sylvain Meili (15/05/2026, n°A2)  
 
 
-Se défaire et construire
+Se défaire et construire  
 
-Paillasson sert vent à laver, rabat, tire, rend poussière.
-Paille à son servant, ah là, verra bâtir en pousse hier.
+Paillasson sert vent à laver, rabat, tire, rend poussière.  
+Paille à son servant, ah là, verra bâtir en pousse hier.  
 
-Sylvain Meili (15/05/2026, n°A3)
+Sylvain Meili (15/05/2026, n°A3)  
 
 
-Maniement du bâton et récupérer les voleurs
+Maniement du bâton et récupérer les voleurs  
 
-Se promener là-bas, tailler à bâton, des sports, a dit que c’est bien voler en tournant tiges, t’es remis, néant vaincu rieusement.
+Se promener là-bas, tailler à bâton, des sports, a dit que c’est bien voler en tournant tiges, t’es remis, néant vaincu rieusement.  
 
-Ce pro, mener la bataille, et abattons des sporadiques? Ses biens volés, entourent nantis, jetez, terminé en vingt curieusement.
+Ce pro, mener la bataille, et abattons des sporadiques? Ses biens volés, entourent nantis, jetez, terminé en vingt curieusement.  
 
-Sylvain Meili (16/05/2026, n°A4)
+Sylvain Meili (16/05/2026, n°A4)  
 
 
-Belles décorations
+Belles décorations  
 
-J’aime la nature, des corridors avaient que son col lié des montées, la vue belle, aube, j’ai la félicité qu’on tend.
+J’aime la nature, des corridors avaient que son col lié des montées, la vue belle, aube, j’ai la félicité qu’on tend.  
 
-Gemmes! Lana tu redécore Idor avec son collier démonté, l’a vu, bel objet, la fée lit si t’es content.
+Gemmes! Lana tu redécore Idor avec son collier démonté, l’a vu, bel objet, la fée lit si t’es content.  
 
-Sylvain Meili (16/05/2026, n°A5)
+Sylvain Meili (16/05/2026, n°A5)  
 
 
-Chapeau l’artiste et tourner la page
+Chapeau l’artiste et tourner la page  
 
-Le chapeau de douce heure circulaire qu’on tend pour s’embellir, un poème pacifié des cœurs remangeant des vers, dicte pour l’état d’avoir dessous les histoires faites, ton sceau téléporté.
+Le chapeau de douce heure circulaire qu’on tend pour s’embellir, un poème pacifié des cœurs remangeant des vers, dicte pour l’état d’avoir dessous les histoires faites, ton sceau téléporté.  
 
-Le chat, peau de douceur, circule, l’air content pour 100 belles, lire impôts, aime pas s’y fier, d’écœurement, gens, des verdicts pour l’état, d’avoirs de sous, hisse toi! refêtons!, sautez!, les porter.
+Le chat, peau de douceur, circule, l’air content pour 100 belles, lire impôts, aime pas s’y fier, d’écœurement, gens, des verdicts pour l’état, d’avoirs de sous, hisse toi! refêtons!, sautez!, les porter.  
 
-Sylvain Meili (16/05/2026, n°A6)
+Sylvain Meili (16/05/2026, n°A6)  
 
 
-Le temps du jeu
+Le temps du jeu  
 
-Joue et balance toi, esprit d’amusement mena belle vie qu’on plie, mentalisait ces beautés vers champs en couleurs.
-Jouer et bal en ce toit, et ce prix : dame, muse, m’emmena, belle vit, complimenta, lisait, “c’est beau tes vers chantant“, cool heure.
+Joue et balance toi, esprit d’amusement mena belle vie qu’on plie, mentalisait ces beautés vers champs en couleurs.  
+Jouer et bal en ce toit, et ce prix : dame, muse, m’emmena, belle vit, complimenta, lisait, “c’est beau tes vers chantant“, cool heure.  
 
-Sylvain Meili (16/05/2026, n°A7)
+Sylvain Meili (16/05/2026, n°A7)  
 
 
-Chemins antagonistes
+Chemins antagonistes  
 
-Sous l’effort, je m’entraîne et franchis l’opulence, sans manque, mise, ère de or.
+Sous l’effort, je m’entraîne et franchis l’opulence, sans manque, mise, ère de or.  
 
-Sous les fort, je mens, traîne et franc chie, l’eau pue, lent se sent, mens, que misère, dehors.
+Sous les fort, je mens, traîne et franc chie, l’eau pue, lent se sent, mens, que misère, dehors.  
 
-Sylvain Meili (16/05/2026, n°A8)
+Sylvain Meili (16/05/2026, n°A8)  
 
 
-Une soirée pas comme l’autre
+Une soirée pas comme l’autre  
 
-Filmé, rideau, soir et regarder des pères rirent, la faim remplit.
-File mes rides, aux soirées, regard, dépérir, la fin rend plis.
+Filmé, rideau, soir et regarder des pères rirent, la faim remplit.  
+File mes rides, aux soirées, regard, dépérir, la fin rend plis.  
 
-Sylvain Meili (16/05/2026, n°A9)
+Sylvain Meili (16/05/2026, n°A9)  
 
 
-Lola et le lapin
+Lola et le lapin  
 
-Devant un geai, Lola peint son lapin.
-De vent un jet : l’eau, lapin : son, là : pin.
+Devant un geai, Lola peint son lapin.  
+De vent un jet : l’eau, lapin : son, là : pin.  
 
-Sylvain Meili (16/05/2026, n°A10)
+Sylvain Meili (16/05/2026, n°A10)  
 
 
-La fumée et le parfum
+La fumée et le parfum  
 
-Le rocher grand perd, son péché : grandir devant, au dos, rend par fumer.
+Le rocher grand perd, son péché : grandir devant, au dos, rend par fumer.  
 
-Le rot chez grand père, son pet chez grands dirent de vent odorant parfumé.
+Le rot chez grand père, son pet chez grands dirent de vent odorant parfumé.  
 
-Sylvain Meili (16/05/2026, n°A11)
+Sylvain Meili (16/05/2026, n°A11)  
 
 
-Cuisinier incompétent
+Cuisinier incompétent  
 
-Un con promis mais un con pète en ce mytho, nez sent.
-Hein! Compromis, mets incompétence, mitonner sans.
+Un con promis mais un con pète en ce mytho, nez sent.  
+Hein! Compromis, mets incompétence, mitonner sans.  
 
-Sylvain Meili (16/05/2026, n°A12)
+Sylvain Meili (16/05/2026, n°A12)  
 
 
-Rivière et pêcheur
+Rivière et pêcheur  
 
-Île rivière sépare des lits, cieux arborés, poissons de file est sentir danger.
+Île rivière sépare des lits, cieux arborés, poissons de file est sentir danger.  
 
-Il rit, vit, erre, ses parts, délicieux art bord est poids: sonde, filet s’en tire dans jet.
+Il rit, vit, erre, ses parts, délicieux art bord est poids: sonde, filet s’en tire dans jet.  
 
-Sylvain Meili (16/05/2026, n°A13)
+Sylvain Meili (16/05/2026, n°A13)  
 
 
-Marion, Marie et Emma
+Marion, Marie et Emma  
 
-Marion nette teint, Emma s’endort mais accourt.
-Marie, on éteint, Emma s’endormais, à court.
+Marion nette teint, Emma s’endort mais accourt.  
+Marie, on éteint, Emma s’endormait, à court.  
 
-Sylvain Meili (16/05/2026, n°A14)
+Sylvain Meili (16/05/2026, n°A14)  
 
 
-Balade sans fumer
+Balade sans fumer  
 
-Genêt parfumé décore, et ce pont dans Paris perdure rue Arc/paire.
-Je n’ai pas refumé, des correspondants parient, perdu Ruarc/Rupert.
+Genêt parfumé décore, et ce pont dans Paris perdure rue Arc/paire.  
+Je n’ai pas refumé, des correspondants parient, perdu Ruarc/Rupert.  
 
-Sylvain Meili (16/05/2026, n°A15)
+Sylvain Meili (16/05/2026, n°A15)  
 
 
-Camping 
+Camping  
 
-Sac à dos, par don, attend dans la tente de guet, rire.
-Sacqua dos, pardonna tant, dans l’attente de guérir.
+Sac à dos, par don, attend dans la tente de guet, rire.  
+Sacqua dos, pardonna tant, dans l’attente de guérir.  
 
-Sylvain Meili (16/05/2026, n°A16)
+Sylvain Meili (16/05/2026, n°A16)  
 
 
-Fête et jeu de cartes
+Fête et jeu de cartes  
 
-L’écart te fête le ventre, passe, gars nié.
-Les cartes faites, le vent trépasse, gagné.
+L’écart te fête le ventre, passe, gars nié.  
+Les cartes faites, le vent trépasse, gagné.  
 
-Sylvain Meili (16/05/2026, n°A17)
+Sylvain Meili (16/05/2026, n°A17)  
 
 
-Secret-aire
+Secret-aire  
 
-Dévoile Secret, air s’en va, le dingue, gaieté remis, néon allumé en fin.
+Dévoile Secret, air s’en va, le dingue, gaieté remis, néon allumé en fin.  
 
-Des voiles, secrétaire sent valdinguer, terminée, allume et enfin...
+Des voiles, secrétaire sent valdinguer, terminée, allume et enfin...  
 
-Sylvain Meili (16/05/2026, n°A18)
+Sylvain Meili (16/05/2026, n°A18)  
 
 
-Question : où suis-je ?
+Question : où suis-je ?  
 
-Forêt, pont, animal, pensées, geai, ces jars, daims.
-Faux, réponds Annie, mal pensé, j’ai : c’est jardin.
+Forêt, pont, animal, pensées, geai, ces jars, daims.  
+Faux, réponds Annie, mal pensé, j’ai : c’est jardin.  
 
-Sylvain Meili (16/05/2026, n°A19)
-Il faux poser possiblement la question a une fille appelé Annie, si elle répond faux, tu répète mais avec le ton de la 2ème phrase
+Sylvain Meili (16/05/2026, n°A19)  
+Il faux poser possiblement la question a une fille appelé Annie, si elle répond faux, tu répète mais avec le ton de la 2ème phrase  
 
 
-Chargé de vie
+Chargé de vie  
 
-Allant vers le château d’eau rechargé de bonne heure.
-A l’envers, le chat, tôt, dort chargé de bonheur.
+Allant vers le château d’eau rechargé de bonne heure.  
+A l’envers, le chat, tôt, dort chargé de bonheur.  
 
-Sylvain Meili (16/05/2026, n°A20)
+Sylvain Meili (16/05/2026, n°A20)  
 
 
-Nettoie après la danse et bois un thé
+Nettoie après la danse et bois un thé  
 
-Avec un ballet de danse, là chez salle thé.
-Avait qu’un balai dedans, se lâcher saleté.
+Avec un ballet de danse, là chez salle thé.  
+Avait qu’un balai dedans, se lâcher saleté.  
 
-Sylvain Meili (16/05/2026, n°A21)
+Sylvain Meili (16/05/2026, n°A21)  
 
 
-Foot et coupe
+Foot et coupe  
 
-Le football  est partagé, latine coupe et gâte haut.
-Le foot, bats le et par ta gélatine, couper gâteau.
+Le football  est partagé, latine coupe et gâte haut.  
+Le foot, bats le et par ta gélatine, couper gâteau.  
 
-Sylvain Meili (16/05/2026, n°A22)
+Sylvain Meili (16/05/2026, n°A22)  
 
 
-Le karaté est beau
+Le karaté est beau  
 
-Le karaté est beaucoup.
-Le cas raté haït beaux coups.
+Le karaté est beaucoup.  
+Le cas raté haït beaux coups.  
 	
-Sylvain Meili (16/05/2026, n°A23)
+Sylvain Meili (16/05/2026, n°A23)  
 
 
-Un ninja élevé
+Un ninja élevé  
 
-Le ninja met le kit et se faufile.
-Le nid, ne jamais le quitter, ce faux fil.
+Le ninja met le kit et se faufile.  
+Le nid, ne jamais le quitter, ce faux fil.  
 
-Sylvain Meili (16/05/2026, n°A24)
-
-
-Trop de poids, manger des pois
-
-Arrête, surpoids, son gras, se ment, en gros : 600 tours, nage, re pas.
-Arêtes sur poisson grassement, en grossissant, tournage repas.
-
-Sylvain Meili (16/05/2026, n°A25)
+Sylvain Meili (16/05/2026, n°A24)  
 
 
-Billes
+Trop de poids, manger des pois  
 
-A billes déroulent, le jeu ne ralentit, tube en glissant devant.
-Habille des roux, le jeune râlant titubant, glisse en 2 vents.
+Arrête, surpoids, son gras, se ment, en gros : 600 tours, nage, re pas.  
+Arêtes sur poisson grassement, en grossissant, tournage repas.  
 
-Sylvain Meili (17/05/2026, n°A26)
-
-
-Repos doré
-
-L’Orée y est de la victoire d’or, m’en allant vers trophée.
-L’Oreiller, de là vit que toi redormant, à l’envers trop fait.
-
-Sylvain Meili (17/05/2026, n°A27)
+Sylvain Meili (16/05/2026, n°A25)  
 
 
-Piquant ou douceur
+Billes  
 
-Se casser le verre, tue eux les moustiques et de poux, voir hurler.
-Ce cas, c’est le vertueux, les mousses, ticket de pouvoir, eu le relais.
+A billes déroulent, le jeu ne ralentit, tube en glissant devant.  
+Habille des roux, le jeune râlant titubant, glisse en 2 vents.  
 
-Sylvain Meili (17/05/2026, n°A28)
-
-
-Se protéger
-
-Forcer le loup? Barrer l’oiseau de bord d’ailes, émeu sauvé, soulagé, faux pas retiré, éclore.
-Fort, ces loubards, et loi : zoo de bordel, et me sauve, et sous l’âge, hé, faut partir et clore.
-
-Sylvain Meili (17/05/2026, n°A29)
+Sylvain Meili (17/05/2026, n°A26)  
 
 
-Jeux vidéo
+Repos doré  
+
+L’Orée y est de la victoire d’or, m’en allant vers trophée.  
+L’Oreiller, de là vit que toi redormant, à l’envers trop fait.  
+
+Sylvain Meili (17/05/2026, n°A27)  
+
+
+Piquant ou douceur  
+
+Se casser le verre, tue eux les moustiques et de poux, voir hurler.  
+Ce cas, c’est le vertueux, les mousses, ticket de pouvoir, eu le relais.  
+
+Sylvain Meili (17/05/2026, n°A28)  
+
+
+Se protéger  
+
+Forcer le loup? Barrer l’oiseau de bord d’ailes, émeu sauvé, soulagé, faux pas retiré, éclore.  
+Fort, ces loubards, et loi : zoo de bordel, et me sauve, et sous l’âge, hé, faut partir et clore.  
+
+Sylvain Meili (17/05/2026, n°A29)  
+
+
+Jeux vidéo  
 
 Acquérir démo de vaisseaux et terrasser, mesurer la bataille, jeu vidéo, idées hauts.
-Hacker, rire des mots, devaient sauter assez, mesures et là-bas : taille, je vis des hauts idéaux.
+Hacker, rire des mots, devaient sauter assez, mesures et là-bas : taille, je vis des hauts idéaux.  
 
-Sylvain Meili (17/05/2026, n°A30)
-
-
-Tentative de vol 
-(31 à 36)
+Sylvain Meili (17/05/2026, n°A30)  
 
 
-2 voleurs et la pluie
-
-Si lent, ce chapardeur, pas ce plus vieux.
-Silence, chat part, d’heures passent, pluvieux.
-
-Sylvain Meili (17/05/2026, n°A31)
-
-Une galère avant un bon vin
-
-S’il vainc ce bois, le vert s’accoutume, doit se carrer sa densité vers ce jardin.
-"Si le vin se boit, le verre ça coûte, tu me dois ce quart et ça, danse, cite et verse jarre, un".
-
-Sylvain Meili (17/05/2026, n°A32)
-
-Trop bu
-
-Jean trouve, là porté le saint, "t'étais parlant, fantasmant, bourré, laid".
-J’entrouve la porte et le sein tété par l’enfant, tassement, bourre et lait.
-
-Sylvain Meili (17/05/2026, n°A33)
-
-Nuit de sommeil
-
-Ennuis, saoulé, couvert, tu redors.
-En nuit, sous les couvertures, dort.
-
-Sylvain Meili (17/05/2026, n°A34)
-
-Réveil
-
-Pigeon roucoule, le moule, un nid chez Ostende l’avoua reprit.
-Pigeons, roue coule, le moulin niché au stand lavoir, prit.
-
-Sylvain Meili (17/05/2026, n°A35)
-
-Le karma
-
-L’or, ni hier, de lait se prit, en vain attendu, le quart m’a perdu, sans, à près, chut! 
-L’ornière de l’esprit, en vint à tant dû, le karma, perds du sang après chute.
-
-Sylvain Meili (17/05/2026, n°A36)
-
-Fin
+Tentative de vol  
+(31 à 36)  
 
 
-La récompense
+2 voleurs et la pluie  
 
-La concécration des cent vers l’or.
-Là, qu’on sait que ration descend vers Laure.
+Si lent, ce chapardeur, pas ce plus vieux.  
+Silence, chat part, d’heures passent, pluvieux.  
 
-Sylvain Meili (17/05/2026, n°A37)
+Sylvain Meili (17/05/2026, n°A31)  
+
+Une galère avant un bon vin  
+
+S’il vainc ce bois, le vert s’accoutume, doit se carrer sa densité vers ce jardin.  
+"Si le vin se boit, le verre ça coûte, tu me dois ce quart et ça, danse, cite et verse jarre, un".  
+
+Sylvain Meili (17/05/2026, n°A32)  
+
+Trop bu  
+
+Jean trouve, là porté le saint, "t'étais parlant, fantasmant, bourré, laid".  
+J’entrouve la porte et le sein tété par l’enfant, tassement, bourre et lait.  
+
+Sylvain Meili (17/05/2026, n°A33)  
+
+Nuit de sommeil  
+
+Ennuis, saoulé, couvert, tu redors.  
+En nuit, sous les couvertures, dort.  
+
+Sylvain Meili (17/05/2026, n°A34)  
+
+Réveil  
+
+Pigeon roucoule, le moule, un nid chez Ostende l’avoua reprit.  
+Pigeons, roue coule, le moulin niché au stand lavoir, prit.  
+
+Sylvain Meili (17/05/2026, n°A35)  
+
+Le karma  
+
+L’or, ni hier, de lait se prit, en vain attendu, le quart m’a perdu, sans, à près, chut!  
+L’ornière de l’esprit, en vint à tant dû, le karma, perds du sang après chute.  
+
+Sylvain Meili (17/05/2026, n°A36)  
+
+Fin  
 
 
-Sage ou passage
+La récompense  
 
-20, 100 météores en jetant sa traînée sur tout un ciel décore rarement, j’ai envie, viens, le passage des files encensent unanimement, duo de sons errent, narre et te personnifie, on a ces tirs pour ces levées contrées concomitants, avec alléchance projeté sur monts et rêves ailés triomphent à l’ère dorée où lanternes à venir demeurent et délices se renforcent et encore sonner vers ces regards des mets pris, laisse ce pot à restes à Sylvain, pose et lit là, Rose.
+La consécration des cent vers l’or.  
+Là, qu’on sait que ration descend vers Laure.  
 
-Vincent, mets tes oranges tant ça traîne, et surtout ainsi, elle décorera, remangez-en, Vivien le pas sage défile encens, une à Nîmes ment, du haut de son air n’arrête personne, ni Fiona s’étire pour s’élever contre et qu’on commit tant avait qu’aller chance se projeter, surmonter, révéler, trions, fallait redorer ou lent, terne avenir demeuré, délit se rend forcé en corps sonné, versé, regardé, mépris, l’espoir resta s’il vint poser un lilas rose.
+Sylvain Meili (17/05/2026, n°A37)  
 
-Sylvain Meili (17/05/2026), n°A38=n°74 de l’œuvre : 
-Les 75 poèmes codés du multivers
 
-Record du monde de longueur d’holorime narratif.
+Sage ou passage  
+
+20, 100 météores en jetant sa traînée sur tout un ciel décore rarement, j’ai envie, viens, le passage des files encensent unanimement, duo de sons errent, narre et te personnifie, on a ces tirs pour ces levées contrées concomitants, avec alléchance projeté sur monts et rêves ailés triomphent à l’ère dorée où lanternes à venir demeurent et délices se renforcent et encore sonner vers ces regards des mets pris, laisse ce pot à restes à Sylvain, pose et lit là, Rose.  
+
+Vincent, mets tes oranges tant ça traîne, et surtout ainsi, elle décorera, remangez-en, Vivien le pas sage défile encens, une à Nîmes ment, du haut de son air n’arrête personne, ni Fiona s’étire pour s’élever contre et qu’on commit tant avait qu’aller chance se projeter, surmonter, révéler, trions, fallait redorer ou lent, terne avenir demeuré, délit se rend forcé en corps sonné, versé, regardé, mépris, l’espoir resta s’il vint poser un lilas rose.  
+
+Sylvain Meili (17/05/2026), n°A38=n°74 de l’œuvre :  
+Les 75 poèmes codés du multivers  
+
+Record du monde de longueur d’holorime narratif.  
 Le pas (pied) sage ou le pas (pas être) sage : ça dépend des fois et du passage.
-Sage ou pas sage, la différence est le passage.
-17 : poème Divine Chine, 1+7+5+2+2+6=23 (23 poèmes sacrés), 2+3=5 : dragon.
-Le dragon chinois sacré. 
+Sage ou pas sage, la différence est le passage.  
+17 : poème Divine Chine, 1+7+5+2+2+6=23 (23 poèmes sacrés), 2+3=5 : dragon.  
+Le dragon chinois sacré.  
 
 
-Nettoyer
+Nettoyer  
 
-L’infirmier con te nettoie et chausse sur lui.
-L’un fit remit et compte nettoyer, chaussure luit.
+L’infirmier con te nettoie et chausse sur lui.  
+L’un fit remit et compte nettoyer, chaussure luit.  
 
-Sylvain Meili (18/05/2026, n°A39)
+Sylvain Meili (18/05/2026, n°A39)  
 
 
-Monter
+Monter  
 
-Sauteur mit un pagne et courra sur montée.
-Sceau, te remit un panier court, a su remonter.
+Sauteur mit un pagne et courra sur montée.  
+Sceau, te remit un panier court, a su remonter.  
 
-Sylvain Meili (18/05/2026, n°A40)
+Sylvain Meili (18/05/2026, n°A40)  
 
 
-Chute, écoute
+Chute, écoute  
 
-Là, chut !, dos courbé te ment.
-La chute d’eau court bêtement.
+Là, chut !, dos courbé te ment.  
+La chute d’eau court bêtement.  
 
-Sylvain Meili (18/05/2026, n°A41)
+Sylvain Meili (18/05/2026, n°A41)  
 
 
-Les gueux
+Les gueux  
 
-C’est qu’aller gueuler.
-S’est calé, gueux laid.
+C’est qu’aller gueuler.  
+S’est calé, gueux laid.  
 
-Sylvain Meili (18/05/2026, n°A42)
+Sylvain Meili (18/05/2026, n°A42)  
 
 
-Fleurs doubles
+Fleurs doubles  
 
-Ses fleurs, témérité vers ces bonheurs.
-C’est flirté, mérité, versé, bonheur.
+Ses fleurs, témérité vers ces bonheurs.  
+C’est flirté, mérité, versé, bonheur.  
 
-Sylvain Meili (18/05/2026, n°A43)
+Sylvain Meili (18/05/2026, n°A43)  
 
 
-Malin tendu
+Malin tendu  
 
-C’est chaud, chute manquée, rire secrètement.
-Ses chuchotements, quérir secret, te ment.
+C’est chaud, chute manquée, rire secrètement.  
+Ses chuchotements, quérir secret, te ment.  
 
-Sylvain Meili (18/05/2026, n°A44)
+Sylvain Meili (18/05/2026, n°A44)  
 
 
-Fourberies des bois
+Fourberies des bois  
 
-Fourbe rie, haut de sa robe, un si petit, j’en pense beau coup.
-Fourberies, au-deçà, Robin ainsi, Petit Jean panse beaucoup.
+Fourbe rie, haut de sa robe, un si petit, j’en pense beau coup.  
+Fourberies, au-deçà, Robin ainsi, Petit Jean panse beaucoup.  
 
-Sylvain Meili (18/05/2026, n°A45)
+Sylvain Meili (18/05/2026, n°A45)  
 
 
-Boxer comme un chat à Mardi gras
+Boxer comme un chat à Mardi gras  
 
-Un petit gris jouant alien, Hervé méca au mardi gras, se perdant, pas typé à côtes et chapeau, mangez.
-Un peu, Tigris joue, Ali énervé mets KO, m’a redit grâce, perd d’empathie (pet à côté), chat : pot mangé.
+Un petit gris jouant alien, Hervé méca au mardi gras, se perdant, pas typé à côtes et chapeau, mangez.  
+Un peu, Tigris joue, Ali énervé mets KO, m’a redit grâce, perd d’empathie (pet à côté), chat : pot mangé.  
 
-Sylvain Meili (18/05/2026, n°A46)
+Sylvain Meili (18/05/2026, n°A46)  
 
 
-Fleur sent mauvais
+Fleur sent mauvais  
 
-Circonspect, danger,  deux fleurs dotées dangerosité. Moins content, klaxonne, Saint Germain, sauvé cul, (drôle, rit).
-Cirque, con ce pet devant dans jet de fleurs d’eau, t’es dans jeu rose, hi ! témoins contents, claque sonne, singe gère main, sot vécu drôlerie.
+Circonspect, danger,  deux fleurs dotées dangerosité. Moins content, klaxonne, Saint Germain, sauvé cul, (drôle, rit).  
+Cirque, con ce pet devant dans jet de fleurs d’eau, t’es dans jeu rose, hi ! témoins contents, claque sonne, singe gère main, sot vécu drôlerie.  
 
-Sylvain Meili (18/05/2026, n°A47)
+Sylvain Meili (18/05/2026, n°A47)  
 
 
-Le pic creuse et le pic veille
+Le pic creuse et le pic veille  
 
-Le pic vert, peuplier vil âge décornu, cache et loge.
-Le pic vers peuple y est, village : des corps nus cachés logent.
+Le pic vert, peuplier vil âge décornu, cache et loge.  
+Le pic vers peuple y est, village : des corps nus cachés logent.  
 
-Sylvain Meili (18/05/2026, n°A48)
+Sylvain Meili (18/05/2026, n°A48)  
 
 
-Holorimes en chaînes
+Holorimes en chaînes  
 
-Voilà la saine scène : des dés, comme un brin brun, je reperds puis je repère le repaire où je peux plier le peuplier vert, un ver vers le verre du conte qui compte au sol les saules haut en eau et la toux du toutou, tout avec son pain qui se peint et le pin au cœur d’un chœur de chants d’un champs près de ton tonton avec un thon et l’avocat de l’avocat qui court la cour jusqu’à son cours de la mère du maire devant la mer qu’on voit près de la voie du bout en boue où un temps un taon me tend tant de coups dans mon cou dont le coût me pique vers le pic d’un saut de sot au sceau d’un seau, quand le camp me pose une pause en paix jusqu’à mon pet devant un geai près d’un jet d’eau pour mon dos pour mes maux, pas plus de mots car c’est le signe d’un cygne où je me sens sans mon sang, cent trop de fois à mon foie pour la foi de Foix.
+Voilà la saine scène : des dés, comme un brin brun, je reperds puis je repère le repaire où je peux plier le peuplier vert, un ver vers le verre du conte qui compte au sol les saules haut en eau et la toux du toutou, tout avec son pain qui se peint et le pin au cœur d’un chœur de chants d’un champs près de ton tonton avec un thon et l’avocat de l’avocat qui court la cour jusqu’à son cours de la mère du maire devant la mer qu’on voit près de la voie du bout en boue où un temps un taon me tend tant de coups dans mon cou dont le coût me pique vers le pic d’un saut de sot au sceau d’un seau, quand le camp me pose une pause en paix jusqu’à mon pet devant un geai près d’un jet d’eau pour mon dos pour mes maux, pas plus de mots car c’est le signe d’un cygne où je me sens sans mon sang, cent trop de fois à mon foie pour la foi de Foix.  
 
-Sylvain Meili (18/05/2026, n°A49)
+Sylvain Meili (18/05/2026, n°A49)  
 
-Mon invention : Holorimes en chaînes, seulement des mots de liaison entre les holorimes, sinon c’est trop facile et de la triche.
+Mon invention : Holorimes en chaînes, seulement des mots de liaison entre les holorimes, sinon c’est trop facile et de la triche.  
 
-Record du monde de longueur d’holorimes en chaînes d’où le même titre.
+Record du monde de longueur d’holorimes en chaînes d’où le même titre.  
 
 
-Lola dans son bain
+Lola dans son bain  
 
-Lola végète. 
-L’eau lave et jete.
+Lola végète.  
+L’eau lave et jete.  
 
-Sylvain Meili (18/05/2026, n°A50)
+Sylvain Meili (18/05/2026, n°A50)  
 
 
-Ricochet syllabique aléatoire direct
+Ricochet syllabique aléatoire direct  
 
-J’attends à temps, me tend tant de taons, ne t’en un tantinet, tante me tance tendrement, me ment à Mans, pas Clément : clef de do, Rémi : fa, au sol : moi, sur dos : dodo.
+J’attends à temps, me tend tant de taons, ne t’en un tantinet, tante me tance tendrement, me ment à Mans, pas Clément : clef de do, Rémi : fa, au sol : moi, sur dos : dodo.  
 
-Sylvain Meili (20/05/2026, n°A51)
+Sylvain Meili (20/05/2026, n°A51)  
 
-La fin du poème est libre
-Mon invention : Ricochet syllabique aléatoire direct : reprise du son d’une des syllabes du dernier mot d’un ensemble d’holorimes en chaînes ou d’une des syllabes du dernier mot d’un ensemble de rimes en chaînes pour faire la suite.
+La fin du poème est libre  
+Mon invention : Ricochet syllabique aléatoire direct : reprise du son d’une des syllabes du dernier mot d’un ensemble d’holorimes en chaînes ou d’une des syllabes du dernier mot d’un ensemble de rimes en chaînes pour faire la suite.  
 
 
-Triple holorime
+Triple holorime  
 
-Ver court, attends, repaire pin, boa vert, peau, sens maître sot, oh !
-Vers cour à temps, repère pain, boit verre, pot, sans mettre seau eau.
-Verre cours, à tant, reperds, peint bois vers Pau, cent mètres : saut haut.
+Ver court, attends, repaire pin, boa vert, peau, sens maître sot, oh !  
+Vers cour à temps, repère pain, boit verre, pot, sans mettre seau eau.  
+Verre cours, à tant, reperds, peint bois vers Pau, cent mètres : saut haut.  
 
-Sylvain Meili (20/05/2026, n°A52)
+Sylvain Meili (20/05/2026, n°A52)  
 
-Record du monde : 1er triple holorime inventé.
+Record du monde : 1er triple holorime inventé.  
 
-Parfait jusqu’à pain, boa se prononce plus lentement pour séparer le o de a. Quand on met en général des virgules entre les syllabes de sons identiques, cela revient au même que le mot boa, on coupe le son sauf que boa et boit, le son se coupe brièvement entre o et a de boa donc ma triple holorime est valide à 100%.
-Seule la rapidité des sons est changée la plupart du temps, sans réel changement de prononciation, donc c’est valide.
-Ajout de peau pour rester dans la logique narrative.
+Parfait jusqu’à pain, boa se prononce plus lentement pour séparer le o de a. Quand on met en général des virgules entre les syllabes de sons identiques, cela revient au même que le mot boa, on coupe le son sauf que boa et boit, le son se coupe brièvement entre o et a de boa donc ma triple holorime est valide à 100%.  
+Seule la rapidité des sons est changée la plupart du temps, sans réel changement de prononciation, donc c’est valide.  
+Ajout de peau pour rester dans la logique narrative.  
 
 
-tre comme l’eau qui ruse
+Être comme l’eau qui ruse  
 
-Les arts martiaux, trie ton cerveau, esquive à foncer pile hôte.
-Lézard : marre si eau, tritons servent eau, est ce qui va fond, ces pilotes.
+Les arts martiaux, trie ton cerveau, esquive à foncer pile hôte.  
+Lézard : marre si eau, tritons servent eau, est ce qui va fond, ces pilotes.  
 
-Sylvain Meili (21/05/2026, n°A53)
+Sylvain Meili (21/05/2026, n°A53)  
 
 
-Le travail accélère la récompense
+Le travail accélère la récompense  
 
-La guitare de maître Sylvain, espoir attendu.
-Là, Gui tarde, mettre six levains est ce poids à tant dû.
+La guitare de maître Sylvain, espoir attendu.  
+Là, Gui tarde, mettre six levains est ce poids à tant dû.  
 
-Sylvain Meili (21/05/2026, n°A54)
+Sylvain Meili (21/05/2026, n°A54)  
 
 
-L’arc-en-ciel brille en fin
+L’arc-en-ciel brille en fin  
 
-L’arc-en-ciel vient l’esprit perdurant, les vies dansent là, prince est ce voilier salueur, et vit dame en lui.
-L’art, quand ? Si elle vit, un laisse prix, perdue rend l’évidence. La princesse voit lier sa lueur, évidemment lui.
+L’arc-en-ciel vient l’esprit perdurant, les vies dansent là, prince est ce voilier salueur, et vit dame en lui.  
+L’art, quand ? Si elle vit, un laisse prix, perdue rend l’évidence. La princesse voit lier sa lueur, évidemment lui.  
 
-Sylvain Meili (21/05/2026, n°A55)
+Sylvain Meili (21/05/2026, n°A55)  
 
 
-De l’eau est utile
+De l’eau est utile  
 
-A l’eau à temps vers cent pins laids.
-Halo à tant, versant peint, l’ai. 
-Allô, attends : verre sans pain, lait.
+A l’eau à temps vers cent pins laids.  
+Halo à tant, versant peint, l’ai.  
+Allô, attends : verre sans pain, lait.  
 
-Sylvain Meili (23/05/2026, n°A56)
+Sylvain Meili (23/05/2026, n°A56)  
 
 
-Cannes et canards
+Cannes et canards  
 
-Des mares et cannes à regarder à l’étang cheminer.
-Démarrer, canards regardent et allés tanches miner.
+Des mares et cannes à regarder à l’étang cheminer.  
+Démarrer, canards regardent et allés tanches miner.  
 
-Sylvain Meili (23/05/2026, n°A57)
+Sylvain Meili (23/05/2026, n°A57)  
 
 
-Belle Anna et moi au jardin.
+Belle Anna et moi au jardin  
 
-Anna, belles iront dès le mois de mai fleurir, venir héron de bonne heure.
-Annabelle, hirondelles, moi, de mes fleurs y revenir, airs, ondes, bonheurs.
+Anna, belles iront dès le mois de mai fleurir, venir héron de bonne heure.  
+Annabelle, hirondelles, moi, de mes fleurs y revenir, airs, ondes, bonheurs.  
 
-Sylvain Meili (23/05/2026, n°A58)
+Sylvain Meili (23/05/2026, n°A58)  
 
 
-Rose : l’arc-en-ciel
-Sonia, et ma Rose y est merveille en tenue, en cette cool heure.
-Sonne !, y a Emma, Rosie : émerveillante nuance sept couleurs.
+Rose : l’arc-en-ciel  
+Sonia, et ma Rose y est merveille en tenue, en cette cool heure.  
+Sonne !, y a Emma, Rosie : émerveillante nuance sept couleurs.  
 
-Sylvain Meili (23/052026, n°A59)
+Sylvain Meili (23/052026, n°A59)  
 
 
-Les 59 holorimes du ninja
-Bilan :
-2 types de poème inventé :
-Ricochet syllabique aléatoire direct
-Holorime en chaînes
-5 types
-Holorime simple
-Ricochet syllabique aléatoire direct
-dont 3 records du monde 
-Triple holorime
-Holorime narratif (déjà présent dans les 75 poèmes codés)
-Holorime en chaînes
+Les 59 holorimes du ninja  
+Bilan :  
+2 types de poème inventé :  
+Ricochet syllabique aléatoire direct  
+Holorime en chaînes  
+5 types  
+Holorime simple  
+Ricochet syllabique aléatoire direct  
+dont 3 records du monde  
+Triple holorime  
+Holorime narratif (déjà présent dans les 75 poèmes codés)  
+Holorime en chaînes  
 
 
-Poèmes libres
+Poèmes libres  
 
-Négociation de brocante
+Négociation de brocante  
 
-Le Marchand marchant, gardant galamment la super surenchère.
-Le Client clignotant indécis et incompris veut une remise reprise.
-Honnêtement hautement négociant, le nécessitant repart d’un bon regard.
+Le Marchand marchant, gardant galamment la super surenchère.  
+Le Client clignotant indécis et incompris veut une remise reprise.  
+Honnêtement hautement négociant, le nécessitant repart d’un bon regard.  
 
-Sylvain Meili (26/05/2026, n°B1)
+Sylvain Meili (26/05/2026, n°B1)  
 
-Mon invention : Rime pieds poings : reprise des 2 sons des 2 extrèmités d’un mot dans le mot suivant ou 3 mots après maximum pour la fluidité (mots de liaison non inclus comme : de, la, un, il, comme, près, dont, etc…).
+Mon invention : Rime pieds poings : reprise des 2 sons des 2 extrémités d’un mot dans le mot suivant ou 3 mots après maximum pour la fluidité (mots de liaison non inclus comme : de, la, un, il, comme, près, dont, etc…).  
 
 
-Fleurs
+Fleurs  
 
-Le jardin aux jasmins, une jacynthe, j’arrête  sur cette petite pétillante aux pétales suivant son périple.
+Le jardin aux jasmins, une jacinthe, j’arrête  sur cette petite pétillante aux pétales suivant son périple.  
 
-Sylvain Meili (26/05/2026, n°B2)
+Sylvain Meili (26/05/2026, n°B2)  
 
-Mon invention : Rime pieds poings nostalgique : précédente règle plus : obligation de récupérer une des 2 syllabes des extrémités précédentes pour changer de rime.
+Mon invention : Rime pieds poings nostalgique : précédente règle plus : obligation de récupérer une des 2 syllabes des extrémités précédentes pour changer de rime.  
 
 
-Le Jardin inspire le reflet
+Le Jardin inspire le reflet  
 
-La promenade au jardin devant la chute d’eau de l’étang est superbe.
-La limonade amenée en haut sur le banc de roses, cossu comme une perle.
-Sylvain Meili (27/05/2026, n°B3)
+La promenade au jardin devant la chute d’eau de l’étang est superbe.  
+La limonade amenée en haut sur le banc de roses, cossu comme une perle.  
 
-Mon invention : Rime en demi Miroir phonétique  ou + totale (en comptant les mots de liaison): reprendre la moitié des sons de la ligne précédente dans l’ordre que l’on veut, mots de liaison non inclus, si il y a 9 syllabes, 4 sur 9 est la limite autorisée à 1 près ou la moitié des lettres à une près, ne pas répéter les mêmes mots sauf liaison comme de, la, un, il, comme, près, dont, etc… 
-1 mot supplémentaire ou déficitaire autorisé sur la 2ème ligne, pas plus.
+Sylvain Meili (27/05/2026, n°B3)  
 
-1ère ligne : 18 lettres cueillies et 16 lettres laissées, 6 mots.
-14 syllabes : 6 + 2 x un demi : e et ro = 7.
-2ème ligne : 20 lettres cueillies et 18 lettres laissées, 7 mots.
-15 syllabes : 6 + 2 x 1 demi : anc et e = 7.
-Bilan : réussite 50 % à au moins 1 près en lettre, syllabe ou mot.
+Mon invention : Rime en demi Miroir phonétique  ou + totale (en comptant les mots de liaison): reprendre la moitié des sons de la ligne précédente dans l’ordre que l’on veut, mots de liaison non inclus, si il y a 9 syllabes, 4 sur 9 est la limite autorisée à 1 près ou la moitié des lettres à une près, ne pas répéter les mêmes mots sauf liaison comme de, la, un, il, comme, près, dont, etc…   
+1 mot supplémentaire ou déficitaire autorisé sur la 2ème ligne, pas plus.  
 
+1ère ligne : 18 lettres cueillies et 16 lettres laissées, 6 mots.  
+14 syllabes : 6 + 2 x un demi : e et ro = 7.  
+2ème ligne : 20 lettres cueillies et 18 lettres laissées, 7 mots.  
+15 syllabes : 6 + 2 x 1 demi : anc et e = 7.  
+Bilan : réussite 50 % à au moins 1 près en lettre, syllabe ou mot.  
 
-Mission divine
 
-Je cours dans la vie de ma couronne qui n’a pas menti.
-Le cours de l’eau est limpide comme mes pensées.
-Mes pensées guident le monde désorienté.
-J’oriente le cheminement le plus optimisé.
-L’optimisme est de consacré un monde meilleur.
-Le meilleur artiste est la synthèse de la technologie et de la nature.
-Transformer l’univers pour que mes idées soient essaimées de richesse.
-L’inspiration de l’artiste inspire les graines polennisées.
-Pour polir les pétales rugueux de l’ignorance.
-Des couleurs sentant l’harmonie en musique.
-Pour la jouissance de la vie dans tous ses aspects.
-Parcourant l’univers pour élever la création.
+Mission divine  
 
-Sylvain Meili (mai 2026 : avant les 24 holorimes, n°b3.)
+Je cours dans la vie de ma couronne qui n’a pas menti.  
+Le cours de l’eau est limpide comme mes pensées.  
+Mes pensées guident le monde désorienté.  
+J’oriente le cheminement le plus optimisé.  
+L’optimisme est de consacré un monde meilleur.  
+Le meilleur artiste est la synthèse de la technologie et de la nature.  
+Transformer l’univers pour que mes idées soient essaimées de richesse.  
+L’inspiration de l’artiste inspire les graines pollinisées.  
+Pour polir les pétales rugueux de l’ignorance.  
+Des couleurs sentant l’harmonie en musique.  
+Pour la jouissance de la vie dans tous ses aspects.  
+Parcourant l’univers pour élever la création.  
 
-Anadiplose : 2,3 et 5, 6.
-Rime en écho dérivative : 3,4 et 4,5.
-Rime en écho phonétique à distance : 8, 9 polennisées, polir.
-Prose
+Sylvain Meili (mai 2026 : avant les 24 holorimes, n°b3.)  
 
+Anadiplose : 2,3 et 5, 6.  
+Rime en écho dérivative : 3,4 et 4,5.  
+Rime en écho phonétique à distance : 8, 9 pollinisées, polir.  
+Prose  
 
-Poèmes libres
 
-Bilan : 4
-3 types de poème inventés
-Rime pieds poings
-Rime pieds poings nostalgique
-Rime en demi Miroir phonétique  ou + totale (variante non comptée en invention mais peut se considérer comme invention supplémentaire).
+Poèmes libres  
 
-3 types de rime classique en plus
-Anadiplose, Rime dérivative en écho, Rime en écho phonétique à distance.
+Bilan : 4  
+3 types de poème inventés  
+Rime pieds poings  
+Rime pieds poings nostalgique  
+Rime en demi Miroir phonétique  ou + totale (variante non comptée en invention mais peut se considérer comme invention supplémentaire).  
 
+3 types de rime classique en plus  
+Anadiplose, Rime dérivative en écho, Rime en écho phonétique à distance.  
 
-Bilan général de poésie
 
-137 poèmes
-43 types de poèmes 
-21 types de poèmes inventés (voir peut-être 23)
-Si je compte le triple holorime avec sa ligne entière en triple, puis l’holorime narratif ou il y a plus de 2 lignes continues de chaque paragraphe, où je n’ai pas triché et ayant été le seul à les concrétiser, cela fait 23 inventions.
-5 records du monde
-Nombre de types de poème inventés : 21 (peut-être 23)
-Triple holorimes le plus long
-Holorimes en chaînes le plus long
-Holorime narratif le plus long
-Poème le plus complexe en contraintes et en type de contraintes de moins de 468 lettres et moins de 10 lignes (9)
+Bilan général de poésie  
 
-Et autres records potentiels non comptabilisés…
-Les meilleurs poèmes sur les thèmes, ex : chute d’eau, rivière, forêt, bonsaï, épicéa, jardin, patinage, pays, Kung-fu…
+137 poèmes  
+43 types de poèmes  
+21 types de poèmes inventés (voir peut-être 23)  
+Si je compte le triple holorime avec sa ligne entière en triple, puis l’holorime narratif ou il y a plus de 2 lignes continues de chaque paragraphe, où je n’ai pas triché et ayant été le seul à les concrétiser, cela fait 23 inventions.  
+5 records du monde  
+Nombre de types de poème inventés : 21 (peut-être 23)  
+Triple holorimes le plus long  
+Holorimes en chaînes le plus long  
+Holorime narratif le plus long  
+Poème le plus complexe en contraintes et en type de contraintes de moins de 468 lettres et moins de 10 lignes (9)  
+
+Et autres records potentiels non comptabilisés…  
+Les meilleurs poèmes sur les thèmes, ex : chute d’eau, rivière, forêt, bonsaï, épicéa, jardin, patinage, pays, Kung-fu…  
 
 
 Les points forts du livre
