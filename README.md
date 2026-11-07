@@ -392,7 +392,7 @@ Le complot contre l’humanité et la nature
 <ins>Lézard dans sa grotte</ins> (extrait de la photo principale)
 <ins>Mustélidé</ins> (en haut à droite, photo 1), devant ci-dessous:
 <ins>Animal extraterrestre</ins> (bis).
-<ins>Animal à visage pointu</ins> (forme de blaireau), <ins>oiseau échassier</ins> et <ins>bébé de l’espèce à Yoda<i/ns>, 2/3 à droite, en haut, photo 1).
+<ins>Animal à visage pointu</ins> (forme de blaireau), <ins>oiseau échassier</ins> et <ins>bébé de l’espèce à Yoda</ins>, 2/3 à droite, en haut, photo 1).
 <ins>Yoda à petites oreilles</ins> + tête de singe (fusion de 2 têtes de singe, 1  <ins>tête de singe noire</ins> vers la gauche et une <ins>tête de singe de face avec museau blanc<i/ns>) : (2/3 à droite, en haut, photo 1).
 <ins>Starfox</ins> : (renard des étoiles dans un cockpit) : 2/3 à droite, vers le haut, photo 1).
 <ins>Femme avec queue de cheval</ins> sur sa <ins>monture animale</ins> devant <ins>humanoïde à tête de chien</ins> (2/3 à droite, vers le haut, photo1).
