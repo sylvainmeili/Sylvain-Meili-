@@ -134,7 +134,7 @@ Certains poèmes sont associés à la somme des lettres en numérologie à parti
 **5 : La beauté asiatique** (2019), 169.  
 Ce poème s’applique à des chinoises, japonaises, coréennes, vietnamiennes, thaïlandaises… Applicable aussi pour d’autres races.  
 **6 : Forêt impériale** (2020), 8.  
-** : Songes des huit dragons du jardin de l’empereur** (2019), 5.  
+**7 : Songes des huit dragons du jardin de l’empereur** (2019), 5.  
 Huit dragons qui symbolisent aussi le pays.  
 **8 : 383 Le jardin parfait ne peut se séparer de sa montagne** (2014), Huitième poème en proverbe.  
 Étant passionné de nature, j’ai longtemps imaginé à quoi ressemble le jardin idéal, en espérant que ça pourra servir aux paysagistes, je vous donne un aperçu d’un beau jardin de style surtout chinois en poème.  
@@ -359,130 +359,130 @@ Photo ressemblant à une parodie d’affiche des films Star Wars.
 2. Humanoïde à poils : dans une contrée lointaine.  
 3. Oiseau : la liberté (en vert : la sagesse).  
 4. Le lapin : il cache la vérité dans son terrier.  
-5. Les deux têtes bleues : extraterrestres bienveillants venant nous aider mais n’intervenant pas physiquement.
-6. Visage inconnu : un mort, c’est une conséquence de la guerre ou la mort de l’empereur.
-7. Le minotaure : monstre créé par des mauvaises expérimentations génétiques.
-8. Dark Vador : il seconde l’empereur.
-9. L’empereur : il détient le pouvoir mais celui-ci est du côté du mal.
-10. Soldat de l’empire.
-11. Grenouille à cornes : un allié de l’alliance (agent infiltré).
-12. Vieillard barbu à chapeau : un allié de l’alliance.
-13. Jedi : (en vert : la sagesse), un allié de l’alliance.
-14. Buffle : 2021 est l’année du buffle, 21 (ài nǐ) signifie aimer toi en chinois (chiffre de l’amour), juste à gauche du Jedi.
-15. Ewok : un allié de l’alliance, nounours qui fête la victoire avec les gentils.
-16. Souris blanche : elle a remonté des secrets du terrier du lapin.
-**En complément**
-17. Petite mare: (en bas à gauche de la grenouille). 
-18. Palmiers: (à droite de la grenouille).
-La grande feuille est l’enlèvement du voile, derrière est le bonheur et la vérité, la reconnexion, le paradis. On peut imaginer remplacer la feuille par le vaisseau spatial Bright Hope avec au-dessus des Tie-fighters et des X-Wings.
+5. Les deux têtes bleues : extraterrestres bienveillants venant nous aider mais n’intervenant pas physiquement.  
+6. Visage inconnu : un mort, c’est une conséquence de la guerre ou la mort de l’empereur.  
+7. Le minotaure : monstre créé par des mauvaises expérimentations génétiques.  
+8. Dark Vador : il seconde l’empereur.  
+9. L’empereur : il détient le pouvoir mais celui-ci est du côté du mal.  
+10. Soldat de l’empire.  
+11. Grenouille à cornes : un allié de l’alliance (agent infiltré).  
+12. Vieillard barbu à chapeau : un allié de l’alliance.  
+13. Jedi : (en vert : la sagesse), un allié de l’alliance.  
+14. Buffle : 2021 est l’année du buffle, 21 (ài nǐ) signifie aimer toi en chinois (chiffre de l’amour), juste à gauche du Jedi.  
+15. Ewok : un allié de l’alliance, nounours qui fête la victoire avec les gentils.  
+16. Souris blanche : elle a remonté des secrets du terrier du lapin.  
+**En complément**  
+17. Petite mare: (en bas à gauche de la grenouille).  
+18. Palmiers: (à droite de la grenouille).  
+La grande feuille est l’enlèvement du voile, derrière est le bonheur et la vérité, la reconnexion, le paradis. On peut imaginer remplacer la feuille par le vaisseau spatial Bright Hope avec au-dessus des Tie-fighters et des X-Wings.  
 
-Miracle : même endroit, 18 paréidolies et 0 paréidolie (photo 3)
+Miracle : même endroit, 18 paréidolies et 0 paréidolie (photo 3)  
 
-**60 paréidolies**
-(Record du monde dans une photo)
+**60 paréidolies**  
+(Record du monde dans une photo)  
 
-**Tableau naturel de 11 paréidolies**
-Le complot contre l’humanité et la nature
+**Tableau naturel de 11 paréidolies**  
+Le complot contre l’humanité et la nature  
 
-**60 paréidolies** 
-(Record du monde)
+**60 paréidolies**  
+(Record du monde)  
 
-<ins>Serpent</ins> (extrait de l’image principale)
-<ins>Extraterrestre devant sa grotte</ins> (extrait de la photo principale)
-<ins>Lézard dans sa grotte</ins> (extrait de la photo principale)
-<ins>Mustélidé</ins> (en haut à droite, photo 1), devant ci-dessous:
-<ins>Animal extraterrestre</ins> (bis).
-<ins>Animal à visage pointu</ins> (forme de blaireau), <ins>oiseau échassier</ins> et <ins>bébé de l’espèce à Yoda</ins>, 2/3 à droite, en haut, photo 1).
-<ins>Yoda à petites oreilles</ins> + tête de singe (fusion de 2 têtes de singe, 1 <ins>tête de singe noire</ins> vers la gauche et une <ins>tête de singe de face avec museau blanc</ins>) : (2/3 à droite, en haut, photo 1).
-<ins>Starfox</ins> : (renard des étoiles dans un cockpit) : 2/3 à droite, vers le haut, photo 1).
-<ins>Femme avec queue de cheval</ins> sur sa <ins>monture animale</ins> devant <ins>humanoïde à tête de chien</ins> (2/3 à droite, vers le haut, photo1).
-<ins>Primate</ins> : (en haut au milieu, photo 2).
-<ins>Père Noël</ins> : avec sa capuche (à gauche au milieu, photo 2).
-<ins>Gorille</ins> : (en bas à gauche, photo 2).
-<ins>Visage masqué</ins> : (à gauche vers le milieu, photo 2). 
-<ins>Momie</ins> : (à droite vers le milieu, photo 2).
-<ins>Fillette</ins> en robe à bretelle, assise qui tient un <ins>petit bonhomme</ins> (directement à droite de la momie, photo 2). 
-<ins>Tête à bec</ins> + <ins>masque en bois</ins> à sa gauche, en dessous du masque : <ins>femme en robe</ins> et <ins>extraterrestre à oreilles pointues</ins> avec buste en costume blanc (col noir) : (en haut à droite, photo 2). 
-<ins>Lézard avec bouche ouverte</ins> : (en dessous de tête à bec, photo 2). 
-<ins>Dauphin</ins> = <ins>chouette</ins> à l’envers + <ins>tête de monstre bis</ins> derrière, plus à droite : <ins>femme extraterrestre</ins> avec à sa droite la <ins>souris à veste blanche</ins> qui regarde à gauche, le <ins>mandalorien</ins> : (en bas à droite, photo 2).
-<ins>Tortue ninja</ins> (tête), en regardant à l’envers cela fait une tête différente.
-<ins>Extraterrestre</ins> : (type gris) avec une fausse moustache ou hybridation, il incorpore 2 têtes à l’intérieur : <ins>extraterrestre 2</ins>, <ins>tête de monstre bis</ins> (en bas à droite, photo 2).
-et on voit le blanc des dents : (en bas à droite, photo 2).
-<ins>Félin</ins> : (au-dessus de tête d’extraterrestre, photo 2).
-<ins>Cervidé</ins> : sans oreille apparente et <ins>tête de chat</ins> à droite (en haut à droite, photo 2).
-<ins>Hybride félin/lapin</ins> (tête) : (en haut à droite, photo 2).
-<ins>Jésus</ins> et <ins>homme avec buste en costume blanc</ins>: en haut au milieu, photo 2).
-<ins>Tête bonnet tresse</ins> : en haut au milieu, photo 2).
-<ins>Rapace</ins> : au milieu photo 2
-<ins>Buste statue</ins> : au milieu à gauche, photo 2).
-<ins>Tête blanche à corne et combinaison marron</ins> : (en bas à gauche, photo 3).
-<ins>Ours</ins> et <ins>extraterrestre à grosse tête avec collier à boîtier</ins>, 10 mètres à gauche de tête blanche à corne (photo 1).
+<ins>Serpent</ins> (extrait de l’image principale)  
+<ins>Extraterrestre devant sa grotte</ins> (extrait de la photo principale)  
+<ins>Lézard dans sa grotte</ins> (extrait de la photo principale)  
+<ins>Mustélidé</ins> (en haut à droite, photo 1), devant ci-dessous:  
+<ins>Animal extraterrestre</ins> (bis).  
+<ins>Animal à visage pointu</ins> (forme de blaireau), <ins>oiseau échassier</ins> et <ins>bébé de l’espèce à Yoda</ins>, 2/3 à droite, en haut, photo 1).  
+<ins>Yoda à petites oreilles</ins> + tête de singe (fusion de 2 têtes de singe, 1 <ins>tête de singe noire</ins> vers la gauche et une <ins>tête de singe de face avec museau blanc</ins>) : (2/3 à droite, en haut, photo 1).  
+<ins>Starfox</ins> : (renard des étoiles dans un cockpit) : 2/3 à droite, vers le haut, photo 1).  
+<ins>Femme avec queue de cheval</ins> sur sa <ins>monture animale</ins> devant <ins>humanoïde à tête de chien</ins> (2/3 à droite, vers le haut, photo 1).  
+<ins>Primate</ins> : (en haut au milieu, photo 2).  
+<ins>Père Noël</ins> : avec sa capuche (à gauche au milieu, photo 2).  
+<ins>Gorille</ins> : (en bas à gauche, photo 2).  
+<ins>Visage masqué</ins> : (à gauche vers le milieu, photo 2).  
+<ins>Momie</ins> : (à droite vers le milieu, photo 2).  
+<ins>Fillette</ins> en robe à bretelle, assise qui tient un <ins>petit bonhomme</ins> (directement à droite de la momie, photo 2).  
+<ins>Tête à bec</ins> + <ins>masque en bois</ins> à sa gauche, en dessous du masque : <ins>femme en robe</ins> et <ins>extraterrestre à oreilles pointues</ins> avec buste en costume blanc (col noir) : (en haut à droite, photo 2).  
+<ins>Lézard avec bouche ouverte</ins> : (en dessous de tête à bec, photo 2).  
+<ins>Dauphin</ins> = <ins>chouette</ins> à l’envers + <ins>tête de monstre bis</ins> derrière, plus à droite : <ins>femme extraterrestre</ins> avec à sa droite la <ins>souris à veste blanche</ins> qui regarde à gauche, le <ins>mandalorien</ins> : (en bas à droite, photo 2).  
+<ins>Tortue ninja</ins> (tête), en regardant à l’envers cela fait une tête différente.  
+<ins>Extraterrestre</ins> : (type gris) avec une fausse moustache ou hybridation, il incorpore 2 têtes à l’intérieur : <ins>extraterrestre 2</ins>, <ins>tête de monstre bis</ins> (en bas à droite, photo 2).  
+et on voit le blanc des dents : (en bas à droite, photo 2).  
+<ins>Félin</ins> : (au-dessus de tête d’extraterrestre, photo 2).  
+<ins>Cervidé</ins> : sans oreille apparente et <ins>tête de chat</ins> à droite (en haut à droite, photo 2).  
+<ins>Hybride félin/lapin</ins> (tête) : (en haut à droite, photo 2).  
+<ins>Jésus</ins> et <ins>homme avec buste en costume blanc</ins>: en haut au milieu, photo 2).  
+<ins>Tête bonnet tresse</ins> : en haut au milieu, photo 2).  
+<ins>Rapace</ins> : au milieu photo 2.  
+<ins>Buste statue</ins> : au milieu à gauche, photo 2).  
+<ins>Tête blanche à corne et combinaison marron</ins> : (en bas à gauche, photo 3).  
+<ins>Ours</ins> et <ins>extraterrestre à grosse tête avec collier à boîtier</ins>, 10 mètres à gauche de tête blanche à corne (photo 1).  
 
-**Tableau naturel de 11 paréidolies**
-Le complot contre l’humanité et la nature
-<ins>Casque</ins> par terre, <ins>extraterrestre assis</ins>, <ins>épicéa</ins>, <ins>tête avec nez de Pinocchio</ins> devant son <ins>pupitre</ins>, <ins>reptile</ins>, <ins>tête d'extraterrestre</ins>, <ins>télévision</ins>, <ins>bébé</ins> avec <ins>sucette</ins>, <ins>tête de serpent</ins>, (image 3).
-Le nez de Pinocchio symbolise le mensonge.
-Je pouvais faire l’interprétation du tableau mais je vous laisse la faire ou la deviner. 
+**Tableau naturel de 11 paréidolies**  
+Le complot contre l’humanité et la nature  
+<ins>Casque</ins> par terre, <ins>extraterrestre assis</ins>, <ins>épicéa</ins>, <ins>tête avec nez de Pinocchio</ins> devant son <ins>pupitre</ins>, <ins>reptile</ins>, <ins>tête d'extraterrestre</ins>, <ins>télévision</ins>, <ins>bébé</ins> avec <ins>sucette</ins>, <ins>tête de serpent</ins>, (image 3).  
+Le nez de Pinocchio symbolise le mensonge.  
+Je pouvais faire l’interprétation du tableau mais je vous laisse la faire ou la deviner.  
 
-On peut encore imaginer d’autres paréidolies, j’en ai vu d’autres moins évidentes et pas assez élaboré par la nature.
+On peut encore imaginer d’autres paréidolies, j’en ai vu d’autres moins évidentes et pas assez élaboré par la nature.  
 
-(25/12/2007)
+(25/12/2007)  
 
-**10 Paréidolies en plus**
+**10 Paréidolies en plus**  
 
-Paréidolies des 3 dragons Chinois  
+Paréidolies des 3 dragons Chinois   
 
-Réponses (10 paréidolies) :
+Réponses (10 paréidolies) :  
 
-3. <ins>Jeune homme</ins> (dans la bulle en bas à droite), avec un arc dans le dos : c’est un faux reflet qui me ressemble. <ins>Tête de chien</ins> (en haut à droite), le chien ressemble au seul chien que j’ai eu.
-On retrouve sur le milieu du haut toute la zone de la photo 18 paréidolies avec la feuille (25/12/2007).
-4. <ins>Lapin</ins> qui montre une direction (début décennie 2000’s).
-5. <ins>Homer Simpson</ins> (au milieu), c’est un personnage de dessin-animé.
-<ins>Visage étonné</ins> (au-dessus d’Homer Simpson), (25/12/2007).
-6. <ins>Dinosaure</ins> (17/04/2014).
-7. <ins>Extraterrestre</ins>, <ins>buste extraterrestre</ins> (25/12/2007).
-8. <ins>Dragon chinois</ins> : (chêne), ajout de brume par ordinateur 
-(28/6/2009).
-9. <ins>Dragon chinois</ins> :(branche de hêtre) avec Sylvain Meili
-(21/06/2008).
-10. <ins>Petit dragon</ins>, <ins>faux nid en mousse</ins> (environ années 2000).
+3. <ins>Jeune homme</ins> (dans la bulle en bas à droite), avec un arc dans le dos : c’est un faux reflet qui me ressemble. <ins>Tête de chien</ins> (en haut à droite), le chien ressemble au seul chien que j’ai eu.  
+On retrouve sur le milieu du haut toute la zone de la photo 18 paréidolies avec la feuille (25/12/2007).  
+4. <ins>Lapin</ins> qui montre une direction (début décennie 2000’s).  
+5. <ins>Homer Simpson</ins> (au milieu), c’est un personnage de dessin-animé.  
+<ins>Visage étonné</ins> (au-dessus d’Homer Simpson), (25/12/2007).  
+6. <ins>Dinosaure</ins> (17/04/2014).  
+7. <ins>Extraterrestre</ins>, <ins>buste extraterrestre</ins> (25/12/2007).  
+8. <ins>Dragon chinois</ins> : (chêne), ajout de brume par ordinateur  
+(28/6/2009).  
+9. <ins>Dragon chinois</ins> :(branche de hêtre) avec Sylvain Meili  
+(21/06/2008).  
+10. <ins>Petit dragon</ins>, <ins>faux nid en mousse</ins> (environ années 2000).  
 
-Titre des 10 photos
+Titre des 10 photos  
 
-Les chiffres sont associés au titre qui correspond le mieux au symbole du chiffre. 
+Les chiffres sont associés au titre qui correspond le mieux au symbole du chiffre.  
 
-1. Parodie d’affiche de Star Wars 
-2. Fééries de glace
-3. Faux reflet de Sylvain Meili
-4. Les secrets du lapin
-5. Prédictions d’Homer Simpson
-6. Dinosaure en bois
-7. Révélations extraterrestres
-8. Le dragon du rocher
-9. Le dragon de la forêt
-10. Sortie du petit dragon
+1. Parodie d’affiche de Star Wars  
+2. Fééries de glace  
+3. Faux reflet de Sylvain Meili  
+4. Les secrets du lapin  
+5. Prédictions d’Homer Simpson  
+6. Dinosaure en bois  
+7. Révélations extraterrestres  
+8. Le dragon du rocher  
+9. Le dragon de la forêt  
+10. Sortie du petit dragon  
 
-Je pense que plusieurs de ces photos de paréidolies peut être qualifiées de miracle.
-Miniatures 90 paréidolies 
+Je pense que plusieurs de ces photos de paréidolies peut être qualifiées de miracle.  
+Miniatures 90 paréidolies  
 
-**Photos nature**
+**Photos nature**  
 
-<ins>Différents types de glace</ins> : bulles, fil sur bulles, fleur de glace, nuage de bulles, disques de bulles.
-<ins>Nuage de bulles de glace</ins> : j’ai déposé des grosses pierres au fond de l’eau, grâce à cela, un phénomène étonnant est arrivée avec la création de nuages de bulles de glace.
-<ins>Les fleurs de glace</ins> : elles ont été créées grâce aux graines ailées de charme tombant à la surface et faisant comme de nombreuses fleurs de « nénuphars de glaces ». On peut aussi déposer d’autres supports pour faire naître des fleurs de glace au bon moment.
+<ins>Différents types de glace</ins> : bulles, fil sur bulles, fleur de glace, nuage de bulles, disques de bulles.  
+<ins>Nuage de bulles de glace</ins> : j’ai déposé des grosses pierres au fond de l’eau, grâce à cela, un phénomène étonnant est arrivée avec la création de nuages de bulles de glace.  
+<ins>Les fleurs de glace</ins> : elles ont été créées grâce aux graines ailées de charme tombant à la surface et faisant comme de nombreuses fleurs de « nénuphars de glaces ». On peut aussi déposer d’autres supports pour faire naître des fleurs de glace au bon moment.  
 
-Photos plan d’eau
-(ensemble des photos datant du 23/12/2007).
-Miniature des photos
+Photos plan d’eau  
+(ensemble des photos datant du 23/12/2007).  
+Miniature des photos  
 
-Photos roche de glace
+Photos roche de glace  
 
-Bonus
-Harpe de glace : 22/02/2010
-Plan d’eau : 19/02/2008
+Bonus  
+Harpe de glace : 22/02/2010  
+Plan d’eau : 19/02/2008  
 
-L’épicéa
-Le meilleur arbre à grimper
+L’épicéa  
+Le meilleur arbre à grimper  
 
 **Jeux Olympiques 2021**
 
@@ -499,24 +499,24 @@ Chine : Deux (2) personnes dans le jardin parfait qui ne peut se séparer de sa 
 
 France : Unité des deux dragons (deux S ou deux 3 forment le 8) pour la victoire retrouvée (10) ensemble dans l’amour (1 21 1) maîtrisée (33). 
 
-2 : Deux personnes.	
-3 : Huit séparé en deux.
-8 : Infini, deux S du dragon.
-10 : La victoire retrouvée (poème 10).
-18 : Le Kung-fu légendaire (poème 18), 1+8=9 : chiffre de l’empereur.
-21 : Aimer toi (ai ni en chinois), centré et en commun pour la France et la chine (1 21 1).
-33 : Deux trois qui s’assemblent forment le 8, 33 : chiffre de la maîtrise.
-88 : Deux personnes à l’infini, deux huit représentent la forêt (proverbe 88).
-383 : Le jardin parfait ne peut se séparer de sa montagne (poème et proverbe 383).
-23/7/2021=17 (sortie du livre : 383 proverbes français inédits), (1+7=8) : début des Jeux Olympiques Japonais.
-8/8/2021=21 (sortie du livre : 777 proverbes français inédits), (2+1=3) : clôture des Jeux Olympiques Japonais.
+2 : Deux personnes.	 
+3 : Huit séparé en deux.  
+8 : Infini, deux S du dragon.  
+10 : La victoire retrouvée (poème 10).  
+18 : Le Kung-fu légendaire (poème 18), 1+8=9 : chiffre de l’empereur.  
+21 : Aimer toi (ai ni en chinois), centré et en commun pour la France et la chine (1 21 1).  
+33 : Deux trois qui s’assemblent forment le 8, 33 : chiffre de la maîtrise.  
+88 : Deux personnes à l’infini, deux huit représentent la forêt (proverbe 88).  
+383 : Le jardin parfait ne peut se séparer de sa montagne (poème et proverbe 383).  
+23/7/2021=17 (sortie du livre : 383 proverbes français inédits), (1+7=8) : début des Jeux Olympiques Japonais.  
+8/8/2021=21 (sortie du livre : 777 proverbes français inédits), (2+1=3) : clôture des Jeux Olympiques Japonais.  
 
-Synchronicités des chiffres avec :
-le livre 777 proverbes français inédits
-(Sylvain Meili) 27/04/2021
+Synchronicités des chiffres avec :  
+le livre 777 proverbes français inédits  
+(Sylvain Meili) 27/04/2021  
 
 
-**Synchronicités**
+**Synchronicités**  
 
 Le 05 septembre 2018, j’ai fait un décret : 2021, année de l’amour.  
 Plusieurs syncronicités en lien avec cela.  
